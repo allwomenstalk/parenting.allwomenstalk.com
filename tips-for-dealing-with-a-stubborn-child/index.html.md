@@ -3,7 +3,7 @@ title: "Smart Strategies for Dealing with a Stubborn Child ..."
 description: "Don’t Enter into a Battle of Wills; Say What You Need to and Walk Away; Remain Calm; Make Consequences Clear; Don’t Give in; More ..."
 url: "https://parenting.allwomenstalk.com/tips-for-dealing-with-a-stubborn-child/"
 category: "parenting"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Smart Strategies for Dealing with a Stubborn Child ...
@@ -42,16 +42,16 @@ These are some tips to help you when you are dealing with a stubborn child. Do y
 
 ## Related Posts
 
-- [characteristics of a little child](https://lifestyle.allwomenstalk.com/characteristics-of-a-controlling-parent/)
-- [legos to build with your boyfriend](https://parenting.allwomenstalk.com/things-to-build-with-legos-that-your-kids-will-love/)
+- [biology doesnt make you a parent](https://parenting.allwomenstalk.com/best-parenting-infographics/)
+- [Discover How to Avoid Being an Embarrassing Parent...](https://parenting.allwomenstalk.com/ways-to-avoid-being-an-embarrassing-parent/)
+- [oobleck recipe nz](https://parenting.allwomenstalk.com/gooey-science-experiments-to-do-with-your-kid/)
+- [teach the children christmas](https://parenting.allwomenstalk.com/ways-to-teach-children-about-giving-to-others-at-christmas/)
 - [what is food production](https://food.allwomenstalk.com/ways-to-get-your-kids-interested-in-cooking/)
+- [legos to build with your boyfriend](https://parenting.allwomenstalk.com/things-to-build-with-legos-that-your-kids-will-love/)
 - [myths about parenting](https://parenting.allwomenstalk.com/popular-myths-about-parenting-that-arent-true/)
 - [parenting hacks](https://parenting.allwomenstalk.com/gentle-parenting-hacks-that-really-work/)
-- [Discover How to Avoid Being an Embarrassing Parent...](https://parenting.allwomenstalk.com/ways-to-avoid-being-an-embarrassing-parent/)
-- [teach the children christmas](https://parenting.allwomenstalk.com/ways-to-teach-children-about-giving-to-others-at-christmas/)
 - [why am i jealous of my stepchildren](https://parenting.allwomenstalk.com/tips-for-when-your-partner-is-jealous-of-your-child/)
-- [biology doesnt make you a parent](https://parenting.allwomenstalk.com/best-parenting-infographics/)
-- [oobleck recipe nz](https://parenting.allwomenstalk.com/gooey-science-experiments-to-do-with-your-kid/)
+- [characteristics of a little child](https://lifestyle.allwomenstalk.com/characteristics-of-a-controlling-parent/)
 - [7 Ways to Raise a Confident Kid ...](https://parenting.allwomenstalk.com/7-ways-to-raise-a-confident-kid/)
 - [7 Tips on Being a Parent to a Toddler ...](https://allwomenstalk.com/7-tips-on-being-a-parent-to-a-toddler/)
 

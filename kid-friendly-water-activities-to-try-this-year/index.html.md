@@ -3,7 +3,7 @@ title: "7 Kid-Friendly Water Activities to Try This Year ..."
 description: "Boating; River Wading; Water Balloons; Sprinkler Snake; Backyard Bath; More ..."
 url: "https://parenting.allwomenstalk.com/kid-friendly-water-activities-to-try-this-year/"
 category: "parenting"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Kid\-Friendly Water Activities to Try This Year ...
@@ -42,16 +42,16 @@ What are your kids’ favorite water activities? Which one will you try first? P
 
 ## Related Posts
 
-- [what to do with a windfall](https://money.allwomenstalk.com/practical-things-to-do-with-a-windfall/)
-- [7 Fun Outdoor Activities to do This Fall ...](https://lifestyle.allwomenstalk.com/fun-outdoor-activities-to-do-this-fall/)
-- [7 Activities to do with Your Kids on Weekends ...](https://parenting.allwomenstalk.com/activities-to-do-with-your-kids-on-weekends/)
-- [7 Ways Adults Can Also Have Fun Back to School Sho...](https://money.allwomenstalk.com/ways-adults-can-also-have-fun-back-to-school-shopping/)
-- [7 Exciting Ways to Experience the Great Outdoors ....](https://travel.allwomenstalk.com/exciting-ways-to-experience-the-great-outdoors/)
 - [Fun Activities to Fill Your Free Weekend ...](https://lifestyle.allwomenstalk.com/things-to-do-on-your-free-weekend/)
+- [7 Fun Outdoor Activities to do This Fall ...](https://lifestyle.allwomenstalk.com/fun-outdoor-activities-to-do-this-fall/)
 - [7 Ways to Entertain Yourself if Youre Stuck on Bed...](https://health.allwomenstalk.com/ways-to-entertain-yourself-if-youre-stuck-on-bed-rest/)
 - [7 Essential Things to do in Cape Cod ...](https://travel.allwomenstalk.com/essential-things-to-do-in-cape-cod/)
-- [7 Free Things to do in Colorado with Your Kids ...](https://travel.allwomenstalk.com/free-things-to-do-in-colorado-with-your-kids/)
+- [7 Activities to do with Your Kids on Weekends ...](https://parenting.allwomenstalk.com/activities-to-do-with-your-kids-on-weekends/)
+- [7 Ways Adults Can Also Have Fun Back to School Sho...](https://money.allwomenstalk.com/ways-adults-can-also-have-fun-back-to-school-shopping/)
+- [what to do with a windfall](https://money.allwomenstalk.com/practical-things-to-do-with-a-windfall/)
 - [7 Fun Ways to Make Memories with Your Kids This Fa...](https://parenting.allwomenstalk.com/fun-ways-to-make-memories-with-your-kids-this-fall/)
+- [7 Exciting Ways to Experience the Great Outdoors ....](https://travel.allwomenstalk.com/exciting-ways-to-experience-the-great-outdoors/)
+- [7 Free Things to do in Colorado with Your Kids ...](https://travel.allwomenstalk.com/free-things-to-do-in-colorado-with-your-kids/)
 - [8 Ideas for Summer Water Fun ...](https://parenting.allwomenstalk.com/ideas-for-summer-water-fun/)
 - [7 Fun Outdoor Activities to Try This Winter ...](https://health.allwomenstalk.com/fun-outdoor-activities-to-try-this-winter/)
 

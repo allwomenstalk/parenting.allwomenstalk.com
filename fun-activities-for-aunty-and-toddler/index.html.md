@@ -3,7 +3,7 @@ title: "7 Fun Activities for Aunty and Toddler ..."
 description: "Soft Play; Story Time; Crafternoon; Make a Splash; Make Some Music; More ..."
 url: "https://parenting.allwomenstalk.com/fun-activities-for-aunty-and-toddler/"
 category: "parenting"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Fun Activities for Aunty and Toddler ...
@@ -42,16 +42,16 @@ So next time you are asked if you can babysit – make sure you say Yes! If you 
 
 ## Related Posts
 
-- [adult game cards](https://lifestyle.allwomenstalk.com/adult-only-card-and-board-games/)
-- [things we did as kids](https://inspiration.allwomenstalk.com/you-loved-to-do-these-things-as-a-child-its-time-to-do-them-again/)
-- [house parties ideas](https://movies.allwomenstalk.com/unforgettable-house-party-ideas-for-oscar-night/)
-- [what to do on a rainy beach day](https://travel.allwomenstalk.com/this-is-the-ultimate-activity-guide-for-a-rainy-day-at-the-beach/)
-- [quick sketch](https://diy.allwomenstalk.com/drawing-websites-to-visit-when-youre-bored/)
 - [best group game](https://lifestyle.allwomenstalk.com/house-party-games-for-a-wild-night-with-friends/)
+- [quick sketch](https://diy.allwomenstalk.com/drawing-websites-to-visit-when-youre-bored/)
+- [things we did as kids](https://inspiration.allwomenstalk.com/you-loved-to-do-these-things-as-a-child-its-time-to-do-them-again/)
 - [where to take a girl to hangout](https://lifestyle.allwomenstalk.com/unforgettable-hangout-ideas-thatll-get-the-girls-together/)
-- [uses for cheese](https://food.allwomenstalk.com/marvelous-things-to-do-with-cheese/)
-- [fun st patricks day activities](https://parenting.allwomenstalk.com/fun-st-patricks-day-activities-to-do-with-your-kids/)
+- [house parties ideas](https://movies.allwomenstalk.com/unforgettable-house-party-ideas-for-oscar-night/)
+- [adult game cards](https://lifestyle.allwomenstalk.com/adult-only-card-and-board-games/)
 - [fun indoor activities for couples](https://love.allwomenstalk.com/indoor-couples-activities-for-when-a-rainy-day-wont-go-away/)
+- [fun st patricks day activities](https://parenting.allwomenstalk.com/fun-st-patricks-day-activities-to-do-with-your-kids/)
+- [uses for cheese](https://food.allwomenstalk.com/marvelous-things-to-do-with-cheese/)
+- [what to do on a rainy beach day](https://travel.allwomenstalk.com/this-is-the-ultimate-activity-guide-for-a-rainy-day-at-the-beach/)
 - [7 Summer Activities for Bored Preschoolers ...](https://parenting.allwomenstalk.com/summer-activities-for-bored-preschoolers/)
 - [7 Party Themes for a Toddler ...](https://allwomenstalk.com/7-party-themes-for-a-toddler/)
 

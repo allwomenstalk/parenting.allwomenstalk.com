@@ -3,7 +3,7 @@ title: "7 Important Things Students Are Not Taught in High School ..."
 description: "What Are Taxes?; How to do Taxes; How to Vote; How to Write a Resume/Cover Letter; Anything to do with Banking; More ..."
 url: "https://parenting.allwomenstalk.com/important-things-students-are-not-taught-in-high-school/"
 category: "parenting"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Important Things Students Are Not Taught in High School ...
@@ -42,16 +42,16 @@ All of these skills are so important to learn before leaving high school, so the
 
 ## Related Posts
 
-- [dont know what to study in college](https://lifestyle.allwomenstalk.com/smart-tips-for-choosing-a-college-major-that-wont-drive-you-insane/)
-- [have a great semester](https://lifestyle.allwomenstalk.com/must-have-back-to-school-essentials-for-a-great-semester/)
-- [how to survive college](https://lifestyle.allwomenstalk.com/tips-on-how-to-survive-college-move-in-day/)
-- [bad time dp](https://lifestyle.allwomenstalk.com/types-of-days-youll-have-in-college/)
-- [dealing with homesickness in college](https://lifestyle.allwomenstalk.com/ways-to-cope-with-college-life-when-you-get-homesick/)
-- [is life hard after high school](https://lifestyle.allwomenstalk.com/things-you-dont-think-will-happen-after-high-school-but-they-will/)
 - [hire a private tutor](https://parenting.allwomenstalk.com/things-to-consider-when-hiring-a-private-tutor/)
-- [reasons for attending college](https://travel.allwomenstalk.com/reasons-why-you-should-consider-going-to-college-out-of-state/)
 - [high school myths](https://lifestyle.allwomenstalk.com/high-school-myths-you-should-debunk-today/)
+- [have a great semester](https://lifestyle.allwomenstalk.com/must-have-back-to-school-essentials-for-a-great-semester/)
+- [dealing with homesickness in college](https://lifestyle.allwomenstalk.com/ways-to-cope-with-college-life-when-you-get-homesick/)
+- [reasons for attending college](https://travel.allwomenstalk.com/reasons-why-you-should-consider-going-to-college-out-of-state/)
 - [what should i do before school starts](https://lifestyle.allwomenstalk.com/important-things-you-must-do-before-school-starts/)
+- [is life hard after high school](https://lifestyle.allwomenstalk.com/things-you-dont-think-will-happen-after-high-school-but-they-will/)
+- [how to survive college](https://lifestyle.allwomenstalk.com/tips-on-how-to-survive-college-move-in-day/)
+- [dont know what to study in college](https://lifestyle.allwomenstalk.com/smart-tips-for-choosing-a-college-major-that-wont-drive-you-insane/)
+- [bad time dp](https://lifestyle.allwomenstalk.com/types-of-days-youll-have-in-college/)
 - [7 Things You Wish You Did in School](https://allwomenstalk.com/things-you-wish-you-did-in-school/)
 - [7 Things I Wish I Knew in High School ...](https://lifestyle.allwomenstalk.com/things-i-wish-i-knew-in-high-school/)
 

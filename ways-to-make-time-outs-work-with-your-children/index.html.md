@@ -3,7 +3,7 @@ title: "7 Ways to Make Time-outs Work with Your Children ..."
 description: "Explain What You Expect; Sit by Them if Necessary; Explain What You Want Them to Think about and Why; Set a Timer; Talk with Them Afterwards; More ..."
 url: "https://parenting.allwomenstalk.com/ways-to-make-time-outs-work-with-your-children/"
 category: "parenting"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Ways to Make Time\-outs Work with Your Children ...
@@ -42,16 +42,16 @@ Time-outs can help you tremendously when it comes to discipline with your child.
 
 ## Related Posts
 
+- [10 Ways to Survive Your Childs Teen Years ...](https://parenting.allwomenstalk.com/ways-to-survive-your-childs-teen-years/)
 - [7 Signs Your Child is Ready for Contact Lenses ...](https://parenting.allwomenstalk.com/signs-your-child-is-ready-for-contact-lenses/)
-- [7 Steps to Planning a Birthday Party for Your Todd...](https://parenting.allwomenstalk.com/steps-to-planning-a-birthday-party-for-your-toddler/)
-- [7 Ways to Make Errands Less Stressful when You Hav...](https://parenting.allwomenstalk.com/ways-to-make-errands-less-stressful-when-you-have-children/)
 - [7 Ways to Make Your Child More Independent ...](https://parenting.allwomenstalk.com/ways-to-make-your-child-more-independent/)
 - [9 Tips on How to Inspire Creativity in Your Kids ....](https://parenting.allwomenstalk.com/tips-on-how-to-inspire-creativity-in-your-kids/)
-- [10 Ways to Survive Your Childs Teen Years ...](https://parenting.allwomenstalk.com/ways-to-survive-your-childs-teen-years/)
-- [7 Tips for when Your Teenager Talks Back to You .....](https://parenting.allwomenstalk.com/tips-for-when-your-teenager-talks-back-to-you/)
 - [7 Tips for Dealing with Your Childs Motion Sicknes...](https://parenting.allwomenstalk.com/tips-for-dealing-with-your-childs-motion-sickness/)
-- [7 Very Important Things to Look for in a Day Care ...](https://parenting.allwomenstalk.com/very-important-things-to-look-for-in-a-day-care-center/)
+- [7 Tips for when Your Teenager Talks Back to You .....](https://parenting.allwomenstalk.com/tips-for-when-your-teenager-talks-back-to-you/)
+- [7 Steps to Planning a Birthday Party for Your Todd...](https://parenting.allwomenstalk.com/steps-to-planning-a-birthday-party-for-your-toddler/)
+- [7 Ways to Make Errands Less Stressful when You Hav...](https://parenting.allwomenstalk.com/ways-to-make-errands-less-stressful-when-you-have-children/)
 - [7 Things to do when Giving Your Kid the Sex Talk ....](https://parenting.allwomenstalk.com/things-to-do-when-giving-your-kid-the-sex-talk/)
+- [7 Very Important Things to Look for in a Day Care ...](https://parenting.allwomenstalk.com/very-important-things-to-look-for-in-a-day-care-center/)
 - [7 Ways to Get Your Child to Sleep ...](https://parenting.allwomenstalk.com/7-ways-to-get-your-child-to-sleep/)
 - [7 Ways to Calm an Unhappy Child ...](https://parenting.allwomenstalk.com/7-ways-to-calm-an-unhappy-child/)
 

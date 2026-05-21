@@ -3,7 +3,7 @@ title: "7 Ways to Teach Your Son to Be a Gentleman ..."
 description: "Manners Matter; Presentation; Language; Thoughtfulness; Gifts; More ..."
 url: "https://parenting.allwomenstalk.com/ways-to-teach-your-son-to-be-a-gentleman/"
 category: "parenting"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Ways to Teach Your Son to Be a Gentleman ...
@@ -42,16 +42,16 @@ These are the few things that I suggest doing to teach your son to be a gentlema
 
 ## Related Posts
 
-- [things to do with kids when babysitting](https://lifestyle.allwomenstalk.com/things-to-do-with-kids-when-babysitting/)
 - [how to teach your child to swim yourself](https://parenting.allwomenstalk.com/tips-for-teaching-your-child-how-to-swim/)
 - [high energy games for kids](https://parenting.allwomenstalk.com/fun-activities-for-high-energy-kids-that-will-keep-them-healthy-and-calm/)
-- [artificial consequences definition](https://parenting.allwomenstalk.com/techniques-to-teach-your-child-to-behave-acceptably/)
+- [how involved](https://parenting.allwomenstalk.com/ways-to-be-involved-in-your-childs-life/)
 - [quiet kid stereotype](https://parenting.allwomenstalk.com/gender-based-stereotypes-imposed-on-kids/)
 - [moms favorite things](https://parenting.allwomenstalk.com/of-my-favorite-things-about-being-a-parent/)
+- [artificial consequences definition](https://parenting.allwomenstalk.com/techniques-to-teach-your-child-to-behave-acceptably/)
+- [things to do with kids when babysitting](https://lifestyle.allwomenstalk.com/things-to-do-with-kids-when-babysitting/)
 - [child wants to be vegetarian](https://parenting.allwomenstalk.com/ways-to-cope-with-a-vegetarian-child/)
-- [what to do when your child is bullying others](https://parenting.allwomenstalk.com/tips-for-when-your-child-is-bullying-other-kids-at-school/)
-- [how involved](https://parenting.allwomenstalk.com/ways-to-be-involved-in-your-childs-life/)
 - [send a ball](https://parenting.allwomenstalk.com/things-to-mail-to-kids/)
+- [what to do when your child is bullying others](https://parenting.allwomenstalk.com/tips-for-when-your-child-is-bullying-other-kids-at-school/)
 - [7 Daily Relationship Tips for Your Children ...](https://parenting.allwomenstalk.com/7-daily-relationship-tips-for-your-children/)
 - [7 Tips on How to Be a Lady ...](https://lifestyle.allwomenstalk.com/tips-on-how-to-be-a-lady/)
 

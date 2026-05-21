@@ -3,7 +3,7 @@ title: "Yes I Kiss My Kids on the Lips... Whats the Big Deal? ..."
 description: "I do Kiss My Kids 😗; They Get Screen Time, Too 📱; Junk Food 🍔; They've Seen My Boobs 😲; We Talk about Periods ♀; More ..."
 url: "https://parenting.allwomenstalk.com/yes-i-kiss-my-kids-on-the-lips-whats-the-big-deal/"
 category: "parenting"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Yes I Kiss My Kids on the Lips... Whats the Big Deal? ...
@@ -42,16 +42,16 @@ It's totally okay if you don't agree with my parenting choices. As long as my ki
 
 ## Related Posts
 
+- [potty training guide for parents](https://parenting.allwomenstalk.com/tips-for-potty-training/)
+- [you make my heart happy quotes](https://parenting.allwomenstalk.com/positive-affirmations-to-encourage-your-children-and-build-them-up/)
 - [kid cudio](https://lifestyle.allwomenstalk.com/how-to-throw-an-amazing-kids-party/)
 - [better communication with your child](https://parenting.allwomenstalk.com/ways-to-have-better-communication-with-your-child/)
-- [potty training guide for parents](https://parenting.allwomenstalk.com/tips-for-potty-training/)
-- [kids sharing room ideas](https://parenting.allwomenstalk.com/how-to-make-sharing-a-room-easier-for-kids/)
-- [you make my heart happy quotes](https://parenting.allwomenstalk.com/positive-affirmations-to-encourage-your-children-and-build-them-up/)
 - [why first born are more intelligent](https://lifestyle.allwomenstalk.com/science-says-the-first-born-child-is-the-most-intelligent/)
-- [the kid latoi](https://parenting.allwomenstalk.com/how-to-support-a-kid-with-an-iep/)
+- [kids sharing room ideas](https://parenting.allwomenstalk.com/how-to-make-sharing-a-room-easier-for-kids/)
 - [still cant sleep on christmas eve](https://parenting.allwomenstalk.com/tips-to-get-your-kids-to-go-to-sleep-on-christmas-eve/)
 - [children believe](https://parenting.allwomenstalk.com/should-children-believe-in-santa-claus/)
 - [i can totally relate](https://parenting.allwomenstalk.com/things-parents-of-teens-can-totally-relate-to/)
+- [the kid latoi](https://parenting.allwomenstalk.com/how-to-support-a-kid-with-an-iep/)
 - [When Was Your First Kiss](https://allwomenstalk.com/when-was-your-first-kiss/)
 - [The Times We All Love to Be Kissed ...](https://love.allwomenstalk.com/best-times-to-be-kissed-by-your-partner/)
 

@@ -3,7 +3,7 @@ title: "7 Things to do when Your Kids Wont Nap ..."
 description: "Exercise; Have a Ritual; Don't Call It \"nap Time\"; Sleep Requirements; Movie Time; More ..."
 url: "https://parenting.allwomenstalk.com/7-things-to-do-when-your-kids-wont-nap/"
 category: "parenting"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Things to do when Your Kids Wont Nap ...
@@ -44,16 +44,16 @@ Top Photo Credit: [knightoyo](https://www.flickr.com/photos/knightoyo/242232922/
 
 ## Related Posts
 
-- [7 Tips to Get Your Kids Eating Healthy ...](https://parenting.allwomenstalk.com/7-tips-to-get-your-kids-eating-healthy/)
-- [the kid has grown up](https://parenting.allwomenstalk.com/8-ways-you-realise-kids-have-grown-up/)
-- [shine for kids townsville](https://parenting.allwomenstalk.com/9-ways-to-help-your-child-shine-at-school/)
-- [7 Tips on Planning a Fun Sleepover for Your Kid .....](https://parenting.allwomenstalk.com/7-tips-on-planning-a-fun-sleepover-for-your-kid/)
-- [parenting questions](https://parenting.allwomenstalk.com/parenting-questions-answered/)
-- [8 Ways to Make More Time for Your Kids ...](https://parenting.allwomenstalk.com/8-ways-to-make-more-time-for-your-kids/)
-- [teaching kids responsibility](https://parenting.allwomenstalk.com/7-ways-to-teach-kids-responsibility/)
 - [graduation thanks for parents](https://parenting.allwomenstalk.com/7-ways-to-thank-your-parents/)
 - [write any four problems that are faced by a workin...](https://parenting.allwomenstalk.com/8-horrifying-problems-faced-by-children-across-the-world/)
+- [parenting questions](https://parenting.allwomenstalk.com/parenting-questions-answered/)
+- [the kid has grown up](https://parenting.allwomenstalk.com/8-ways-you-realise-kids-have-grown-up/)
+- [8 Ways to Make More Time for Your Kids ...](https://parenting.allwomenstalk.com/8-ways-to-make-more-time-for-your-kids/)
+- [shine for kids townsville](https://parenting.allwomenstalk.com/9-ways-to-help-your-child-shine-at-school/)
 - [7 Healthy Habits to Teach Your Children ...](https://parenting.allwomenstalk.com/7-healthy-habits-to-teach-your-children/)
+- [7 Tips to Get Your Kids Eating Healthy ...](https://parenting.allwomenstalk.com/7-tips-to-get-your-kids-eating-healthy/)
+- [teaching kids responsibility](https://parenting.allwomenstalk.com/7-ways-to-teach-kids-responsibility/)
+- [7 Tips on Planning a Fun Sleepover for Your Kid .....](https://parenting.allwomenstalk.com/7-tips-on-planning-a-fun-sleepover-for-your-kid/)
 - [7 Ways to Get Your Child to Sleep ...](https://parenting.allwomenstalk.com/7-ways-to-get-your-child-to-sleep/)
 - [7 Ways to Occupy a Toddler for an Hour ...](https://parenting.allwomenstalk.com/7-ways-to-occupy-a-toddler-for-an-hour/)
 

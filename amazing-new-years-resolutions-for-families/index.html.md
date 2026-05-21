@@ -3,7 +3,7 @@ title: "7 Amazing New Years Resolutions for Families ..."
 description: "Family Dinners; Volunteer More; Less Electronic Use; Family Night; Eating Healthier; More ..."
 url: "https://parenting.allwomenstalk.com/amazing-new-years-resolutions-for-families/"
 category: "parenting"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Amazing New Years Resolutions for Families ...
@@ -42,15 +42,15 @@ What are some New Year’s resolutions you have planned for your family?
 
 ## Related Posts
 
-- [7 Lies Its Technically Okay to Tell Your Kids ...](https://parenting.allwomenstalk.com/lies-its-technically-okay-to-tell-your-kids/)
 - [7 Steps to Being a Good Stepparent ...](https://parenting.allwomenstalk.com/steps-to-being-a-good-stepparent/)
-- [7 Tips for What to do if Your Child is Being Bulli...](https://parenting.allwomenstalk.com/tips-for-what-to-do-if-your-child-is-being-bullied/)
-- [7 Ways to Help Your Child if You Are Worried about...](https://parenting.allwomenstalk.com/ways-to-help-your-child-if-you-are-worried-about-their-weight/)
+- [7 Lies Its Technically Okay to Tell Your Kids ...](https://parenting.allwomenstalk.com/lies-its-technically-okay-to-tell-your-kids/)
 - [7 Ways to Make Healthy Living a Family Affair ...](https://health.allwomenstalk.com/ways-to-make-healthy-living-a-family-affair/)
 - [7 Habits of Healthy Families That You Should Follo...](https://parenting.allwomenstalk.com/habits-of-healthy-families-that-you-should-follow/)
-- [7 Chores Even a Toddler Can do ...](https://parenting.allwomenstalk.com/chores-even-a-toddler-can-do/)
 - [7 Life Lessons You Learn when Youre a Parent ...](https://parenting.allwomenstalk.com/life-lessons-you-learn-when-youre-a-parent/)
+- [7 Tips for What to do if Your Child is Being Bulli...](https://parenting.allwomenstalk.com/tips-for-what-to-do-if-your-child-is-being-bullied/)
+- [7 Chores Even a Toddler Can do ...](https://parenting.allwomenstalk.com/chores-even-a-toddler-can-do/)
 - [7 Simple Ways to Encourage Your Childs Love of Lea...](https://parenting.allwomenstalk.com/simple-ways-to-encourage-your-childs-love-of-learning/)
+- [7 Ways to Help Your Child if You Are Worried about...](https://parenting.allwomenstalk.com/ways-to-help-your-child-if-you-are-worried-about-their-weight/)
 - [7 Ways to Earn Your Parents Trust ...](https://teen.allwomenstalk.com/ways-to-earn-your-parents-trust/)
 - [8 Ideas for a Family Fun Night ...](https://allwomenstalk.com/8-ideas-for-a-family-fun-night/)
 - [8 Ideas for Family Night ...](https://allwomenstalk.com/8-ideas-for-family-night/)

@@ -3,7 +3,7 @@ title: "7 Ways to Help Your Child through Your Divorce ..."
 description: "Don’t Put Your Kid in the Middle; Answer Question They Might Have; Spend Quality Time Together; Don’t Bad-mouth the Other Parent; Let Them Know It Isn’t Their Fault; More ..."
 url: "https://parenting.allwomenstalk.com/7-ways-to-help-your-child-through-your-divorce/"
 category: "parenting"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Ways to Help Your Child through Your Divorce ...
@@ -44,16 +44,16 @@ Top Photo Credit: [hotes trinkets](https://www.flickr.com/photos/hotestrinkets/4
 
 ## Related Posts
 
-- [how to raise confident kids](https://parenting.allwomenstalk.com/7-ways-to-raise-a-confident-kid/)
-- [kid rock fur coat](https://parenting.allwomenstalk.com/7-ways-you-can-encourage-kids-to-give/)
-- [8 Ways to Make More Time for Your Kids ...](https://parenting.allwomenstalk.com/8-ways-to-make-more-time-for-your-kids/)
 - [7 Ways to Organize Your Childs Toys ...](https://parenting.allwomenstalk.com/7-ways-to-organize-your-childs-toys/)
-- [7 Creative Things to do with Your Childs Artwork ....](https://parenting.allwomenstalk.com/7-creative-things-to-do-with-your-childs-artwork/)
-- [7 Things to do when Your Kids Wont Nap ...](https://parenting.allwomenstalk.com/7-things-to-do-when-your-kids-wont-nap/)
-- [recommence](https://parenting.allwomenstalk.com/7-life-lessons-to-teach-your-son/)
-- [the kid has grown up](https://parenting.allwomenstalk.com/8-ways-you-realise-kids-have-grown-up/)
 - [motivate your child](https://parenting.allwomenstalk.com/8-ways-to-motivate-your-child/)
+- [8 Ways to Make More Time for Your Kids ...](https://parenting.allwomenstalk.com/8-ways-to-make-more-time-for-your-kids/)
+- [kid rock fur coat](https://parenting.allwomenstalk.com/7-ways-you-can-encourage-kids-to-give/)
+- [7 Creative Things to do with Your Childs Artwork ....](https://parenting.allwomenstalk.com/7-creative-things-to-do-with-your-childs-artwork/)
+- [the kid has grown up](https://parenting.allwomenstalk.com/8-ways-you-realise-kids-have-grown-up/)
 - [7 Ways to Occupy a Toddler for an Hour ...](https://parenting.allwomenstalk.com/7-ways-to-occupy-a-toddler-for-an-hour/)
+- [how to raise confident kids](https://parenting.allwomenstalk.com/7-ways-to-raise-a-confident-kid/)
+- [recommence](https://parenting.allwomenstalk.com/7-life-lessons-to-teach-your-son/)
+- [7 Things to do when Your Kids Wont Nap ...](https://parenting.allwomenstalk.com/7-things-to-do-when-your-kids-wont-nap/)
 - [7 Daily Relationship Tips for Your Children ...](https://parenting.allwomenstalk.com/7-daily-relationship-tips-for-your-children/)
 - [7 Ways to Bond with Your Stepchildren ...](https://parenting.allwomenstalk.com/ways-to-bond-with-your-stepchildren/)
 
