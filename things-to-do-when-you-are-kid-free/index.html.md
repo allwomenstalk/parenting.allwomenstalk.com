@@ -3,7 +3,7 @@ title: "7 Things to do when You Are Kid Free ..."
 description: "Go out; A Date; Take a Nap; Get a Massage; Go Shopping; More ..."
 url: "https://parenting.allwomenstalk.com/things-to-do-when-you-are-kid-free/"
 category: "parenting"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Things to do when You Are Kid Free ...
@@ -42,15 +42,15 @@ When our son was born, my mother promised us that she would take him overnight o
 
 ## Related Posts
 
-- [birthday 45](https://lifestyle.allwomenstalk.com/extremely-fun-ways-to-celebrate-your-next-birthday/)
-- [aunt  nephews secret sleepover](https://lifestyle.allwomenstalk.com/incredible-ways-to-be-an-awesome-aunt/)
-- [best tailgate set up](https://lifestyle.allwomenstalk.com/ways-to-have-the-best-tailgate-at-the-game/)
 - [things to do with your friends in the fall](https://lifestyle.allwomenstalk.com/brilliant-ideas-for-fall-fun-with-your-friends/)
-- [what to do when nothing to do](https://lifestyle.allwomenstalk.com/things-to-do-when-you-have-nothing-to-do/)
-- [adventurous events](https://lifestyle.allwomenstalk.com/adventurous-events-to-attend-for-an-exciting-experience/)
-- [things to do before turning 21](https://lifestyle.allwomenstalk.com/things-to-do-before-you-turn-21/)
+- [aunt  nephews secret sleepover](https://lifestyle.allwomenstalk.com/incredible-ways-to-be-an-awesome-aunt/)
 - [fun adventure date ideas](https://love.allwomenstalk.com/unique-and-fun-date-ideas-for-adventurous-couples/)
+- [things to do before turning 21](https://lifestyle.allwomenstalk.com/things-to-do-before-you-turn-21/)
 - [how to be a good party guest](https://lifestyle.allwomenstalk.com/ways-to-be-the-perfect-party-guest/)
+- [adventurous events](https://lifestyle.allwomenstalk.com/adventurous-events-to-attend-for-an-exciting-experience/)
+- [birthday 45](https://lifestyle.allwomenstalk.com/extremely-fun-ways-to-celebrate-your-next-birthday/)
+- [best tailgate set up](https://lifestyle.allwomenstalk.com/ways-to-have-the-best-tailgate-at-the-game/)
+- [what to do when nothing to do](https://lifestyle.allwomenstalk.com/things-to-do-when-you-have-nothing-to-do/)
 - [fun things to do senior year](https://lifestyle.allwomenstalk.com/must-do-things-for-your-senior-year-bucket-list/)
 - [7 Ideas to Keep Kids Occupied during Summer Break ...](https://parenting.allwomenstalk.com/7-ideas-to-keep-kids-occupied-during-summer-break/)
 - [10 Fun Things to do when Babysitting ...](https://allwomenstalk.com/10-fun-things-to-do-when-babysitting/)

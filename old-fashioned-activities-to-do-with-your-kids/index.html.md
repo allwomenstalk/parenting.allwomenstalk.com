@@ -3,7 +3,7 @@ title: "7 Old-Fashioned Activities to do with Your Kids ..."
 description: "Make Homemade Bread & Butter; Do a Bob Ross Painting; Build a Blanket Fort; Play Kickball; Make a Choose Your Own Adventure Book; More ..."
 url: "https://parenting.allwomenstalk.com/old-fashioned-activities-to-do-with-your-kids/"
 category: "parenting"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Old\-Fashioned Activities to do with Your Kids ...
@@ -56,16 +56,16 @@ So there you have it, some old-fashioned summer activities to do with your kids.
 
 ## Related Posts
 
-- [dealers choice movie](https://parenting.allwomenstalk.com/really-fun-card-games-to-play-with-your-kids-today/)
 - [passion party themes](https://diy.allwomenstalk.com/ideas-for-a-harry-potter-theme-party/)
-- [fun and enjoyable](https://travel.allwomenstalk.com/fun-ways-to-make-your-commute-more-enjoyable/)
-- [what to do at the beach without swimming](https://travel.allwomenstalk.com/stellar-seaside-activities-if-you-dont-swim/)
-- [most boring things to do](https://inspiration.allwomenstalk.com/ways-for-making-boring-tasks-fun/)
-- [activities for girls to do](https://travel.allwomenstalk.com/awesome-boardwalk-activities-you-cant-resist/)
 - [explore dubai on a budget](https://travel.allwomenstalk.com/things-to-do-in-dubai-on-a-budget/)
-- [things that teens do](https://teen.allwomenstalk.com/typical-teenage-things-worth-doing-at-least-once/)
+- [activities for girls to do](https://travel.allwomenstalk.com/awesome-boardwalk-activities-you-cant-resist/)
 - [card group games](https://lifestyle.allwomenstalk.com/card-games-for-maximum-fun/)
 - [things to do on your lunch break](https://lifestyle.allwomenstalk.com/things-to-do-while-youre-on-your-lunch-break/)
+- [dealers choice movie](https://parenting.allwomenstalk.com/really-fun-card-games-to-play-with-your-kids-today/)
+- [what to do at the beach without swimming](https://travel.allwomenstalk.com/stellar-seaside-activities-if-you-dont-swim/)
+- [things that teens do](https://teen.allwomenstalk.com/typical-teenage-things-worth-doing-at-least-once/)
+- [fun and enjoyable](https://travel.allwomenstalk.com/fun-ways-to-make-your-commute-more-enjoyable/)
+- [most boring things to do](https://inspiration.allwomenstalk.com/ways-for-making-boring-tasks-fun/)
 - [7 Fun Ways to Keep the Kids Entertained on a Holid...](https://parenting.allwomenstalk.com/fun-ways-to-keep-the-kids-entertained-on-a-holiday/)
 - [8 Fun Things to do with Your Kids ...](https://allwomenstalk.com/8-fun-things-to-do-with-your-kids/)
 

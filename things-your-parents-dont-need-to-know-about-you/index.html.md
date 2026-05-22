@@ -3,7 +3,7 @@ title: "7 Things Your Parents Dont Need to Know about You ..."
 description: "Your Sex Life; Children; Tattoos; Income; How You Spend Your Money; More ..."
 url: "https://parenting.allwomenstalk.com/things-your-parents-dont-need-to-know-about-you/"
 category: "parenting"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Things Your Parents Dont Need to Know about You ...
@@ -42,16 +42,16 @@ Some things should be kept from your parents because it's appropriate to be disc
 
 ## Related Posts
 
-- [what to say to a cop](https://funny.allwomenstalk.com/hilariously-ridiculous-things-you-should-never-say-to-a-police-officer/)
-- [7 Situations That Annoy Journalists ...](https://lifestyle.allwomenstalk.com/situations-that-annoy-journalists/)
-- [am i unattractive](https://inspiration.allwomenstalk.com/unattractive-personality-traits-you-should-consider-losing/)
-- [how much alone time do introverts need](https://inspiration.allwomenstalk.com/things-you-should-never-say-to-introverts/)
-- [7 Hilariously Terrible Online Dating Photos Men Sh...](https://funny.allwomenstalk.com/hilariously-terrible-online-dating-photos-men-should-avoid/)
-- [put a foot in it](https://inspiration.allwomenstalk.com/things-to-do-when-you-put-your-foot-in-your-mouth/)
-- [three ways how travellers should be considerate to...](https://travel.allwomenstalk.com/things-you-should-never-do-on-public-transport/)
-- [first day at work funny](https://funny.allwomenstalk.com/worst-things-to-say-on-your-first-day-at-work/)
-- [little girls taboo](https://parenting.allwomenstalk.com/toys-you-should-not-buy-for-your-little-girl/)
 - [average price for tattoos](https://lifestyle.allwomenstalk.com/types-of-tattoos-to-avoid/)
+- [first day at work funny](https://funny.allwomenstalk.com/worst-things-to-say-on-your-first-day-at-work/)
+- [put a foot in it](https://inspiration.allwomenstalk.com/things-to-do-when-you-put-your-foot-in-your-mouth/)
+- [am i unattractive](https://inspiration.allwomenstalk.com/unattractive-personality-traits-you-should-consider-losing/)
+- [little girls taboo](https://parenting.allwomenstalk.com/toys-you-should-not-buy-for-your-little-girl/)
+- [how much alone time do introverts need](https://inspiration.allwomenstalk.com/things-you-should-never-say-to-introverts/)
+- [three ways how travellers should be considerate to...](https://travel.allwomenstalk.com/things-you-should-never-do-on-public-transport/)
+- [7 Situations That Annoy Journalists ...](https://lifestyle.allwomenstalk.com/situations-that-annoy-journalists/)
+- [7 Hilariously Terrible Online Dating Photos Men Sh...](https://funny.allwomenstalk.com/hilariously-terrible-online-dating-photos-men-should-avoid/)
+- [what to say to a cop](https://funny.allwomenstalk.com/hilariously-ridiculous-things-you-should-never-say-to-a-police-officer/)
 - [9 Things You Should Keep Secret ...](https://lifestyle.allwomenstalk.com/things-you-should-keep-secret/)
 - [10 Things You Should Never Admit to Anyone ...](https://allwomenstalk.com/10-things-you-should-never-admit-to-anyone/)
 

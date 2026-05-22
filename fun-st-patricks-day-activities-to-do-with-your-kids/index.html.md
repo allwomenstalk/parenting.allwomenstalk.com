@@ -3,7 +3,7 @@ title: "7 Fun St. Patricks Day Activities to do with Your Kids ..."
 description: "Make Cookies; Make a Leprechaun Trap; Stamp Paper; Rainbow Chain; Splatter Painting; More ..."
 url: "https://parenting.allwomenstalk.com/fun-st-patricks-day-activities-to-do-with-your-kids/"
 category: "parenting"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Fun St. Patricks Day Activities to do with Your Kids ...
@@ -42,14 +42,14 @@ How will you celebrate St. Patrick’s Day with your kids this year?
 
 ## Related Posts
 
-- [top 7 ways to make someone smile](https://inspiration.allwomenstalk.com/how-to-be-a-better-person-kind-ways-you-can-make-a-difference-to-someones-day/)
-- [how celebrate your birthday](https://lifestyle.allwomenstalk.com/ways-to-celebrate-your-birthday-2/)
-- [what to do on a rainy beach day](https://travel.allwomenstalk.com/this-is-the-ultimate-activity-guide-for-a-rainy-day-at-the-beach/)
 - [things we did as kids](https://inspiration.allwomenstalk.com/you-loved-to-do-these-things-as-a-child-its-time-to-do-them-again/)
-- [dress up days at disneyland](https://teen.allwomenstalk.com/disney-dress-up-days-you-need-to-attend-at-least-once/)
-- [pool game marco polo](https://funny.allwomenstalk.com/pass-on-marco-polo-even-better-games-to-play-in-the-pool-with-your-pals/)
 - [what to do when by yourself](https://lifestyle.allwomenstalk.com/heres-how-to-keep-yourself-entertained-when-at-the-beach-alone/)
+- [what to do on a rainy beach day](https://travel.allwomenstalk.com/this-is-the-ultimate-activity-guide-for-a-rainy-day-at-the-beach/)
+- [pool game marco polo](https://funny.allwomenstalk.com/pass-on-marco-polo-even-better-games-to-play-in-the-pool-with-your-pals/)
+- [dress up days at disneyland](https://teen.allwomenstalk.com/disney-dress-up-days-you-need-to-attend-at-least-once/)
+- [how celebrate your birthday](https://lifestyle.allwomenstalk.com/ways-to-celebrate-your-birthday-2/)
 - [funny youtube gamers](https://funny.allwomenstalk.com/youtube-inspired-party-games-to-play/)
+- [top 7 ways to make someone smile](https://inspiration.allwomenstalk.com/how-to-be-a-better-person-kind-ways-you-can-make-a-difference-to-someones-day/)
 - [fun crafts with friends](https://diy.allwomenstalk.com/awesome-4th-of-july-crafts-to-make-with-your-girlfriends/)
 - [hostess with mostess meaning](https://lifestyle.allwomenstalk.com/how-to-create-an-unforgettable-outdoor-party-and-be-the-hostess-with-the-mostess/)
 - [7 Fun Ways to Keep the Kids Entertained on a Holid...](https://parenting.allwomenstalk.com/fun-ways-to-keep-the-kids-entertained-on-a-holiday/)

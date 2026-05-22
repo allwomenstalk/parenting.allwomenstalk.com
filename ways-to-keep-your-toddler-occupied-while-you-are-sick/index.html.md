@@ -3,7 +3,7 @@ title: "9 Ways to Keep Your Toddler Occupied While You Are Sick ..."
 description: "Let Them Write a Letter; Have a Talent Show; Pretend Camping; Allow Extra TV Time; Use Technology; More ..."
 url: "https://parenting.allwomenstalk.com/ways-to-keep-your-toddler-occupied-while-you-are-sick/"
 category: "parenting"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 9 Ways to Keep Your Toddler Occupied While You Are Sick ...
@@ -50,16 +50,16 @@ So there ya have it. I hope that these ideas are helpful the next time you are i
 
 ## Related Posts
 
-- [how to get my daughter to like science](https://parenting.allwomenstalk.com/ways-to-get-children-interested-in-science/)
-- [making chores fun](https://parenting.allwomenstalk.com/ways-to-make-household-chores-fun-for-kids/)
 - [7 Easy Ways to Get Your Kids to Eat Anything ...](https://parenting.allwomenstalk.com/easy-ways-to-get-your-kids-to-eat-anything/)
 - [morals for children](https://parenting.allwomenstalk.com/morals-for-kids-that-are-absolutely-essential/)
-- [living with someone with ocpd](https://health.allwomenstalk.com/tips-for-family-of-someone-with-obsessive-compulsive-personality-disorder/)
 - [20 Tips for Discussing Race with Kids ...](https://parenting.allwomenstalk.com/tips-for-discussing-race-with-kids/)
 - [help kids have more friends](https://parenting.allwomenstalk.com/fun-ways-to-help-your-child-make-more-friends/)
 - [7 Vitally Important Steps to Keep Your Kids Safe i...](https://parenting.allwomenstalk.com/vitally-important-steps-to-keep-your-kids-safe-in-the-car/)
-- [how to study nicely with my family](https://parenting.allwomenstalk.com/essential-tips-for-studying-when-you-are-a-parent/)
+- [living with someone with ocpd](https://health.allwomenstalk.com/tips-for-family-of-someone-with-obsessive-compulsive-personality-disorder/)
+- [making chores fun](https://parenting.allwomenstalk.com/ways-to-make-household-chores-fun-for-kids/)
 - [how to get kids to listen](https://parenting.allwomenstalk.com/tips-on-how-to-get-your-kids-to-listen/)
+- [how to get my daughter to like science](https://parenting.allwomenstalk.com/ways-to-get-children-interested-in-science/)
+- [how to study nicely with my family](https://parenting.allwomenstalk.com/essential-tips-for-studying-when-you-are-a-parent/)
 - [7 Ways to Get Your Child to Sleep ...](https://parenting.allwomenstalk.com/7-ways-to-get-your-child-to-sleep/)
 - [7 Ways to Help a Sick Child Feel Better ...](https://parenting.allwomenstalk.com/7-ways-to-help-a-sick-child-feel-better/)
 

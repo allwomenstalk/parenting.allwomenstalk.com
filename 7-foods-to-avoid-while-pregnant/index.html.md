@@ -3,7 +3,7 @@ title: "7 Foods to Avoid While Pregnant ..."
 description: "Deli Meat; Raw Meats; Shellfish; Soft Cheeses; Unwashed Veggies; More ..."
 url: "https://parenting.allwomenstalk.com/7-foods-to-avoid-while-pregnant/"
 category: "parenting"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Foods to Avoid While Pregnant ...
@@ -44,16 +44,16 @@ Top Photo Credit: [michaelswiet](https://web.archive.org/web/https://www.flickr.
 
 ## Related Posts
 
-- [great finger foods for babies](https://parenting.allwomenstalk.com/best-finger-foods-for-your-baby/)
-- [things that go together like peanut butter and jel...](https://cooking.allwomenstalk.com/7-foods-that-you-didnt-realize-go-together/)
-- [7 Foods I Didnt Think Id like but do ...](https://cooking.allwomenstalk.com/7-foods-i-didnt-think-id-like-but-do/)
+- [12 Iconic Foods ...](https://cooking.allwomenstalk.com/12-iconic-foods/)
+- [9 Absolutely Mouthwatering Mood Foods to Drive Awa...](https://food.allwomenstalk.com/absolutely-mouthwatering-mood-foods-to-drive-away-those-blues/)
 - [do carbonated drinks affect breast milk](https://parenting.allwomenstalk.com/8-foods-to-avoid-while-breastfeeding/)
 - [Top 9 Health Foods of 2012 ...](https://diet.allwomenstalk.com/top-health-foods-of/)
-- [7 Quick but Nutritious Breakfast Ideas ...](https://diet.allwomenstalk.com/quick-but-nutritious-breakfast-ideas/)
-- [9 Absolutely Mouthwatering Mood Foods to Drive Awa...](https://food.allwomenstalk.com/absolutely-mouthwatering-mood-foods-to-drive-away-those-blues/)
-- [9 Foods Named after People ...](https://celebs.allwomenstalk.com/9-foods-named-after-people/)
 - [healthy fast food dinner choices](https://diet.allwomenstalk.com/healthy-fast-foods-to-opt-for/)
-- [12 Iconic Foods ...](https://cooking.allwomenstalk.com/12-iconic-foods/)
+- [9 Foods Named after People ...](https://celebs.allwomenstalk.com/9-foods-named-after-people/)
+- [7 Foods I Didnt Think Id like but do ...](https://cooking.allwomenstalk.com/7-foods-i-didnt-think-id-like-but-do/)
+- [great finger foods for babies](https://parenting.allwomenstalk.com/best-finger-foods-for-your-baby/)
+- [7 Quick but Nutritious Breakfast Ideas ...](https://diet.allwomenstalk.com/quick-but-nutritious-breakfast-ideas/)
+- [things that go together like peanut butter and jel...](https://cooking.allwomenstalk.com/7-foods-that-you-didnt-realize-go-together/)
 - [7 Tropical Illnesses We Should All Avoid ...](https://allwomenstalk.com/7-tropical-illnesses-we-should-all-avoid/)
 - [7 Foods to Avoid for a Good Nights Sleep ...](https://allwomenstalk.com/7-foods-to-avoid-for-a-good-nights-sleep/)
 

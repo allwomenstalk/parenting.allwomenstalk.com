@@ -3,7 +3,7 @@ title: "7 Great Chapter Books to Read with Your Children over the Summer ..."
 description: "Junie B. Jones; Little House on the Prairie; Charlotte’s Web; Stuart Little; Beezus and Ramona; More ..."
 url: "https://parenting.allwomenstalk.com/great-chapter-books-to-read-with-your-children-over-the-summer/"
 category: "parenting"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Great Chapter Books to Read with Your Children over the Summer ...
@@ -56,16 +56,16 @@ These are some chapter books that are wonderful summertime reads. What books hav
 
 ## Related Posts
 
-- [best books on ww1](https://books.allwomenstalk.com/most-excellent-novels-set-in-the-first-world-war/)
-- [eco friendly books](https://books.allwomenstalk.com/great-books-about-eco-friendly-living/)
-- [a classic tale](https://books.allwomenstalk.com/famous-classic-tales-and-the-lessons-they-teach-us/)
-- [best vegan books](https://books.allwomenstalk.com/best-vegan-books-to-help-you-out-on-your-journey/)
-- [mr mercedes amazon](https://books.allwomenstalk.com/bestselling-audio-books-on-amazon-to-check-out-soon/)
+- [most famous romance novelists](https://books.allwomenstalk.com/of-the-greatest-romance-writers/)
 - [jane austen movie adaptations](https://movies.allwomenstalk.com/best-adaptations-of-jane-austen-novels/)
 - [books to inspire creativity](https://books.allwomenstalk.com/books-about-creativity-to-inspire-you/)
-- [most famous romance novelists](https://books.allwomenstalk.com/of-the-greatest-romance-writers/)
+- [a classic tale](https://books.allwomenstalk.com/famous-classic-tales-and-the-lessons-they-teach-us/)
+- [eco friendly books](https://books.allwomenstalk.com/great-books-about-eco-friendly-living/)
 - [whats the longest book ever](https://books.allwomenstalk.com/longest-novels-you-will-ever-stumble-upon/)
+- [best vegan books](https://books.allwomenstalk.com/best-vegan-books-to-help-you-out-on-your-journey/)
 - [short story plot twist ideas](https://books.allwomenstalk.com/plot-twists-for-writers-to-keep-your-readers-interested/)
+- [best books on ww1](https://books.allwomenstalk.com/most-excellent-novels-set-in-the-first-world-war/)
+- [mr mercedes amazon](https://books.allwomenstalk.com/bestselling-audio-books-on-amazon-to-check-out-soon/)
 - [7 Ways to Entertain Your Kids This Summer ...](https://allwomenstalk.com/7-ways-to-entertain-your-kids-this-summer/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

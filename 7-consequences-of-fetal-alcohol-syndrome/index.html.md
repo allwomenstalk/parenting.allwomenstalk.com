@@ -3,7 +3,7 @@ title: "7 Consequences of Fetal Alcohol Syndrome ..."
 description: "Growth Retardation; Post Natal Vulnerability; Facial Features; Brain Development; Permanent Brain Damage; More ..."
 url: "https://parenting.allwomenstalk.com/7-consequences-of-fetal-alcohol-syndrome/"
 category: "parenting"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Consequences of Fetal Alcohol Syndrome ...
@@ -44,16 +44,16 @@ Top Photo Credit: [Kmale.](https://www.flickr.com/photos/kathleenmale/3072903172
 
 ## Related Posts
 
-- [7 Pertinent Laser Eye Surgery Points to Consider ....](https://health.allwomenstalk.com/pertinent-laser-eye-surgery-points-to-consider/)
-- [8 Myths about ADHD ...](https://parenting.allwomenstalk.com/8-myths-about-adhd/)
-- [7 Tips for Coping with Long-Term Health Conditions...](https://health.allwomenstalk.com/7-tips-for-coping-with-long-term-health-conditions/)
-- [5 Herbs to Take Caution with ...](https://gardening.allwomenstalk.com/5-herbs-to-take-caution-with/)
-- [7 Horrible Diseases ...](https://health.allwomenstalk.com/7-horrible-diseases/)
 - [most important womens vitamins](https://health.allwomenstalk.com/highly-important-vitamins-for-women/)
 - [7 Scariest Invasive Surgeries ...](https://health.allwomenstalk.com/7-scariest-invasive-surgeries/)
-- [10 Reasons to Get Regular Checkups ...](https://health.allwomenstalk.com/10-reasons-to-get-regular-checkups/)
-- [8 Things to Know about Antioxidants ...](https://health.allwomenstalk.com/8-things-to-know-about-antioxidants/)
+- [5 Herbs to Take Caution with ...](https://gardening.allwomenstalk.com/5-herbs-to-take-caution-with/)
 - [7 Prescription Drugs with Strange Side Effects ...](https://health.allwomenstalk.com/prescription-drugs-with-strange-side-effects/)
+- [7 Pertinent Laser Eye Surgery Points to Consider ....](https://health.allwomenstalk.com/pertinent-laser-eye-surgery-points-to-consider/)
+- [8 Myths about ADHD ...](https://parenting.allwomenstalk.com/8-myths-about-adhd/)
+- [7 Horrible Diseases ...](https://health.allwomenstalk.com/7-horrible-diseases/)
+- [7 Tips for Coping with Long-Term Health Conditions...](https://health.allwomenstalk.com/7-tips-for-coping-with-long-term-health-conditions/)
+- [8 Things to Know about Antioxidants ...](https://health.allwomenstalk.com/8-things-to-know-about-antioxidants/)
+- [10 Reasons to Get Regular Checkups ...](https://health.allwomenstalk.com/10-reasons-to-get-regular-checkups/)
 - [7 Most Popular Pregnancy Myths ...](https://parenting.allwomenstalk.com/7-most-popular-pregnancy-myths/)
 - [7 Weird Pregnancy Facts ...](https://parenting.allwomenstalk.com/7-weird-pregnancy-facts/)
 
