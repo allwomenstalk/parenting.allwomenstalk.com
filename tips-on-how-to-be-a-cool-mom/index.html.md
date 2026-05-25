@@ -42,16 +42,16 @@ Being a “cool mom” isn’t as complex as you might expect! It really all com
 
 ## Related Posts
 
-- [french parents](https://parenting.allwomenstalk.com/french-parenting-basics-that-will-make-your-life-easier/)
 - [how to teach child to share](https://parenting.allwomenstalk.com/ways-to-teach-your-child-to-share/)
-- [going through a faze](https://parenting.allwomenstalk.com/teenage-phases-your-daughter-may-go-through/)
-- [how do siblings show love](https://parenting.allwomenstalk.com/tips-on-how-to-raise-siblings-that-love-each-other/)
+- [french parents](https://parenting.allwomenstalk.com/french-parenting-basics-that-will-make-your-life-easier/)
 - [only child syndrome](https://parenting.allwomenstalk.com/ways-to-avoid-spoiling-your-only-child/)
+- [going through a faze](https://parenting.allwomenstalk.com/teenage-phases-your-daughter-may-go-through/)
 - [how to keep kids quiet](https://parenting.allwomenstalk.com/genius-ways-to-keep-your-kids-quiet-when-you-are-on-the-phone/)
-- [audio bedtime stories over 10 mins](https://books.allwomenstalk.com/stories-to-read-to-your-kids-within-10-minutes/)
-- [how to earn money quickly as a kid](https://parenting.allwomenstalk.com/ways-for-kids-to-make-money-when-theyre-bored/)
 - [how to become a young author](https://books.allwomenstalk.com/ways-to-encourage-a-young-writer/)
 - [why should kids eat healthy](https://parenting.allwomenstalk.com/reasons-to-get-your-kids-to-eat-healthy-at-an-early-age/)
+- [how to earn money quickly as a kid](https://parenting.allwomenstalk.com/ways-for-kids-to-make-money-when-theyre-bored/)
+- [audio bedtime stories over 10 mins](https://books.allwomenstalk.com/stories-to-read-to-your-kids-within-10-minutes/)
+- [how do siblings show love](https://parenting.allwomenstalk.com/tips-on-how-to-raise-siblings-that-love-each-other/)
 - [9 Tips for Real Teen Moms ...](https://parenting.allwomenstalk.com/9-tips-for-real-teen-moms/)
 - [7 Secrets of Motherhood ...](https://parenting.allwomenstalk.com/7-secrets-of-motherhood/)
 

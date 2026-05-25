@@ -48,16 +48,16 @@ Top Photo Credit: [data.whicdn.com](http://data.whicdn.com/images/8600274/tumblr
 
 ## Related Posts
 
-- [10 Newborn Essentials ...](https://parenting.allwomenstalk.com/newborn-essentials/)
-- [7 Ways to Cope with a Miscarriage ...](https://health.allwomenstalk.com/7-ways-to-cope-with-a-miscarriage/)
-- [new mom things to know](https://parenting.allwomenstalk.com/things-every-new-mom-should-know/)
-- [7 Simple Tips on Weaning Your Baby ...](https://parenting.allwomenstalk.com/7-simple-tips-on-weaning-your-baby/)
-- [craving coffee meaning](https://parenting.allwomenstalk.com/strangest-pregnancy-cravings/)
 - [mommy tips](https://parenting.allwomenstalk.com/7-great-tips-for-the-mommy-to-be/)
-- [what to pack for baby in hospital](https://parenting.allwomenstalk.com/essential-what-to-pack-for-the-hospital-when-having-a-baby/)
-- [7 Things New Moms May Not Know ...](https://parenting.allwomenstalk.com/7-things-new-moms-may-not-know/)
-- [7 Things to Remember in Your Diaper Bag ...](https://parenting.allwomenstalk.com/7-things-to-remember-in-your-diaper-bag/)
 - [9 Best Babyproofing Tips ...](https://parenting.allwomenstalk.com/best-babyproofing-tips/)
+- [7 Things to Remember in Your Diaper Bag ...](https://parenting.allwomenstalk.com/7-things-to-remember-in-your-diaper-bag/)
+- [7 Ways to Cope with a Miscarriage ...](https://health.allwomenstalk.com/7-ways-to-cope-with-a-miscarriage/)
+- [7 Things New Moms May Not Know ...](https://parenting.allwomenstalk.com/7-things-new-moms-may-not-know/)
+- [craving coffee meaning](https://parenting.allwomenstalk.com/strangest-pregnancy-cravings/)
+- [7 Simple Tips on Weaning Your Baby ...](https://parenting.allwomenstalk.com/7-simple-tips-on-weaning-your-baby/)
+- [new mom things to know](https://parenting.allwomenstalk.com/things-every-new-mom-should-know/)
+- [what to pack for baby in hospital](https://parenting.allwomenstalk.com/essential-what-to-pack-for-the-hospital-when-having-a-baby/)
+- [10 Newborn Essentials ...](https://parenting.allwomenstalk.com/newborn-essentials/)
 - [8 Tips to Get Back in Shape after a Pregnancy ...](https://weightloss.allwomenstalk.com/tips-to-get-back-in-shape-after-a-pregnancy/)
 - [8 Ways to Get a Hot Hollywood Body ...](https://weightloss.allwomenstalk.com/ways-to-get-a-hot-hollywood-body/)
 

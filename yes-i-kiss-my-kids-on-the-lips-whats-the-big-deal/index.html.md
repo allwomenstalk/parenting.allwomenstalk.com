@@ -43,15 +43,15 @@ It's totally okay if you don't agree with my parenting choices. As long as my ki
 ## Related Posts
 
 - [the kid latoi](https://parenting.allwomenstalk.com/how-to-support-a-kid-with-an-iep/)
-- [still cant sleep on christmas eve](https://parenting.allwomenstalk.com/tips-to-get-your-kids-to-go-to-sleep-on-christmas-eve/)
-- [children believe](https://parenting.allwomenstalk.com/should-children-believe-in-santa-claus/)
 - [kid cudio](https://lifestyle.allwomenstalk.com/how-to-throw-an-amazing-kids-party/)
 - [i can totally relate](https://parenting.allwomenstalk.com/things-parents-of-teens-can-totally-relate-to/)
+- [better communication with your child](https://parenting.allwomenstalk.com/ways-to-have-better-communication-with-your-child/)
+- [kids sharing room ideas](https://parenting.allwomenstalk.com/how-to-make-sharing-a-room-easier-for-kids/)
+- [children believe](https://parenting.allwomenstalk.com/should-children-believe-in-santa-claus/)
 - [you make my heart happy quotes](https://parenting.allwomenstalk.com/positive-affirmations-to-encourage-your-children-and-build-them-up/)
 - [potty training guide for parents](https://parenting.allwomenstalk.com/tips-for-potty-training/)
-- [kids sharing room ideas](https://parenting.allwomenstalk.com/how-to-make-sharing-a-room-easier-for-kids/)
-- [better communication with your child](https://parenting.allwomenstalk.com/ways-to-have-better-communication-with-your-child/)
 - [why first born are more intelligent](https://lifestyle.allwomenstalk.com/science-says-the-first-born-child-is-the-most-intelligent/)
+- [still cant sleep on christmas eve](https://parenting.allwomenstalk.com/tips-to-get-your-kids-to-go-to-sleep-on-christmas-eve/)
 - [When Was Your First Kiss](https://allwomenstalk.com/when-was-your-first-kiss/)
 - [The Times We All Love to Be Kissed ...](https://love.allwomenstalk.com/best-times-to-be-kissed-by-your-partner/)
 

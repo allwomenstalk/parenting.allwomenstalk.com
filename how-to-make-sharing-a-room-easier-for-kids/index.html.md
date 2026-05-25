@@ -40,16 +40,16 @@ Six months later, we’re still sleeping as decently as can be, for being the pa
 
 ## Related Posts
 
-- [children believe](https://parenting.allwomenstalk.com/should-children-believe-in-santa-claus/)
-- [taurus babies](https://parenting.allwomenstalk.com/parenting-tips-for-your-childs-zodiac-sign/)
-- [i can totally relate](https://parenting.allwomenstalk.com/things-parents-of-teens-can-totally-relate-to/)
-- [potty training guide for parents](https://parenting.allwomenstalk.com/tips-for-potty-training/)
-- [spanking alternatives](https://parenting.allwomenstalk.com/alternatives-to-spanking-to-discipline-your-child/)
 - [better communication with your child](https://parenting.allwomenstalk.com/ways-to-have-better-communication-with-your-child/)
+- [spanking alternatives](https://parenting.allwomenstalk.com/alternatives-to-spanking-to-discipline-your-child/)
 - [kid cudio](https://lifestyle.allwomenstalk.com/how-to-throw-an-amazing-kids-party/)
+- [children believe](https://parenting.allwomenstalk.com/should-children-believe-in-santa-claus/)
 - [still cant sleep on christmas eve](https://parenting.allwomenstalk.com/tips-to-get-your-kids-to-go-to-sleep-on-christmas-eve/)
-- [home training](https://parenting.allwomenstalk.com/the-importance-of-child-training/)
+- [potty training guide for parents](https://parenting.allwomenstalk.com/tips-for-potty-training/)
+- [i can totally relate](https://parenting.allwomenstalk.com/things-parents-of-teens-can-totally-relate-to/)
 - [the kid latoi](https://parenting.allwomenstalk.com/how-to-support-a-kid-with-an-iep/)
+- [taurus babies](https://parenting.allwomenstalk.com/parenting-tips-for-your-childs-zodiac-sign/)
+- [home training](https://parenting.allwomenstalk.com/the-importance-of-child-training/)
 - [7 Ways to Involve Your Kids with Everything ...](https://parenting.allwomenstalk.com/7-ways-to-involve-your-kids-with-everything/)
 - [7 Tips on Planning a Fun Sleepover for Your Kid .....](https://parenting.allwomenstalk.com/7-tips-on-planning-a-fun-sleepover-for-your-kid/)
 

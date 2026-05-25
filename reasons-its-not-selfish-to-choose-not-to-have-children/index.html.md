@@ -42,16 +42,16 @@ You shouldn't have to defend your choice to remain child-free, but these are som
 
 ## Related Posts
 
+- [stay persistent](https://inspiration.allwomenstalk.com/reasons-to-be-persistent-and-not-give-up/)
 - [childhood friends are the best](https://lifestyle.allwomenstalk.com/reasons-why-you-should-never-lose-your-childhood-best-friends/)
 - [no off day](https://inspiration.allwomenstalk.com/having-an-off-day-theres-probably-a-good-reason/)
-- [pros and cons of wearing your heart on your sleeve](https://love.allwomenstalk.com/why-a-woman-actually-shouldnt-wear-her-heart-on-her-sleeve/)
-- [causes of sadness](https://inspiration.allwomenstalk.com/feeling-sad-heres-whats-making-you-feel-that-way/)
 - [cant be explained](https://love.allwomenstalk.com/here-is-why-love-is-impossible-to-explain/)
 - [husband leaving for work](https://love.allwomenstalk.com/perks-of-having-a-husband-who-leaves-town-for-work/)
+- [friend stole my boyfriend](https://love.allwomenstalk.com/why-it-is-seriously-not-cool-to-steal-your-friends-boyfriend/)
+- [pros and cons of wearing your heart on your sleeve](https://love.allwomenstalk.com/why-a-woman-actually-shouldnt-wear-her-heart-on-her-sleeve/)
+- [causes of sadness](https://inspiration.allwomenstalk.com/feeling-sad-heres-whats-making-you-feel-that-way/)
 - [how to leave the past in the past](https://inspiration.allwomenstalk.com/reasons-the-past-should-stay-in-the-past/)
 - [does age matters in a relationship](https://love.allwomenstalk.com/reasons-an-age-gap-relationship-may-be-right-for-you/)
-- [friend stole my boyfriend](https://love.allwomenstalk.com/why-it-is-seriously-not-cool-to-steal-your-friends-boyfriend/)
-- [stay persistent](https://inspiration.allwomenstalk.com/reasons-to-be-persistent-and-not-give-up/)
 - [7 Reasons to Not Get Married ...](https://love.allwomenstalk.com/reasons-to-not-get-married/)
 - [7 Reasons to Not Be Married ...](https://allwomenstalk.com/7-reasons-to-not-be-married/)
 

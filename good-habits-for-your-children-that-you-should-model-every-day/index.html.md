@@ -42,16 +42,16 @@ What do you model for your kids? Do you think it changes the way they think and 
 
 ## Related Posts
 
-- [signs of poor parenting](https://parenting.allwomenstalk.com/sure-ways-to-spot-bad-parenting/)
-- [tween tumblr](https://parenting.allwomenstalk.com/ways-to-tell-that-your-child-has-entered-the-terrible-tweens/)
-- [dont fence me in dance moms](https://parenting.allwomenstalk.com/things-to-think-about-before-enrolling-your-daughter-in-ballet/)
-- [make difference in the world](https://teen.allwomenstalk.com/ways-teens-can-make-a-difference-in-the-world/)
 - [childhood myths told by parents](https://parenting.allwomenstalk.com/creepy-myths-that-might-be-scaring-your-kids/)
-- [how to love studying everyday](https://parenting.allwomenstalk.com/ways-to-help-your-kids-to-love-studying/)
 - [stay connected to family](https://lifestyle.allwomenstalk.com/ways-to-stay-connected-with-your-family/)
-- [homework meltdown](https://parenting.allwomenstalk.com/tips-to-get-through-homework-time-without-a-meltdown-from-you-or-your-kid/)
+- [signs of poor parenting](https://parenting.allwomenstalk.com/sure-ways-to-spot-bad-parenting/)
+- [how to love studying everyday](https://parenting.allwomenstalk.com/ways-to-help-your-kids-to-love-studying/)
 - [how to discipline a child with oppositional defian...](https://parenting.allwomenstalk.com/ways-to-manage-oppositional-defiant-disorder-in-children/)
 - [negotiate with parents](https://teen.allwomenstalk.com/helpful-tips-for-negotiating-with-your-parents/)
+- [homework meltdown](https://parenting.allwomenstalk.com/tips-to-get-through-homework-time-without-a-meltdown-from-you-or-your-kid/)
+- [dont fence me in dance moms](https://parenting.allwomenstalk.com/things-to-think-about-before-enrolling-your-daughter-in-ballet/)
+- [make difference in the world](https://teen.allwomenstalk.com/ways-teens-can-make-a-difference-in-the-world/)
+- [tween tumblr](https://parenting.allwomenstalk.com/ways-to-tell-that-your-child-has-entered-the-terrible-tweens/)
 - [Top 7 Things to Teach Your Children ...](https://parenting.allwomenstalk.com/top-7-things-to-teach-your-children/)
 - [7 Healthy Habits to Teach Your Children ...](https://parenting.allwomenstalk.com/7-healthy-habits-to-teach-your-children/)
 

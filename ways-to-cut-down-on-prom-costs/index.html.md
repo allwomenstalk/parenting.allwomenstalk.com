@@ -43,15 +43,15 @@ Proms are a nice way to mark the end of school, but the costs can easily get out
 ## Related Posts
 
 - [one frugal girl](https://money.allwomenstalk.com/reasons-why-you-shouldnt-apologize-for-being-frugal/)
-- [what is a refurbished computer](https://money.allwomenstalk.com/ways-to-save-money-when-buying-a-computer/)
-- [how to handle shopping addiction](https://money.allwomenstalk.com/the-best-things-you-can-do-to-beat-a-mild-shopping-addiction/)
 - [living on a small budget](https://money.allwomenstalk.com/amazing-ways-to-live-large-on-a-small-budget/)
 - [best cheap shoes](https://shoes.allwomenstalk.com/reasons-buying-cheap-shoes-is-a-false-economy/)
-- [girls night out accessories](https://lifestyle.allwomenstalk.com/inexpensive-but-fun-girls-night-out-ideas/)
-- [enjoy the culture](https://lifestyle.allwomenstalk.com/ways-to-enjoy-culture-cheaply/)
-- [how do you spend your allowance](https://money.allwomenstalk.com/worst-ways-to-spend-your-allowance/)
-- [how to stop going out to eat](https://food.allwomenstalk.com/best-tricks-and-ways-to-eat-out-for-cheap/)
 - [reasonable college budget](https://money.allwomenstalk.com/places-to-shop-on-a-college-budget/)
+- [how to handle shopping addiction](https://money.allwomenstalk.com/the-best-things-you-can-do-to-beat-a-mild-shopping-addiction/)
+- [enjoy the culture](https://lifestyle.allwomenstalk.com/ways-to-enjoy-culture-cheaply/)
+- [how to stop going out to eat](https://food.allwomenstalk.com/best-tricks-and-ways-to-eat-out-for-cheap/)
+- [what is a refurbished computer](https://money.allwomenstalk.com/ways-to-save-money-when-buying-a-computer/)
+- [how do you spend your allowance](https://money.allwomenstalk.com/worst-ways-to-spend-your-allowance/)
+- [girls night out accessories](https://lifestyle.allwomenstalk.com/inexpensive-but-fun-girls-night-out-ideas/)
 - [7 Wedding Tips That Could save You Tons of Money ....](https://wedding.allwomenstalk.com/wedding-tips-that-could-save-you-tons-of-money/)
 - [7 Ways to Cut the Cost of College ...](https://money.allwomenstalk.com/ways-to-cut-the-cost-of-college/)
 

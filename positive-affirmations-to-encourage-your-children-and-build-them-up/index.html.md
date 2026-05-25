@@ -90,16 +90,16 @@ Aren't these wonderful? Which of these affirmations do you and your littles like
 
 ## Related Posts
 
-- [better communication with your child](https://parenting.allwomenstalk.com/ways-to-have-better-communication-with-your-child/)
-- [the kid latoi](https://parenting.allwomenstalk.com/how-to-support-a-kid-with-an-iep/)
-- [taurus babies](https://parenting.allwomenstalk.com/parenting-tips-for-your-childs-zodiac-sign/)
 - [kids sharing room ideas](https://parenting.allwomenstalk.com/how-to-make-sharing-a-room-easier-for-kids/)
 - [potty training guide for parents](https://parenting.allwomenstalk.com/tips-for-potty-training/)
-- [children believe](https://parenting.allwomenstalk.com/should-children-believe-in-santa-claus/)
-- [still cant sleep on christmas eve](https://parenting.allwomenstalk.com/tips-to-get-your-kids-to-go-to-sleep-on-christmas-eve/)
 - [i can totally relate](https://parenting.allwomenstalk.com/things-parents-of-teens-can-totally-relate-to/)
-- [home training](https://parenting.allwomenstalk.com/the-importance-of-child-training/)
+- [better communication with your child](https://parenting.allwomenstalk.com/ways-to-have-better-communication-with-your-child/)
+- [children believe](https://parenting.allwomenstalk.com/should-children-believe-in-santa-claus/)
+- [taurus babies](https://parenting.allwomenstalk.com/parenting-tips-for-your-childs-zodiac-sign/)
+- [the kid latoi](https://parenting.allwomenstalk.com/how-to-support-a-kid-with-an-iep/)
 - [kid cudio](https://lifestyle.allwomenstalk.com/how-to-throw-an-amazing-kids-party/)
+- [home training](https://parenting.allwomenstalk.com/the-importance-of-child-training/)
+- [still cant sleep on christmas eve](https://parenting.allwomenstalk.com/tips-to-get-your-kids-to-go-to-sleep-on-christmas-eve/)
 - [Parenting: Active Listening Builds Self-Esteem](https://allwomenstalk.com/parenting-active-listening-builds-self-esteem/)
 - [27 Positive Self-Affirmations for 11 Aspects of Li...](https://allwomenstalk.com/27-positive-self-affirmations-for-11-aspects-of-life/)
 

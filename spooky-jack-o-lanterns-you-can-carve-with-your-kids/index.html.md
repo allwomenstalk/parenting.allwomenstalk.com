@@ -248,16 +248,16 @@ Do you carve pumpkins for Halloween? It's one of my favorite traditions with my 
 
 ## Related Posts
 
-- [halloween meals](https://food.allwomenstalk.com/delicious-halloween-food-ideas-for-your-celebration/)
-- [scarecrow activities](https://diy.allwomenstalk.com/cute-homemade-scarecrows-for-fall-this-year/)
-- [ttyuio](https://movies.allwomenstalk.com/spooky-movies-that-will-get-you-in-the-halloween-spirit/)
-- [couples costume with cat](https://funny.allwomenstalk.com/hilarious-cats-in-halloween-costumes/)
-- [cookie monster harry potter](https://funny.allwomenstalk.com/sesame-street-meets-harry-potter-in-new-halloween-parody-clip/)
-- [cookie monster no carve pumpkin](https://diy.allwomenstalk.com/no-carve-pumpkins-for-halloween/)
 - [creative halloween snacks](https://food.allwomenstalk.com/creative-halloween-party-snacks-to-create-this-week/)
 - [cute sugar skull makeup](https://makeup.allwomenstalk.com/hauntingly-beautiful-sugar-skull-makeup-found-on-pinterest/)
-- [halloween cooking quotes](https://inspiration.allwomenstalk.com/halloween-inspired-quotes-about-magic/)
 - [80s cartoon character costumes](https://fashion.allwomenstalk.com/fun-70s-and-80s-inspired-halloween-costumes/)
+- [cookie monster no carve pumpkin](https://diy.allwomenstalk.com/no-carve-pumpkins-for-halloween/)
+- [ttyuio](https://movies.allwomenstalk.com/spooky-movies-that-will-get-you-in-the-halloween-spirit/)
+- [cookie monster harry potter](https://funny.allwomenstalk.com/sesame-street-meets-harry-potter-in-new-halloween-parody-clip/)
+- [halloween meals](https://food.allwomenstalk.com/delicious-halloween-food-ideas-for-your-celebration/)
+- [couples costume with cat](https://funny.allwomenstalk.com/hilarious-cats-in-halloween-costumes/)
+- [halloween cooking quotes](https://inspiration.allwomenstalk.com/halloween-inspired-quotes-about-magic/)
+- [scarecrow activities](https://diy.allwomenstalk.com/cute-homemade-scarecrows-for-fall-this-year/)
 - [5 Spooky Pumpkin Designs ...](https://twilight.allwomenstalk.com/5-spooky-pumpkin-designs/)
 - [7 Halloween Crafts to do with Your Child ...](https://allwomenstalk.com/7-halloween-crafts-to-do-with-your-child/)
 

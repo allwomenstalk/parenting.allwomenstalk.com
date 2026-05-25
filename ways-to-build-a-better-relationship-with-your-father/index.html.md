@@ -60,16 +60,16 @@ This article was written in collaboration with editor Lisa Washington
 
 ## Related Posts
 
-- [how to deal with grandparents](https://parenting.allwomenstalk.com/ways-to-deal-with-pressure-from-would-be-grandparents/)
 - [questions about yourself to ask your friends](https://lifestyle.allwomenstalk.com/useful-questions-to-ask-yourself-when-evaluating-a-friendship/)
-- [how to spot a sociopath](https://health.allwomenstalk.com/ways-to-spot-a-sociopath/)
-- [when you walked in the room](https://inspiration.allwomenstalk.com/ways-to-get-attention-when-you-walk-into-a-room/)
-- [rebuilding my family](https://lifestyle.allwomenstalk.com/amazing-ways-to-rebuild-a-relationship-with-your-family/)
-- [girlfriend doesnt listen](https://love.allwomenstalk.com/tips-for-getting-through-to-a-partner-who-doesnt-listen/)
-- [treated like a doormat meme](https://lifestyle.allwomenstalk.com/tips-on-how-to-stop-being-a-doormat/)
 - [when a guy listens to your problems](https://love.allwomenstalk.com/ways-to-get-him-to-listen-instead-of-trying-to-fix-your-problems/)
 - [how to tell someone youre not comfortable doing so...](https://lifestyle.allwomenstalk.com/easy-ways-to-feel-comfortable-saying-no/)
+- [rebuilding my family](https://lifestyle.allwomenstalk.com/amazing-ways-to-rebuild-a-relationship-with-your-family/)
+- [when you walked in the room](https://inspiration.allwomenstalk.com/ways-to-get-attention-when-you-walk-into-a-room/)
+- [treated like a doormat meme](https://lifestyle.allwomenstalk.com/tips-on-how-to-stop-being-a-doormat/)
+- [how to spot a sociopath](https://health.allwomenstalk.com/ways-to-spot-a-sociopath/)
+- [girlfriend doesnt listen](https://love.allwomenstalk.com/tips-for-getting-through-to-a-partner-who-doesnt-listen/)
 - [staying friends with exs family](https://love.allwomenstalk.com/ways-to-stay-friends-with-your-exs-family/)
+- [how to deal with grandparents](https://parenting.allwomenstalk.com/ways-to-deal-with-pressure-from-would-be-grandparents/)
 - [How to Build a Stronger Relationship with Parents ...](https://allwomenstalk.com/how-to-build-a-stronger-relationship-with-parents-2/)
 - [How to Have a Better Relationship ...](https://allwomenstalk.com/how-to-have-a-better-relationship/)
 

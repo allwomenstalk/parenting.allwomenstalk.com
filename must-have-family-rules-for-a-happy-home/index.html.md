@@ -42,16 +42,16 @@ I think these are some great family rules, and I know there are plenty more. Do 
 
 ## Related Posts
 
-- [how to raise an athlete](https://parenting.allwomenstalk.com/tips-for-parents-to-raise-an-olympic-athlete/)
-- [how to fix mother daughter relationship](https://parenting.allwomenstalk.com/tips-to-improve-your-mother-daughter-relationship/)
-- [parenting mistakes teens](https://parenting.allwomenstalk.com/mistakes-to-avoid-when-parenting-teenagers/)
-- [what are the things to consider in dressing up the...](https://parenting.allwomenstalk.com/things-to-consider-before-buying-your-kids-clothes/)
-- [pet parenting tips](https://parenting.allwomenstalk.com/tips-for-introducing-your-pet-and-your-child/)
 - [mom confronts teacher and son](https://parenting.allwomenstalk.com/tips-for-confronting-your-childs-teacher/)
+- [parenting mistakes teens](https://parenting.allwomenstalk.com/mistakes-to-avoid-when-parenting-teenagers/)
 - [wisely kids](https://lifestyle.allwomenstalk.com/ways-to-help-kids-use-social-media-wisely/)
+- [how to fix mother daughter relationship](https://parenting.allwomenstalk.com/tips-to-improve-your-mother-daughter-relationship/)
+- [how to raise an athlete](https://parenting.allwomenstalk.com/tips-for-parents-to-raise-an-olympic-athlete/)
 - [my niece](https://lifestyle.allwomenstalk.com/ways-to-stay-close-to-your-nieces-and-nephews/)
-- [how to be happy when your child is not](https://parenting.allwomenstalk.com/ways-to-help-your-child-wake-up-happy/)
 - [teaching kids about the environment](https://parenting.allwomenstalk.com/ways-to-teach-your-kids-to-care-about-the-environment/)
+- [how to be happy when your child is not](https://parenting.allwomenstalk.com/ways-to-help-your-child-wake-up-happy/)
+- [pet parenting tips](https://parenting.allwomenstalk.com/tips-for-introducing-your-pet-and-your-child/)
+- [what are the things to consider in dressing up the...](https://parenting.allwomenstalk.com/things-to-consider-before-buying-your-kids-clothes/)
 - [7 Tips on Protecting Your Family ...](https://parenting.allwomenstalk.com/7-tips-on-protecting-your-family/)
 - [7 Daily Relationship Tips for Your Children ...](https://parenting.allwomenstalk.com/7-daily-relationship-tips-for-your-children/)
 

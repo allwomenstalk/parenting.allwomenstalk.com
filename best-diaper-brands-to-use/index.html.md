@@ -42,16 +42,16 @@ There are numerous products out there that can benefit our babies, but the choic
 
 ## Related Posts
 
-- [baby first pictures ideas](https://parenting.allwomenstalk.com/adorable-newborn-photo-ideas/)
-- [pregnancy complaints](https://parenting.allwomenstalk.com/common-complaints-of-pregnancy-and-how-you-can-combat-them/)
-- [helping out mommy](https://parenting.allwomenstalk.com/fabulous-ideas-for-helping-out-a-new-mom/)
-- [can pedicure induce labor](https://parenting.allwomenstalk.com/ways-to-relax-while-pregnant/)
+- [realize baby](https://parenting.allwomenstalk.com/things-you-dont-realize-until-you-have-a-baby/)
 - [7 friends drawing](https://lifestyle.allwomenstalk.com/ways-to-stay-connected-with-your-new-mom-friends/)
 - [flying while pregnant tips](https://parenting.allwomenstalk.com/tips-for-flying-while-pregnant/)
+- [can pedicure induce labor](https://parenting.allwomenstalk.com/ways-to-relax-while-pregnant/)
+- [pregnancy complaints](https://parenting.allwomenstalk.com/common-complaints-of-pregnancy-and-how-you-can-combat-them/)
+- [helping out mommy](https://parenting.allwomenstalk.com/fabulous-ideas-for-helping-out-a-new-mom/)
+- [how to clean newborn toys](https://parenting.allwomenstalk.com/things-to-sterilize-before-you-give-it-to-your-baby/)
 - [emotionally ready for a baby](https://parenting.allwomenstalk.com/ways-to-mentally-prepare-for-a-baby/)
 - [mom need a break](https://parenting.allwomenstalk.com/things-dads-can-do-to-give-mom-a-break/)
-- [how to clean newborn toys](https://parenting.allwomenstalk.com/things-to-sterilize-before-you-give-it-to-your-baby/)
-- [realize baby](https://parenting.allwomenstalk.com/things-you-dont-realize-until-you-have-a-baby/)
+- [baby first pictures ideas](https://parenting.allwomenstalk.com/adorable-newborn-photo-ideas/)
 - [7 Ways to Use a Panty Liner ...](https://health.allwomenstalk.com/ways-to-use-a-panty-liner/)
 - [7 Awesome Products for Your Dog ...](https://lifestyle.allwomenstalk.com/awesome-products-for-your-dog/)
 

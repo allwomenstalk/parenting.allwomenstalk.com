@@ -56,15 +56,15 @@ What do you like to make with Legos? The options are virtually limitless so use 
 
 ## Related Posts
 
-- [teaching children about charity](https://money.allwomenstalk.com/ways-to-teach-your-kids-about-charitable-donations/)
 - [treated like a](https://teen.allwomenstalk.com/ways-to-get-treated-like-a-responsible-adult-when-youre-young/)
-- [splitting up with a child](https://parenting.allwomenstalk.com/ways-to-make-a-break-up-easier-for-your-children/)
-- [winnie the pooh toddler](https://movies.allwomenstalk.com/reasons-why-your-child-should-watch-winnie-the-pooh/)
+- [teaching children about charity](https://money.allwomenstalk.com/ways-to-teach-your-kids-about-charitable-donations/)
 - [teach the children christmas](https://parenting.allwomenstalk.com/ways-to-teach-children-about-giving-to-others-at-christmas/)
-- [biology doesnt make you a parent](https://parenting.allwomenstalk.com/best-parenting-infographics/)
+- [winnie the pooh toddler](https://movies.allwomenstalk.com/reasons-why-your-child-should-watch-winnie-the-pooh/)
+- [splitting up with a child](https://parenting.allwomenstalk.com/ways-to-make-a-break-up-easier-for-your-children/)
+- [how to run peaceful with our family](https://inspiration.allwomenstalk.com/simple-ideas-to-keep-your-family-peaceful/)
 - [Discover How to Avoid Being an Embarrassing Parent...](https://parenting.allwomenstalk.com/ways-to-avoid-being-an-embarrassing-parent/)
 - [trying not to raise](https://parenting.allwomenstalk.com/tips-if-your-parents-are-telling-you-how-to-raise-your-kids/)
-- [how to run peaceful with our family](https://inspiration.allwomenstalk.com/simple-ideas-to-keep-your-family-peaceful/)
+- [biology doesnt make you a parent](https://parenting.allwomenstalk.com/best-parenting-infographics/)
 - [todler milestones](https://parenting.allwomenstalk.com/exciting-toddler-milestones-to-look-forward-to/)
 - [8 Fun Things to do with Your Kids ...](https://allwomenstalk.com/8-fun-things-to-do-with-your-kids/)
 - [7 Ridiculously Fun Ideas for Kids ...](https://allwomenstalk.com/7-ridiculously-fun-ideas-for-kids/)

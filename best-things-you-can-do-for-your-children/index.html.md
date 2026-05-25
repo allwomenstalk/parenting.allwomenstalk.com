@@ -46,16 +46,16 @@ Being a parent is the toughest job anyone could do, and many parents have doubts
 
 ## Related Posts
 
+- [kids help at home](https://parenting.allwomenstalk.com/things-kids-can-do-to-help-around-the-house/)
 - [good values for kids](https://parenting.allwomenstalk.com/moral-values-to-teach-your-children/)
-- [toddler cartoons list](https://parenting.allwomenstalk.com/cartoons-that-are-good-for-kids-to-watch/)
+- [tolerance kids](https://parenting.allwomenstalk.com/ways-to-teach-kids-tolerance/)
 - [things to teach your son](https://parenting.allwomenstalk.com/ways-to-teach-your-son-to-be-a-gentleman/)
+- [toddler cartoons list](https://parenting.allwomenstalk.com/cartoons-that-are-good-for-kids-to-watch/)
+- [only child facts](https://parenting.allwomenstalk.com/facts-about-only-children-parents-should-know/)
 - [how to be part of a community](https://lifestyle.allwomenstalk.com/ways-teens-can-help-the-community/)
 - [reasons why chores are bad](https://parenting.allwomenstalk.com/reasons-to-get-your-kids-to-do-chores/)
-- [kids help at home](https://parenting.allwomenstalk.com/things-kids-can-do-to-help-around-the-house/)
-- [things to do with kids when babysitting](https://lifestyle.allwomenstalk.com/things-to-do-with-kids-when-babysitting/)
-- [tolerance kids](https://parenting.allwomenstalk.com/ways-to-teach-kids-tolerance/)
-- [only child facts](https://parenting.allwomenstalk.com/facts-about-only-children-parents-should-know/)
 - [quiet kid stereotype](https://parenting.allwomenstalk.com/gender-based-stereotypes-imposed-on-kids/)
+- [things to do with kids when babysitting](https://lifestyle.allwomenstalk.com/things-to-do-with-kids-when-babysitting/)
 - [Top 7 Things to Teach Your Children ...](https://parenting.allwomenstalk.com/top-7-things-to-teach-your-children/)
 - [8 Ways to Motivate Your Child ...](https://parenting.allwomenstalk.com/8-ways-to-motivate-your-child/)
 

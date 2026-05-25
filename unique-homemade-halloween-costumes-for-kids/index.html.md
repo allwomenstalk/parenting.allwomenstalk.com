@@ -56,16 +56,16 @@ So, there you have it; some clever, easy and inexpensive Halloween costumes for 
 
 ## Related Posts
 
-- [pin the hat on the witch game](https://parenting.allwomenstalk.com/fun-filled-ideas-for-a-kids-halloween-party/)
-- [jatinga bird mystery solved](https://travel.allwomenstalk.com/really-scary-places-to-visit-on-halloween/)
-- [best horror tv shows to add to your creepy collect...](https://movies.allwomenstalk.com/spooky-television-shows-to-get-you-ready-for-halloween/)
-- [tim burton animated movies in order](https://movies.allwomenstalk.com/tim-burton-movies-to-get-you-in-the-halloween-spirit/)
-- [creepy food for halloween](https://food.allwomenstalk.com/creepy-snacks-to-serve-at-your-halloween-party/)
 - [healthy halloween treats to hand out](https://food.allwomenstalk.com/best-healthy-halloween-treats-for-kids-to-hand-out-this-year/)
-- [halloween scary things to do](https://lifestyle.allwomenstalk.com/awesome-ways-to-make-your-house-scary-for-halloween/)
-- [cute girl halloween costumes](https://fashion.allwomenstalk.com/halloween-looks-that-wed-love-to-wear-year-round/)
-- [should halloween be celebrated in schools](https://lifestyle.allwomenstalk.com/ways-to-celebrate-halloween-in-the-classroom/)
 - [hilarious costumes for adults](https://lifestyle.allwomenstalk.com/funny-halloween-costumes-for-adults-that-youve-got-to-try-this-year/)
+- [pin the hat on the witch game](https://parenting.allwomenstalk.com/fun-filled-ideas-for-a-kids-halloween-party/)
+- [should halloween be celebrated in schools](https://lifestyle.allwomenstalk.com/ways-to-celebrate-halloween-in-the-classroom/)
+- [creepy food for halloween](https://food.allwomenstalk.com/creepy-snacks-to-serve-at-your-halloween-party/)
+- [halloween scary things to do](https://lifestyle.allwomenstalk.com/awesome-ways-to-make-your-house-scary-for-halloween/)
+- [tim burton animated movies in order](https://movies.allwomenstalk.com/tim-burton-movies-to-get-you-in-the-halloween-spirit/)
+- [best horror tv shows to add to your creepy collect...](https://movies.allwomenstalk.com/spooky-television-shows-to-get-you-ready-for-halloween/)
+- [jatinga bird mystery solved](https://travel.allwomenstalk.com/really-scary-places-to-visit-on-halloween/)
+- [cute girl halloween costumes](https://fashion.allwomenstalk.com/halloween-looks-that-wed-love-to-wear-year-round/)
 - [8 Ideas on How to Celebrate Halloween ...](https://lifestyle.allwomenstalk.com/ideas-on-how-to-celebrate-halloween/)
 - [9 Great Halloween Decorations ...](https://allwomenstalk.com/9-great-halloween-decorations/)
 

@@ -46,16 +46,16 @@ If you have a teenager in your home, chores could take more responsibility for t
 
 ## Related Posts
 
-- [child wants to be vegetarian](https://parenting.allwomenstalk.com/ways-to-cope-with-a-vegetarian-child/)
-- [things to teach your son](https://parenting.allwomenstalk.com/ways-to-teach-your-son-to-be-a-gentleman/)
-- [send a ball](https://parenting.allwomenstalk.com/things-to-mail-to-kids/)
-- [artificial consequences definition](https://parenting.allwomenstalk.com/techniques-to-teach-your-child-to-behave-acceptably/)
-- [things to do with kids when babysitting](https://lifestyle.allwomenstalk.com/things-to-do-with-kids-when-babysitting/)
-- [moms favorite things](https://parenting.allwomenstalk.com/of-my-favorite-things-about-being-a-parent/)
 - [how involved](https://parenting.allwomenstalk.com/ways-to-be-involved-in-your-childs-life/)
-- [how to teach your child to swim yourself](https://parenting.allwomenstalk.com/tips-for-teaching-your-child-how-to-swim/)
-- [high energy games for kids](https://parenting.allwomenstalk.com/fun-activities-for-high-energy-kids-that-will-keep-them-healthy-and-calm/)
 - [quiet kid stereotype](https://parenting.allwomenstalk.com/gender-based-stereotypes-imposed-on-kids/)
+- [artificial consequences definition](https://parenting.allwomenstalk.com/techniques-to-teach-your-child-to-behave-acceptably/)
+- [child wants to be vegetarian](https://parenting.allwomenstalk.com/ways-to-cope-with-a-vegetarian-child/)
+- [things to do with kids when babysitting](https://lifestyle.allwomenstalk.com/things-to-do-with-kids-when-babysitting/)
+- [how to teach your child to swim yourself](https://parenting.allwomenstalk.com/tips-for-teaching-your-child-how-to-swim/)
+- [send a ball](https://parenting.allwomenstalk.com/things-to-mail-to-kids/)
+- [moms favorite things](https://parenting.allwomenstalk.com/of-my-favorite-things-about-being-a-parent/)
+- [things to teach your son](https://parenting.allwomenstalk.com/ways-to-teach-your-son-to-be-a-gentleman/)
+- [high energy games for kids](https://parenting.allwomenstalk.com/fun-activities-for-high-energy-kids-that-will-keep-them-healthy-and-calm/)
 - [7 Ways to Involve Your Kids with Everything ...](https://parenting.allwomenstalk.com/7-ways-to-involve-your-kids-with-everything/)
 - [7 Ways to Teach Kids Responsibility ...](https://parenting.allwomenstalk.com/7-ways-to-teach-kids-responsibility/)
 

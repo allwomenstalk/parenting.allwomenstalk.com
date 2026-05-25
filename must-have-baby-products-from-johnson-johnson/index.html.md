@@ -56,16 +56,16 @@ These are my personal favorite products by Johnson & Johnson. Although they may 
 
 ## Related Posts
 
-- [traps names](https://parenting.allwomenstalk.com/traps-to-watch-for-when-choosing-a-baby-name/)
-- [going to be an aunt](https://parenting.allwomenstalk.com/wonderful-aspects-of-being-an-aunt/)
-- [when does extrusion reflex go away](https://parenting.allwomenstalk.com/sure-fire-signs-your-baby-is-ready-for-solid-foods/)
-- [what to wear to wedding when pregnant](https://wedding.allwomenstalk.com/tips-for-choosing-a-wedding-dress-when-youre-pregnant/)
-- [preparing toddler for new baby](https://parenting.allwomenstalk.com/ways-to-prepare-your-toddler-for-a-new-baby/)
+- [essential nutrients for pregnancy](https://health.allwomenstalk.com/essential-nutrients-to-take-while-pregnant-interesting-facts-about-them/)
 - [mom friends](https://parenting.allwomenstalk.com/kinds-of-fellow-mom-friends-you-desperately-need-when-you-become-a-mom/)
 - [pros and cons of being a stay at home mom](https://parenting.allwomenstalk.com/misconceptions-about-being-a-stay-at-home-mom/)
+- [when does extrusion reflex go away](https://parenting.allwomenstalk.com/sure-fire-signs-your-baby-is-ready-for-solid-foods/)
+- [going to be an aunt](https://parenting.allwomenstalk.com/wonderful-aspects-of-being-an-aunt/)
+- [what to wear to wedding when pregnant](https://wedding.allwomenstalk.com/tips-for-choosing-a-wedding-dress-when-youre-pregnant/)
+- [traps names](https://parenting.allwomenstalk.com/traps-to-watch-for-when-choosing-a-baby-name/)
 - [are babies smarter than we think](https://parenting.allwomenstalk.com/awesome-reasons-why-babies-are-smarter-than-you-think/)
+- [preparing toddler for new baby](https://parenting.allwomenstalk.com/ways-to-prepare-your-toddler-for-a-new-baby/)
 - [get tasks done with a baby](https://parenting.allwomenstalk.com/tips-for-getting-housework-done-with-a-baby/)
-- [essential nutrients for pregnancy](https://health.allwomenstalk.com/essential-nutrients-to-take-while-pregnant-interesting-facts-about-them/)
 - [10 Newborn Essentials ...](https://parenting.allwomenstalk.com/newborn-essentials/)
 - [7 Awesome Products for Your Dog ...](https://lifestyle.allwomenstalk.com/awesome-products-for-your-dog/)
 

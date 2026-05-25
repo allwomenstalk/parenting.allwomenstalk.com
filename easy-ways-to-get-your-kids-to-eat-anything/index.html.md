@@ -42,16 +42,16 @@ My kids are pretty good eaters. I’ll never know if it’s because they like ev
 
 ## Related Posts
 
-- [help kids have more friends](https://parenting.allwomenstalk.com/fun-ways-to-help-your-child-make-more-friends/)
-- [20 Tips for Discussing Race with Kids ...](https://parenting.allwomenstalk.com/tips-for-discussing-race-with-kids/)
-- [7 Vitally Important Steps to Keep Your Kids Safe i...](https://parenting.allwomenstalk.com/vitally-important-steps-to-keep-your-kids-safe-in-the-car/)
 - [living with someone with ocpd](https://health.allwomenstalk.com/tips-for-family-of-someone-with-obsessive-compulsive-personality-disorder/)
-- [how to get kids to listen](https://parenting.allwomenstalk.com/tips-on-how-to-get-your-kids-to-listen/)
-- [morals for children](https://parenting.allwomenstalk.com/morals-for-kids-that-are-absolutely-essential/)
-- [making chores fun](https://parenting.allwomenstalk.com/ways-to-make-household-chores-fun-for-kids/)
-- [7 Ways to Help Your Little One Get Ready for the F...](https://parenting.allwomenstalk.com/ways-to-help-your-little-one-get-ready-for-the-first-day-of-preschool/)
 - [how to get my daughter to like science](https://parenting.allwomenstalk.com/ways-to-get-children-interested-in-science/)
+- [7 Ways to Help Your Little One Get Ready for the F...](https://parenting.allwomenstalk.com/ways-to-help-your-little-one-get-ready-for-the-first-day-of-preschool/)
+- [morals for children](https://parenting.allwomenstalk.com/morals-for-kids-that-are-absolutely-essential/)
+- [7 Vitally Important Steps to Keep Your Kids Safe i...](https://parenting.allwomenstalk.com/vitally-important-steps-to-keep-your-kids-safe-in-the-car/)
+- [20 Tips for Discussing Race with Kids ...](https://parenting.allwomenstalk.com/tips-for-discussing-race-with-kids/)
 - [tween activities](https://parenting.allwomenstalk.com/fun-things-to-do-with-your-tween-daughter-to-bond-with-them/)
+- [making chores fun](https://parenting.allwomenstalk.com/ways-to-make-household-chores-fun-for-kids/)
+- [how to get kids to listen](https://parenting.allwomenstalk.com/tips-on-how-to-get-your-kids-to-listen/)
+- [help kids have more friends](https://parenting.allwomenstalk.com/fun-ways-to-help-your-child-make-more-friends/)
 - [7 Tips to Get Your Kids Eating Healthy ...](https://parenting.allwomenstalk.com/7-tips-to-get-your-kids-eating-healthy/)
 - [8 Tips on Dealing with a Picky Eater ...](https://parenting.allwomenstalk.com/tips-on-dealing-with-a-picky-eater/)
 

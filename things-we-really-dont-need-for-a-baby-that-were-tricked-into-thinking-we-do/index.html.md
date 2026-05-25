@@ -42,15 +42,15 @@ Well ladies, these are the things that I don't think new parents actually need. 
 
 ## Related Posts
 
-- [funny pregnancy facts](https://parenting.allwomenstalk.com/funny-and-infuriating-facts-about-being-pregnant-that-no-one-tells-you-about/)
-- [scared to be a parent](https://parenting.allwomenstalk.com/ways-to-deal-with-fears-about-parenthood/)
-- [should i be a stay at home mom quiz](https://parenting.allwomenstalk.com/best-and-worst-things-about-being-a-stay-at-home-mom/)
-- [like to play](https://parenting.allwomenstalk.com/things-that-all-babies-love-to-play-with-that-arent-toys/)
-- [moms going back to college](https://lifestyle.allwomenstalk.com/tips-for-moms-going-back-to-school-after-a-break/)
-- [what is the weirdest pregnancy craving](https://parenting.allwomenstalk.com/strange-pregnancy-cravings-and-what-they-mean/)
-- [how to make life easier with a newborn](https://parenting.allwomenstalk.com/ways-to-make-life-easier-after-bringing-your-newborn-home/)
 - [dr seuss baby gifts](https://parenting.allwomenstalk.com/whimsical-ways-to-create-a-dr-seuss-baby-shower/)
+- [what is the weirdest pregnancy craving](https://parenting.allwomenstalk.com/strange-pregnancy-cravings-and-what-they-mean/)
+- [like to play](https://parenting.allwomenstalk.com/things-that-all-babies-love-to-play-with-that-arent-toys/)
+- [funny pregnancy facts](https://parenting.allwomenstalk.com/funny-and-infuriating-facts-about-being-pregnant-that-no-one-tells-you-about/)
+- [moms going back to college](https://lifestyle.allwomenstalk.com/tips-for-moms-going-back-to-school-after-a-break/)
 - [hospital labor and delivery bag](https://parenting.allwomenstalk.com/things-to-pack-for-childbirth-in-your-hospital-bag/)
+- [how to make life easier with a newborn](https://parenting.allwomenstalk.com/ways-to-make-life-easier-after-bringing-your-newborn-home/)
+- [should i be a stay at home mom quiz](https://parenting.allwomenstalk.com/best-and-worst-things-about-being-a-stay-at-home-mom/)
+- [scared to be a parent](https://parenting.allwomenstalk.com/ways-to-deal-with-fears-about-parenthood/)
 - [best things about a baby boy](https://parenting.allwomenstalk.com/good-and-bad-things-about-having-a-baby-boy/)
 - [7 Things New Moms May Not Know ...](https://parenting.allwomenstalk.com/7-things-new-moms-may-not-know/)
 - [7 Things to Consider before Adopting a Child ...](https://parenting.allwomenstalk.com/7-things-to-consider-before-adopting-a-child/)

@@ -44,16 +44,16 @@ Top Photo Credit: _marjanhols_
 
 ## Related Posts
 
-- [anole marriage](https://gardening.allwomenstalk.com/5-cool-facts-on-anoles/)
-- [midwife facts](https://parenting.allwomenstalk.com/facts-about-midwifery/)
-- [7 Facts about Cats ...](https://paranormal.allwomenstalk.com/7-facts-about-cats/)
 - [fun facts about pasta](https://food.allwomenstalk.com/absolutely-surprising-pasta-facts-you-might-not-know/)
-- [5 Paranormal Definitions You Should Know](https://paranormal.allwomenstalk.com/5-paranormal-definitions-you-should-know/)
-- [is salvia the same as sage](https://gardening.allwomenstalk.com/5-facts-on-salvia/)
-- [10 Interesting Fruit Facts to Know ...](https://diet.allwomenstalk.com/interesting-fruit-facts-to-know/)
+- [7 Facts about Cats ...](https://paranormal.allwomenstalk.com/7-facts-about-cats/)
+- [midwife facts](https://parenting.allwomenstalk.com/facts-about-midwifery/)
 - [adrienne frantz](https://celebs.allwomenstalk.com/7-facts-on-adrienne-frantz/)
-- [interesting facts about christmas trees](https://gardening.allwomenstalk.com/5-facts-on-the-christmas-tree/)
 - [blue tongue skink birth](https://gardening.allwomenstalk.com/5-cool-facts-on-the-blue-tongued-skink/)
+- [10 Interesting Fruit Facts to Know ...](https://diet.allwomenstalk.com/interesting-fruit-facts-to-know/)
+- [anole marriage](https://gardening.allwomenstalk.com/5-cool-facts-on-anoles/)
+- [is salvia the same as sage](https://gardening.allwomenstalk.com/5-facts-on-salvia/)
+- [5 Paranormal Definitions You Should Know](https://paranormal.allwomenstalk.com/5-paranormal-definitions-you-should-know/)
+- [interesting facts about christmas trees](https://gardening.allwomenstalk.com/5-facts-on-the-christmas-tree/)
 - [7 Most Popular Pregnancy Myths ...](https://parenting.allwomenstalk.com/7-most-popular-pregnancy-myths/)
 - [7 Pregnancy Facts You Should Know ...](https://parenting.allwomenstalk.com/pregnancy-facts-you-should-know/)
 

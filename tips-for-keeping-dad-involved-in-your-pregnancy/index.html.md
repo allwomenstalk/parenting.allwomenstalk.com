@@ -50,16 +50,16 @@ Each of these ways for keeping dad involved in your pregnancy can be essential t
 
 ## Related Posts
 
-- [7 Ways for New Moms to Work out ...](https://weightloss.allwomenstalk.com/ways-for-new-moms-to-work-out/)
-- [things to do in 2nd trimester](https://parenting.allwomenstalk.com/things-to-do-in-your-second-trimester/)
 - [cloth diaper tips](https://parenting.allwomenstalk.com/tips-for-cloth-diapering/)
+- [things to do in 2nd trimester](https://parenting.allwomenstalk.com/things-to-do-in-your-second-trimester/)
 - [7 Tips for Working out during Pregnancy ...](https://fitness.allwomenstalk.com/tips-for-working-out-during-pregnancy/)
-- [7 Reasons Pregnant Women Shouldnt Smoke ...](https://health.allwomenstalk.com/reasons-pregnant-women-shouldnt-smoke/)
-- [8 Things That Are Okay to do during Pregnancy ...](https://parenting.allwomenstalk.com/things-that-are-okay-to-do-during-pregnancy/)
-- [7 Tips to Getting Your Pre-Baby Body Back ...](https://weightloss.allwomenstalk.com/tips-to-getting-your-pre-baby-body-back/)
 - [9 Healthy Eating Tips for Pregnant Mommas ...](https://health.allwomenstalk.com/healthy-eating-tips-for-pregnant-mommas/)
-- [7 Lessons to Learn from Kim Kardashians Maternity ...](https://fashion.allwomenstalk.com/lessons-to-learn-from-kim-kardashians-maternity-style/)
+- [8 Things That Are Okay to do during Pregnancy ...](https://parenting.allwomenstalk.com/things-that-are-okay-to-do-during-pregnancy/)
+- [7 Reasons Pregnant Women Shouldnt Smoke ...](https://health.allwomenstalk.com/reasons-pregnant-women-shouldnt-smoke/)
+- [7 Tips to Getting Your Pre-Baby Body Back ...](https://weightloss.allwomenstalk.com/tips-to-getting-your-pre-baby-body-back/)
+- [7 Ways for New Moms to Work out ...](https://weightloss.allwomenstalk.com/ways-for-new-moms-to-work-out/)
 - [7 Places to Find Budget Maternity Clothes ...](https://money.allwomenstalk.com/places-to-find-budget-maternity-clothes/)
+- [7 Lessons to Learn from Kim Kardashians Maternity ...](https://fashion.allwomenstalk.com/lessons-to-learn-from-kim-kardashians-maternity-style/)
 - [8 Ways to Help New Parents ...](https://parenting.allwomenstalk.com/8-ways-to-help-new-parents/)
 - [7 Things Parents Should Know ...](https://parenting.allwomenstalk.com/7-things-parents-should-know/)
 

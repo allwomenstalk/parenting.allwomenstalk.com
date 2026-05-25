@@ -45,15 +45,15 @@ Top Photo Credit: [~ Julia Sysoeva ~](https://www.flickr.com/photos/julia_sysoev
 ## Related Posts
 
 - [craving coffee meaning](https://parenting.allwomenstalk.com/strangest-pregnancy-cravings/)
-- [what to pack for baby in hospital](https://parenting.allwomenstalk.com/essential-what-to-pack-for-the-hospital-when-having-a-baby/)
-- [7 Simple Tips on Weaning Your Baby ...](https://parenting.allwomenstalk.com/7-simple-tips-on-weaning-your-baby/)
-- [7 Things New Moms May Not Know ...](https://parenting.allwomenstalk.com/7-things-new-moms-may-not-know/)
 - [10 Newborn Essentials ...](https://parenting.allwomenstalk.com/newborn-essentials/)
-- [7 Things to Remember in Your Diaper Bag ...](https://parenting.allwomenstalk.com/7-things-to-remember-in-your-diaper-bag/)
-- [new mom things to know](https://parenting.allwomenstalk.com/things-every-new-mom-should-know/)
 - [9 Best Babyproofing Tips ...](https://parenting.allwomenstalk.com/best-babyproofing-tips/)
-- [8 Things to do before You Head to the Labor Room ....](https://health.allwomenstalk.com/8-things-to-do-before-you-head-to-the-labor-room/)
+- [new mom things to know](https://parenting.allwomenstalk.com/things-every-new-mom-should-know/)
 - [7 Ways to Cope with a Miscarriage ...](https://health.allwomenstalk.com/7-ways-to-cope-with-a-miscarriage/)
+- [7 Simple Tips on Weaning Your Baby ...](https://parenting.allwomenstalk.com/7-simple-tips-on-weaning-your-baby/)
+- [7 Things to Remember in Your Diaper Bag ...](https://parenting.allwomenstalk.com/7-things-to-remember-in-your-diaper-bag/)
+- [7 Things New Moms May Not Know ...](https://parenting.allwomenstalk.com/7-things-new-moms-may-not-know/)
+- [what to pack for baby in hospital](https://parenting.allwomenstalk.com/essential-what-to-pack-for-the-hospital-when-having-a-baby/)
+- [8 Things to do before You Head to the Labor Room ....](https://health.allwomenstalk.com/8-things-to-do-before-you-head-to-the-labor-room/)
 - [8 Great Tips for Stay-at-Home Moms ...](https://parenting.allwomenstalk.com/8-great-tips-for-stay-at-home-moms/)
 - [8 Great Books for Pregnant Moms ...](https://parenting.allwomenstalk.com/8-great-books-for-pregnant-moms/)
 

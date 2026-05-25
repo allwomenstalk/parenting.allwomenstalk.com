@@ -95,15 +95,15 @@ As you can see, repurposing old furniture is one of the popular materials for ma
 ## Related Posts
 
 - [home made watches](https://jewelry.allwomenstalk.com/gorgeous-diy-watches-to-make/)
-- [beach kimono pattern](https://lifestyle.allwomenstalk.com/easy-diy-beach-cover-ups-to-make/)
 - [st patricks day printables](https://lifestyle.allwomenstalk.com/awesome-and-free-st-patricks-day-printables/)
-- [roasting trivet](https://lifestyle.allwomenstalk.com/terrific-diy-trivets-to-make/)
-- [paper doilies diy](https://lifestyle.allwomenstalk.com/fun-paper-doily-diy-projects/)
 - [repurposing old socks](https://lifestyle.allwomenstalk.com/fun-ways-to-re-use-old-socks/)
+- [paper doilies diy](https://lifestyle.allwomenstalk.com/fun-paper-doily-diy-projects/)
 - [diy shell chandelier](https://lifestyle.allwomenstalk.com/insanely-cool-diy-chandeliers/)
 - [diy tech projects](https://travel.allwomenstalk.com/great-travel-diy-projects/)
+- [roasting trivet](https://lifestyle.allwomenstalk.com/terrific-diy-trivets-to-make/)
 - [wood pallet craft ideas](https://lifestyle.allwomenstalk.com/amazing-diy-pallet-projects/)
 - [bicycle diy projects](https://lifestyle.allwomenstalk.com/fun-bicycle-craft-projects/)
+- [beach kimono pattern](https://lifestyle.allwomenstalk.com/easy-diy-beach-cover-ups-to-make/)
 - [10 Creative DIY Cake Stands ...](https://cooking.allwomenstalk.com/creative-diy-cake-stands/)
 - [8 Superb DIY Spice Racks ...](https://lifestyle.allwomenstalk.com/superb-diy-spice-racks/)
 

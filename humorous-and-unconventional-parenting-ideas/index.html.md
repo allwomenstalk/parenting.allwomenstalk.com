@@ -44,16 +44,16 @@ Top Image Source: [pinkletoes.com](http://pinkletoes.com/blog/tag/austin-photogr
 
 ## Related Posts
 
-- [spanking 7](https://parenting.allwomenstalk.com/effective-discipline-techniques-to-use-instead-of-spanking/)
 - [why home is better than school](https://parenting.allwomenstalk.com/reasons-to-home-school-your-children/)
+- [spanking 7](https://parenting.allwomenstalk.com/effective-discipline-techniques-to-use-instead-of-spanking/)
+- [manners should be taught at home](https://parenting.allwomenstalk.com/important-manners-to-teach-your-children/)
+- [teaching kids to cook](https://parenting.allwomenstalk.com/ways-to-teach-your-kids-to-cook/)
+- [potty training busy toddler](https://parenting.allwomenstalk.com/effective-potty-training-methods-for-busy-parents/)
+- [how to act like a child](https://lifestyle.allwomenstalk.com/delightful-advantages-of-acting-like-a-child/)
 - [mixed kids girls](https://parenting.allwomenstalk.com/ways-to-train-your-children-for-the-future/)
 - [financial advice for kids](https://money.allwomenstalk.com/financial-tips-to-teach-your-kids/)
-- [how to act like a child](https://lifestyle.allwomenstalk.com/delightful-advantages-of-acting-like-a-child/)
-- [teaching kids to cook](https://parenting.allwomenstalk.com/ways-to-teach-your-kids-to-cook/)
-- [choosing a babysitter](https://parenting.allwomenstalk.com/tips-on-how-to-choose-a-babysitter/)
-- [potty training busy toddler](https://parenting.allwomenstalk.com/effective-potty-training-methods-for-busy-parents/)
 - [how to nurture a gifted child](https://parenting.allwomenstalk.com/tips-for-nurturing-gifted-children/)
-- [manners should be taught at home](https://parenting.allwomenstalk.com/important-manners-to-teach-your-children/)
+- [choosing a babysitter](https://parenting.allwomenstalk.com/tips-on-how-to-choose-a-babysitter/)
 - [7 Ways to Make Your Little One Smile ...](https://parenting.allwomenstalk.com/7-ways-to-make-your-little-one-smile/)
 - [7 Secrets of Motherhood ...](https://parenting.allwomenstalk.com/7-secrets-of-motherhood/)
 

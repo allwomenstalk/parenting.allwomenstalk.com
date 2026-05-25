@@ -54,15 +54,15 @@ I know first hand that it can be challenging and even embarrassing when your chi
 
 ## Related Posts
 
-- [kid pick clothes](https://parenting.allwomenstalk.com/reasons-to-let-your-kids-choose-their-own-clothes/)
-- [why do parents embarrass you in public](https://parenting.allwomenstalk.com/too-cute-ways-your-kids-will-embarrass-you-in-public/)
 - [how to stay safe during a shooting](https://parenting.allwomenstalk.com/tips-on-how-to-stay-safe-during-a-school-shooting-to-share-with-your-kids/)
-- [communication tips for teens](https://parenting.allwomenstalk.com/tips-on-improving-communication-with-your-teenager/)
-- [things to do with your son](https://parenting.allwomenstalk.com/things-to-do-for-your-son-that-he-will-never-forget/)
-- [nearest ballet classes](https://parenting.allwomenstalk.com/things-to-think-of-before-considering-ballet-classes-for-your-children/)
-- [disciplining a 6 year old](https://parenting.allwomenstalk.com/guidelines-for-disciplining-your-child-fairly/)
 - [jobs that kids can do](https://lifestyle.allwomenstalk.com/real-work-from-home-jobs-you-can-do-with-kids/)
+- [kid pick clothes](https://parenting.allwomenstalk.com/reasons-to-let-your-kids-choose-their-own-clothes/)
 - [childs party](https://parenting.allwomenstalk.com/ways-to-get-through-your-childs-birthday-party-with-your-sanity-intact/)
+- [why do parents embarrass you in public](https://parenting.allwomenstalk.com/too-cute-ways-your-kids-will-embarrass-you-in-public/)
+- [things to do with your son](https://parenting.allwomenstalk.com/things-to-do-for-your-son-that-he-will-never-forget/)
+- [disciplining a 6 year old](https://parenting.allwomenstalk.com/guidelines-for-disciplining-your-child-fairly/)
+- [nearest ballet classes](https://parenting.allwomenstalk.com/things-to-think-of-before-considering-ballet-classes-for-your-children/)
+- [communication tips for teens](https://parenting.allwomenstalk.com/tips-on-improving-communication-with-your-teenager/)
 - [things to teach](https://parenting.allwomenstalk.com/important-things-to-teach-your-teenage-son/)
 - [8 Tips on Resolving Fights between Your Children ....](https://parenting.allwomenstalk.com/8-tips-on-resolving-fights-between-your-children/)
 - [8 Ways to Help Your Child Deal with Bullies ...](https://parenting.allwomenstalk.com/ways-to-help-your-child-deal-with-bullies/)

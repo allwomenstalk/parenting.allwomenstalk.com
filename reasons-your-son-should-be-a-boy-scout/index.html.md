@@ -42,16 +42,16 @@ Did you realize that Boy Scouts was so awesome? My kids love it and I foresee ye
 
 ## Related Posts
 
-- [your boyfriend game shop](https://lifestyle.allwomenstalk.com/reasons-to-buy-a-ps4-for-your-boyfriend/)
-- [buying local art](https://lifestyle.allwomenstalk.com/reasons-to-buy-from-local-artists/)
-- [festival sober](https://music.allwomenstalk.com/reasons-to-stay-sober-at-music-festivals/)
-- [why do you deserve the best](https://inspiration.allwomenstalk.com/reasons-why-you-deserve-happiness/)
 - [bhutan customs](https://travel.allwomenstalk.com/reasons-to-visit-bhutan/)
-- [pax lodge volunteer](https://travel.allwomenstalk.com/reasons-to-travel-to-one-of-the-many-girl-scout-lodges-around-the-world/)
-- [why do people live in london](https://travel.allwomenstalk.com/reasons-you-should-live-in-london-at-least-once/)
-- [how can we make cities better places to live](https://lifestyle.allwomenstalk.com/exciting-reasons-to-live-in-a-city/)
 - [shower then shave or vice versa](https://health.allwomenstalk.com/reasons-to-shower-instead-of-bathe/)
+- [your boyfriend game shop](https://lifestyle.allwomenstalk.com/reasons-to-buy-a-ps4-for-your-boyfriend/)
+- [why do you deserve the best](https://inspiration.allwomenstalk.com/reasons-why-you-deserve-happiness/)
 - [working out while on vacation](https://fitness.allwomenstalk.com/reasons-to-workout-while-on-vacation/)
+- [why do people live in london](https://travel.allwomenstalk.com/reasons-you-should-live-in-london-at-least-once/)
+- [pax lodge volunteer](https://travel.allwomenstalk.com/reasons-to-travel-to-one-of-the-many-girl-scout-lodges-around-the-world/)
+- [festival sober](https://music.allwomenstalk.com/reasons-to-stay-sober-at-music-festivals/)
+- [buying local art](https://lifestyle.allwomenstalk.com/reasons-to-buy-from-local-artists/)
+- [how can we make cities better places to live](https://lifestyle.allwomenstalk.com/exciting-reasons-to-live-in-a-city/)
 - [7 Life Lessons to Teach Your Son ...](https://parenting.allwomenstalk.com/7-life-lessons-to-teach-your-son/)
 - [8 Reasons Kids Should Go to Summer Camp ...](https://allwomenstalk.com/8-reasons-kids-should-go-to-summer-camp/)
 

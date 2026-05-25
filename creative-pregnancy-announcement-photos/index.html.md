@@ -68,16 +68,16 @@ Do you have any other ideas for creative pregnancy announcement photos? How did 
 
 ## Related Posts
 
-- [who has the most followers in twitter](https://lifestyle.allwomenstalk.com/most-followed-accounts-on-twitter-that-youre-going-to-enjoy-following/)
-- [couple pose beach](https://love.allwomenstalk.com/adorable-couple-poses-for-perfect-pictures/)
-- [pinterest cons](https://lifestyle.allwomenstalk.com/pros-and-cons-of-being-a-pinterest-addict/)
-- [best photoshop ever](https://lifestyle.allwomenstalk.com/easy-photoshop-tricks-for-the-best-pictures-ever/)
-- [celebrity instagram accounts](https://celebs.allwomenstalk.com/celebrity-instagram-accounts-youd-love-to-follow/)
-- [killer selfies](https://lifestyle.allwomenstalk.com/fantastic-tips-on-taking-good-selfies-that-youll-be-proud-of/)
-- [kat von d best tattoos](https://lifestyle.allwomenstalk.com/incredible-tattoo-artists-to-consider-for-your-next-ink/)
 - [fun photography challenges](https://lifestyle.allwomenstalk.com/fun-photo-challenge-ideas-for-instagram/)
+- [who has the most followers in twitter](https://lifestyle.allwomenstalk.com/most-followed-accounts-on-twitter-that-youre-going-to-enjoy-following/)
+- [killer selfies](https://lifestyle.allwomenstalk.com/fantastic-tips-on-taking-good-selfies-that-youll-be-proud-of/)
+- [best photoshop ever](https://lifestyle.allwomenstalk.com/easy-photoshop-tricks-for-the-best-pictures-ever/)
 - [whom should i follow on instagram](https://celebs.allwomenstalk.com/incredible-people-you-should-follow-on-instagram/)
+- [kat von d best tattoos](https://lifestyle.allwomenstalk.com/incredible-tattoo-artists-to-consider-for-your-next-ink/)
+- [pinterest cons](https://lifestyle.allwomenstalk.com/pros-and-cons-of-being-a-pinterest-addict/)
 - [pinterest fails crafts](https://diy.allwomenstalk.com/popular-pinterest-tips-that-were-total-fails/)
+- [couple pose beach](https://love.allwomenstalk.com/adorable-couple-poses-for-perfect-pictures/)
+- [celebrity instagram accounts](https://celebs.allwomenstalk.com/celebrity-instagram-accounts-youd-love-to-follow/)
 - [8 Amazing Ideas for Wedding Invitations ...](https://wedding.allwomenstalk.com/8-amazing-ideas-for-wedding-invitations/)
 - [7 Cutest Mothers Day Presents ...](https://allwomenstalk.com/7-cutest-mothers-day-presents/)
 

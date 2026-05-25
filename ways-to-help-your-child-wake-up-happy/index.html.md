@@ -42,16 +42,16 @@ Mornings can be a happy time, not just something the rest of your day needs to o
 
 ## Related Posts
 
-- [how to love studying everyday](https://parenting.allwomenstalk.com/ways-to-help-your-kids-to-love-studying/)
-- [good habits model](https://parenting.allwomenstalk.com/good-habits-for-your-children-that-you-should-model-every-day/)
-- [my niece](https://lifestyle.allwomenstalk.com/ways-to-stay-close-to-your-nieces-and-nephews/)
-- [stay connected to family](https://lifestyle.allwomenstalk.com/ways-to-stay-connected-with-your-family/)
-- [what are the things to consider in dressing up the...](https://parenting.allwomenstalk.com/things-to-consider-before-buying-your-kids-clothes/)
-- [is a fish a good pet for a child](https://parenting.allwomenstalk.com/reasons-to-get-a-fish-tank-for-your-kids/)
-- [dont fence me in dance moms](https://parenting.allwomenstalk.com/things-to-think-about-before-enrolling-your-daughter-in-ballet/)
-- [parenting mistakes teens](https://parenting.allwomenstalk.com/mistakes-to-avoid-when-parenting-teenagers/)
 - [wisely kids](https://lifestyle.allwomenstalk.com/ways-to-help-kids-use-social-media-wisely/)
 - [signs of poor parenting](https://parenting.allwomenstalk.com/sure-ways-to-spot-bad-parenting/)
+- [how to love studying everyday](https://parenting.allwomenstalk.com/ways-to-help-your-kids-to-love-studying/)
+- [parenting mistakes teens](https://parenting.allwomenstalk.com/mistakes-to-avoid-when-parenting-teenagers/)
+- [good habits model](https://parenting.allwomenstalk.com/good-habits-for-your-children-that-you-should-model-every-day/)
+- [my niece](https://lifestyle.allwomenstalk.com/ways-to-stay-close-to-your-nieces-and-nephews/)
+- [dont fence me in dance moms](https://parenting.allwomenstalk.com/things-to-think-about-before-enrolling-your-daughter-in-ballet/)
+- [what are the things to consider in dressing up the...](https://parenting.allwomenstalk.com/things-to-consider-before-buying-your-kids-clothes/)
+- [stay connected to family](https://lifestyle.allwomenstalk.com/ways-to-stay-connected-with-your-family/)
+- [is a fish a good pet for a child](https://parenting.allwomenstalk.com/reasons-to-get-a-fish-tank-for-your-kids/)
 - [7 Ways to Get Your Child to Sleep ...](https://parenting.allwomenstalk.com/7-ways-to-get-your-child-to-sleep/)
 - [7 Ways to Calm an Unhappy Child ...](https://parenting.allwomenstalk.com/7-ways-to-calm-an-unhappy-child/)
 

@@ -42,16 +42,16 @@ Although there is a sad aspect to seeing your children grow up, there's also so 
 
 ## Related Posts
 
-- [shopping](https://parenting.allwomenstalk.com/of-the-best-tips-for-shopping-with-children/)
 - [woman with multiple baby fathers](https://parenting.allwomenstalk.com/reasons-not-to-be-ashamed-if-your-children-have-different-fathers/)
-- [why do we need to listen to our parents](https://teen.allwomenstalk.com/reasons-to-listen-to-your-parents/)
-- [why do i hate studying so much](https://parenting.allwomenstalk.com/ways-to-encourage-a-child-who-hates-studying/)
-- [weird name spellings](https://parenting.allwomenstalk.com/reasons-to-be-cautious-about-giving-your-child-an-unusual-name/)
+- [shopping](https://parenting.allwomenstalk.com/of-the-best-tips-for-shopping-with-children/)
 - [childhood stuff](https://lifestyle.allwomenstalk.com/childhood-mementos-you-should-keep/)
-- [potty training books](https://parenting.allwomenstalk.com/great-potty-training-books-your-child-will-enjoy/)
-- [how much should i charge my son for rent](https://parenting.allwomenstalk.com/tips-to-help-you-decide-how-much-rent-to-charge-your-kids/)
-- [7 identical twins](https://parenting.allwomenstalk.com/tips-for-encouraging-individuality-in-twins/)
+- [why do i hate studying so much](https://parenting.allwomenstalk.com/ways-to-encourage-a-child-who-hates-studying/)
 - [open house survey questions](https://parenting.allwomenstalk.com/questions-to-ask-your-childs-teacher-at-open-house/)
+- [potty training books](https://parenting.allwomenstalk.com/great-potty-training-books-your-child-will-enjoy/)
+- [why do we need to listen to our parents](https://teen.allwomenstalk.com/reasons-to-listen-to-your-parents/)
+- [7 identical twins](https://parenting.allwomenstalk.com/tips-for-encouraging-individuality-in-twins/)
+- [how much should i charge my son for rent](https://parenting.allwomenstalk.com/tips-to-help-you-decide-how-much-rent-to-charge-your-kids/)
+- [weird name spellings](https://parenting.allwomenstalk.com/reasons-to-be-cautious-about-giving-your-child-an-unusual-name/)
 - [7 Ways to Help Your Child through Your Divorce ...](https://parenting.allwomenstalk.com/7-ways-to-help-your-child-through-your-divorce/)
 - [7 Tips for Parents of Kids with Special Needs ...](https://parenting.allwomenstalk.com/7-tips-for-parents-of-kids-with-special-needs/)
 

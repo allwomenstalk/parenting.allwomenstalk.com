@@ -42,15 +42,15 @@ There are a lot of things that you do have to confront with a teenager but there
 
 ## Related Posts
 
+- [inland taipan antidote](https://lifestyle.allwomenstalk.com/venomous-snakes-you-need-to-avoid/)
+- [what things should friends never do](https://teen.allwomenstalk.com/things-you-should-never-do-as-a-friend/)
+- [what are you glad your parents dont know about you...](https://parenting.allwomenstalk.com/things-your-parents-dont-need-to-know-about-you/)
+- [potato and onion storage](https://food.allwomenstalk.com/produce-items-you-shouldnt-keep-in-the-fridge/)
 - [7 things you should never wear on a plane](https://fashion.allwomenstalk.com/things-not-to-wear-on-a-plane/)
 - [deadly creatures](https://travel.allwomenstalk.com/deadly-creatures-youre-going-to-want-to-avoid/)
-- [inland taipan antidote](https://lifestyle.allwomenstalk.com/venomous-snakes-you-need-to-avoid/)
-- [never pay retail for college](https://money.allwomenstalk.com/things-you-should-never-pay-full-price-for-2/)
-- [potato and onion storage](https://food.allwomenstalk.com/produce-items-you-shouldnt-keep-in-the-fridge/)
-- [what are you glad your parents dont know about you...](https://parenting.allwomenstalk.com/things-your-parents-dont-need-to-know-about-you/)
-- [what things should friends never do](https://teen.allwomenstalk.com/things-you-should-never-do-as-a-friend/)
-- [things to avoid in an essay](https://teen.allwomenstalk.com/things-to-avoid-when-writing-an-essay/)
 - [ruin a day](https://lifestyle.allwomenstalk.com/common-little-things-that-can-ruin-your-day/)
+- [never pay retail for college](https://money.allwomenstalk.com/things-you-should-never-pay-full-price-for-2/)
+- [things to avoid in an essay](https://teen.allwomenstalk.com/things-to-avoid-when-writing-an-essay/)
 - [worst text messages to receive](https://funny.allwomenstalk.com/worst-text-messages-you-never-want-to-receive/)
 - [7 Questions That Annoy Teenagers ...](https://fashion.allwomenstalk.com/7-questions-that-annoy-teenagers/)
 - [7 Things Your Kids Dont Need ...](https://allwomenstalk.com/7-things-your-kids-dont-need/)

@@ -42,16 +42,16 @@ Open house is very important to give you insight on how your child's school year
 
 ## Related Posts
 
-- [7 identical twins](https://parenting.allwomenstalk.com/tips-for-encouraging-individuality-in-twins/)
-- [why do i hate studying so much](https://parenting.allwomenstalk.com/ways-to-encourage-a-child-who-hates-studying/)
-- [how to start a babysitting service](https://money.allwomenstalk.com/simple-ways-to-start-your-own-babysitting-business/)
-- [spend time with grandparents quotes](https://parenting.allwomenstalk.com/reasons-your-kids-should-spend-time-with-their-grandparents/)
-- [spanking at work](https://parenting.allwomenstalk.com/alternatives-to-spanking-that-work/)
 - [woman with multiple baby fathers](https://parenting.allwomenstalk.com/reasons-not-to-be-ashamed-if-your-children-have-different-fathers/)
-- [teenage attitudes](https://parenting.allwomenstalk.com/creative-and-successful-ways-of-dealing-with-teenage-attitude/)
-- [my kids are lazy](https://parenting.allwomenstalk.com/ways-to-deal-when-your-child-is-lazy/)
 - [weird name spellings](https://parenting.allwomenstalk.com/reasons-to-be-cautious-about-giving-your-child-an-unusual-name/)
+- [teenage attitudes](https://parenting.allwomenstalk.com/creative-and-successful-ways-of-dealing-with-teenage-attitude/)
 - [plane carseat](https://travel.allwomenstalk.com/important-reasons-to-take-your-childs-car-seat-on-a-plane/)
+- [spend time with grandparents quotes](https://parenting.allwomenstalk.com/reasons-your-kids-should-spend-time-with-their-grandparents/)
+- [7 identical twins](https://parenting.allwomenstalk.com/tips-for-encouraging-individuality-in-twins/)
+- [my kids are lazy](https://parenting.allwomenstalk.com/ways-to-deal-when-your-child-is-lazy/)
+- [how to start a babysitting service](https://money.allwomenstalk.com/simple-ways-to-start-your-own-babysitting-business/)
+- [spanking at work](https://parenting.allwomenstalk.com/alternatives-to-spanking-that-work/)
+- [why do i hate studying so much](https://parenting.allwomenstalk.com/ways-to-encourage-a-child-who-hates-studying/)
 - [Top 7 Things to Teach Your Children ...](https://parenting.allwomenstalk.com/top-7-things-to-teach-your-children/)
 - [7 Tips to Improve Your Kids Grades ...](https://parenting.allwomenstalk.com/tips-to-improve-your-kids-grades/)
 

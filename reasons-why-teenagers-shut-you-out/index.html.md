@@ -43,15 +43,15 @@ It is hard to understand when our teenagers shut us out. What do you think? Are 
 ## Related Posts
 
 - [special occasion fashion](https://fashion.allwomenstalk.com/reasons-not-to-save-items-for-special-occasions/)
-- [unattainable  vacation with mom](https://parenting.allwomenstalk.com/reasons-to-drop-the-fantasy-of-being-a-perfect-mom/)
-- [i can change him](https://love.allwomenstalk.com/reasons-why-you-shouldnt-try-to-change-him/)
-- [paris riche stylo eye eternal sunshine](https://beauty.allwomenstalk.com/reasons-not-to-wish-you-were-beautiful/)
-- [i dont like being single](https://love.allwomenstalk.com/things-that-make-you-hate-being-single/)
-- [my travel buddies](https://travel.allwomenstalk.com/reasons-why-some-friends-just-arent-good-travel-buddies/)
 - [reasons people fall out of love](https://love.allwomenstalk.com/unfortunate-reason-why-people-fall-out-of-love/)
-- [why do i always fall for the wrong guy](https://love.allwomenstalk.com/reasons-you-always-fall-for-the-wrong-guy/)
-- [how to ask a guy to prom](https://teen.allwomenstalk.com/reasons-to-say-yes-when-he-asks-you-to-prom/)
 - [reasons for crying](https://lifestyle.allwomenstalk.com/reasons-why-people-cry/)
+- [paris riche stylo eye eternal sunshine](https://beauty.allwomenstalk.com/reasons-not-to-wish-you-were-beautiful/)
+- [why do i always fall for the wrong guy](https://love.allwomenstalk.com/reasons-you-always-fall-for-the-wrong-guy/)
+- [my travel buddies](https://travel.allwomenstalk.com/reasons-why-some-friends-just-arent-good-travel-buddies/)
+- [i dont like being single](https://love.allwomenstalk.com/things-that-make-you-hate-being-single/)
+- [i can change him](https://love.allwomenstalk.com/reasons-why-you-shouldnt-try-to-change-him/)
+- [how to ask a guy to prom](https://teen.allwomenstalk.com/reasons-to-say-yes-when-he-asks-you-to-prom/)
+- [unattainable  vacation with mom](https://parenting.allwomenstalk.com/reasons-to-drop-the-fantasy-of-being-a-perfect-mom/)
 - [7 Reasons Never to Lie to Your Teen ...](https://parenting.allwomenstalk.com/7-reasons-never-to-lie-to-your-teen/)
 - [7 Reasons Children do Not Want to Go to School ...](https://parenting.allwomenstalk.com/7-reasons-children-do-not-want-to-go-to-school/)
 

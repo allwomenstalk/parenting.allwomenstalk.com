@@ -50,16 +50,16 @@ Dads don’t always have an easy job, and I certainly don’t want to detract fr
 
 ## Related Posts
 
+- [scared to be a parent](https://parenting.allwomenstalk.com/ways-to-deal-with-fears-about-parenthood/)
+- [helping out mommy](https://parenting.allwomenstalk.com/fabulous-ideas-for-helping-out-a-new-mom/)
 - [baby first pictures ideas](https://parenting.allwomenstalk.com/adorable-newborn-photo-ideas/)
-- [funny pregnancy facts](https://parenting.allwomenstalk.com/funny-and-infuriating-facts-about-being-pregnant-that-no-one-tells-you-about/)
 - [should i be a stay at home mom quiz](https://parenting.allwomenstalk.com/best-and-worst-things-about-being-a-stay-at-home-mom/)
+- [funny pregnancy facts](https://parenting.allwomenstalk.com/funny-and-infuriating-facts-about-being-pregnant-that-no-one-tells-you-about/)
 - [realize baby](https://parenting.allwomenstalk.com/things-you-dont-realize-until-you-have-a-baby/)
-- [tricked into having a baby](https://parenting.allwomenstalk.com/things-we-really-dont-need-for-a-baby-that-were-tricked-into-thinking-we-do/)
 - [like to play](https://parenting.allwomenstalk.com/things-that-all-babies-love-to-play-with-that-arent-toys/)
 - [pregnancy complaints](https://parenting.allwomenstalk.com/common-complaints-of-pregnancy-and-how-you-can-combat-them/)
-- [scared to be a parent](https://parenting.allwomenstalk.com/ways-to-deal-with-fears-about-parenthood/)
 - [tips for baby registry](https://parenting.allwomenstalk.com/tips-for-getting-the-most-out-of-your-baby-registery/)
-- [helping out mommy](https://parenting.allwomenstalk.com/fabulous-ideas-for-helping-out-a-new-mom/)
+- [tricked into having a baby](https://parenting.allwomenstalk.com/things-we-really-dont-need-for-a-baby-that-were-tricked-into-thinking-we-do/)
 - [8 Ways to Make More Time for Your Kids ...](https://parenting.allwomenstalk.com/8-ways-to-make-more-time-for-your-kids/)
 - [10 Tips for Being a Better Parent ...](https://allwomenstalk.com/10-tips-for-being-a-better-parent/)
 

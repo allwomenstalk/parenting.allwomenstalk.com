@@ -42,16 +42,16 @@ Life is not a bed of roses and that holds true in having twins. In fact, I shoul
 
 ## Related Posts
 
-- [good things about netflix](https://movies.allwomenstalk.com/reasons-you-should-sign-up-for-netflix-today/)
-- [perks of night shift](https://lifestyle.allwomenstalk.com/pros-of-working-night-shifts/)
 - [learning an instrument benefits](https://lifestyle.allwomenstalk.com/wonderful-benefits-of-playing-a-musical-instrument/)
-- [benefits of playing the drums](https://music.allwomenstalk.com/reasons-you-should-take-up-the-drums/)
+- [why should i write a book](https://books.allwomenstalk.com/reasons-why-you-should-start-writing-a-book/)
 - [independent thought](https://inspiration.allwomenstalk.com/reasons-to-be-an-independent-thinker/)
 - [reasons to call a girl](https://love.allwomenstalk.com/great-reasons-to-call-him-first/)
-- [why should i write a book](https://books.allwomenstalk.com/reasons-why-you-should-start-writing-a-book/)
-- [why i wear black](https://fashion.allwomenstalk.com/worthwhile-reasons-to-wear-black/)
 - [benefits of doing what you love](https://money.allwomenstalk.com/reasons-to-do-what-you-love-for-a-living/)
+- [perks of night shift](https://lifestyle.allwomenstalk.com/pros-of-working-night-shifts/)
+- [good things about netflix](https://movies.allwomenstalk.com/reasons-you-should-sign-up-for-netflix-today/)
+- [benefits of playing the drums](https://music.allwomenstalk.com/reasons-you-should-take-up-the-drums/)
 - [pros and cons of dating an athlete](https://fitness.allwomenstalk.com/awesome-reasons-to-date-an-athlete/)
+- [why i wear black](https://fashion.allwomenstalk.com/worthwhile-reasons-to-wear-black/)
 - [8 Reasons Why I Love Being a Mom ...](https://parenting.allwomenstalk.com/8-reasons-why-i-love-being-a-mom/)
 - [7 Advantages of Having Twins ...](https://parenting.allwomenstalk.com/7-advantages-of-having-twins/)
 

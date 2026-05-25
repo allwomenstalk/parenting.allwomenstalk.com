@@ -42,16 +42,16 @@ Like you, I am still a mother in the teenage trenches and still learning. What h
 
 ## Related Posts
 
-- [jobs that kids can do](https://lifestyle.allwomenstalk.com/real-work-from-home-jobs-you-can-do-with-kids/)
-- [how to stay safe during a shooting](https://parenting.allwomenstalk.com/tips-on-how-to-stay-safe-during-a-school-shooting-to-share-with-your-kids/)
-- [seasonal holidays meaning](https://parenting.allwomenstalk.com/ways-your-kids-can-appreciate-the-true-meaning-of-the-holiday-season/)
-- [why do parents embarrass you in public](https://parenting.allwomenstalk.com/too-cute-ways-your-kids-will-embarrass-you-in-public/)
-- [nearest ballet classes](https://parenting.allwomenstalk.com/things-to-think-of-before-considering-ballet-classes-for-your-children/)
-- [kid pick clothes](https://parenting.allwomenstalk.com/reasons-to-let-your-kids-choose-their-own-clothes/)
-- [disciplining a 6 year old](https://parenting.allwomenstalk.com/guidelines-for-disciplining-your-child-fairly/)
-- [childs party](https://parenting.allwomenstalk.com/ways-to-get-through-your-childs-birthday-party-with-your-sanity-intact/)
-- [things to do with your son](https://parenting.allwomenstalk.com/things-to-do-for-your-son-that-he-will-never-forget/)
 - [communication tips for teens](https://parenting.allwomenstalk.com/tips-on-improving-communication-with-your-teenager/)
+- [jobs that kids can do](https://lifestyle.allwomenstalk.com/real-work-from-home-jobs-you-can-do-with-kids/)
+- [kid pick clothes](https://parenting.allwomenstalk.com/reasons-to-let-your-kids-choose-their-own-clothes/)
+- [things to do with your son](https://parenting.allwomenstalk.com/things-to-do-for-your-son-that-he-will-never-forget/)
+- [how to stay safe during a shooting](https://parenting.allwomenstalk.com/tips-on-how-to-stay-safe-during-a-school-shooting-to-share-with-your-kids/)
+- [why do parents embarrass you in public](https://parenting.allwomenstalk.com/too-cute-ways-your-kids-will-embarrass-you-in-public/)
+- [childs party](https://parenting.allwomenstalk.com/ways-to-get-through-your-childs-birthday-party-with-your-sanity-intact/)
+- [disciplining a 6 year old](https://parenting.allwomenstalk.com/guidelines-for-disciplining-your-child-fairly/)
+- [nearest ballet classes](https://parenting.allwomenstalk.com/things-to-think-of-before-considering-ballet-classes-for-your-children/)
+- [seasonal holidays meaning](https://parenting.allwomenstalk.com/ways-your-kids-can-appreciate-the-true-meaning-of-the-holiday-season/)
 - [7 Tips on Raising Teenage Boys ...](https://allwomenstalk.com/7-tips-on-raising-teenage-boys/)
 - [7 Tips on Keeping Your Teen Safe ...](https://allwomenstalk.com/7-tips-on-keeping-your-teen-safe/)
 

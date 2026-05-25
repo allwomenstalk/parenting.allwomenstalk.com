@@ -42,16 +42,16 @@ None of the ways to deal with mean girls are guaranteed or perfect solutions. Yo
 
 ## Related Posts
 
-- [the worlds most beautiful twins now](https://parenting.allwomenstalk.com/tips-to-avoid-jealousy-among-twins/)
-- [how to avoid pda](https://love.allwomenstalk.com/ways-to-engage-in-pda-without-annoying-those-around-you/)
-- [how to deal with bullying boss](https://money.allwomenstalk.com/ways-to-deal-with-a-bullying-boss/)
-- [how to deal with noisy neighbors](https://lifestyle.allwomenstalk.com/steps-for-dealing-with-a-noisy-neighbor/)
-- [introvert friends](https://lifestyle.allwomenstalk.com/ways-to-deal-with-an-introvert-friend/)
 - [how to heal from a toxic friendship](https://teen.allwomenstalk.com/tips-for-ending-a-friendship-smoothly/)
+- [how to deal with noisy neighbors](https://lifestyle.allwomenstalk.com/steps-for-dealing-with-a-noisy-neighbor/)
+- [how to avoid pda](https://love.allwomenstalk.com/ways-to-engage-in-pda-without-annoying-those-around-you/)
+- [the worlds most beautiful twins now](https://parenting.allwomenstalk.com/tips-to-avoid-jealousy-among-twins/)
+- [introvert friends](https://lifestyle.allwomenstalk.com/ways-to-deal-with-an-introvert-friend/)
 - [stop being judgemental quotes](https://inspiration.allwomenstalk.com/ways-to-stop-being-judgmental-of-others/)
-- [how to deal with self absorbed people](https://inspiration.allwomenstalk.com/steps-to-dealing-with-a-self-absorbed-person/)
-- [my best friend too](https://lifestyle.allwomenstalk.com/things-to-do-when-your-best-friend-is-too-busy-for-you/)
 - [song for sister birthday](https://lifestyle.allwomenstalk.com/things-you-can-do-to-have-a-closer-relationship-with-your-sister/)
+- [my best friend too](https://lifestyle.allwomenstalk.com/things-to-do-when-your-best-friend-is-too-busy-for-you/)
+- [how to deal with bullying boss](https://money.allwomenstalk.com/ways-to-deal-with-a-bullying-boss/)
+- [how to deal with self absorbed people](https://inspiration.allwomenstalk.com/steps-to-dealing-with-a-self-absorbed-person/)
 - [8 Ways to Help Your Child Deal with Bullies ...](https://parenting.allwomenstalk.com/ways-to-help-your-child-deal-with-bullies/)
 - [7 Ways to Deal with a Difficult Daughter-in-Law .....](https://lifestyle.allwomenstalk.com/ways-to-deal-with-a-difficult-daughter-in-law/)
 

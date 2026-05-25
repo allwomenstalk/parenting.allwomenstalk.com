@@ -138,16 +138,16 @@ Which one do you plan to make with the kids you love? What other ideas can you s
 
 ## Related Posts
 
-- [simple to make christmas cards](https://diy.allwomenstalk.com/simple-diy-christmas-cards-that-are-cheap-and-personal/)
-- [widlflower cases](https://diy.allwomenstalk.com/fun-diys-to-bring-color-to-your-life/)
-- [marni grinch sweater](https://diy.allwomenstalk.com/diy-your-own-chic-holiday-sweater/)
-- [adult rosie the riveter halloween costume](https://diy.allwomenstalk.com/cute-halloween-costumes-that-are-easy-to-put-together/)
-- [crafty christmas ornaments](https://diy.allwomenstalk.com/diy-christmas-ornaments-for-the-crafty-girl/)
 - [easter centerpieces diy](https://diy.allwomenstalk.com/creative-diy-easter-centerpieces-you-and-your-guests-will-love/)
-- [grace tkor](https://diy.allwomenstalk.com/christmas-diy/)
-- [wiltshire egg timer](https://lifestyle.allwomenstalk.com/matryoshka-kitchenware-items/)
-- [failed highlights hair](https://hair.allwomenstalk.com/fab-diy-fixes-for-when-your-dye-job-goes-awry/)
+- [widlflower cases](https://diy.allwomenstalk.com/fun-diys-to-bring-color-to-your-life/)
 - [hobbies.for.women](https://diy.allwomenstalk.com/empowering-hobbies-for-women/)
+- [wiltshire egg timer](https://lifestyle.allwomenstalk.com/matryoshka-kitchenware-items/)
+- [simple to make christmas cards](https://diy.allwomenstalk.com/simple-diy-christmas-cards-that-are-cheap-and-personal/)
+- [marni grinch sweater](https://diy.allwomenstalk.com/diy-your-own-chic-holiday-sweater/)
+- [grace tkor](https://diy.allwomenstalk.com/christmas-diy/)
+- [crafty christmas ornaments](https://diy.allwomenstalk.com/diy-christmas-ornaments-for-the-crafty-girl/)
+- [failed highlights hair](https://hair.allwomenstalk.com/fab-diy-fixes-for-when-your-dye-job-goes-awry/)
+- [adult rosie the riveter halloween costume](https://diy.allwomenstalk.com/cute-halloween-costumes-that-are-easy-to-put-together/)
 - [8 Free Craft Items for Kids ...](https://parenting.allwomenstalk.com/8-free-craft-items-for-kids/)
 - [Top 10 Crafts for Your Child ...](https://allwomenstalk.com/top-10-crafts-for-your-child/)
 

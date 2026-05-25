@@ -54,16 +54,16 @@ Our children deserve the very best preparation we can give them. And as you trai
 
 ## Related Posts
 
-- [toddler cartoons list](https://parenting.allwomenstalk.com/cartoons-that-are-good-for-kids-to-watch/)
-- [things to do with my daughter](https://parenting.allwomenstalk.com/best-things-you-can-do-for-your-children/)
-- [only child facts](https://parenting.allwomenstalk.com/facts-about-only-children-parents-should-know/)
-- [good values for kids](https://parenting.allwomenstalk.com/moral-values-to-teach-your-children/)
-- [choosing a babysitter](https://parenting.allwomenstalk.com/tips-on-how-to-choose-a-babysitter/)
-- [how to be part of a community](https://lifestyle.allwomenstalk.com/ways-teens-can-help-the-community/)
-- [things to teach your son](https://parenting.allwomenstalk.com/ways-to-teach-your-son-to-be-a-gentleman/)
 - [kids help at home](https://parenting.allwomenstalk.com/things-kids-can-do-to-help-around-the-house/)
+- [things to do with my daughter](https://parenting.allwomenstalk.com/best-things-you-can-do-for-your-children/)
 - [tolerance kids](https://parenting.allwomenstalk.com/ways-to-teach-kids-tolerance/)
 - [reasons why chores are bad](https://parenting.allwomenstalk.com/reasons-to-get-your-kids-to-do-chores/)
+- [how to be part of a community](https://lifestyle.allwomenstalk.com/ways-teens-can-help-the-community/)
+- [things to teach your son](https://parenting.allwomenstalk.com/ways-to-teach-your-son-to-be-a-gentleman/)
+- [choosing a babysitter](https://parenting.allwomenstalk.com/tips-on-how-to-choose-a-babysitter/)
+- [toddler cartoons list](https://parenting.allwomenstalk.com/cartoons-that-are-good-for-kids-to-watch/)
+- [only child facts](https://parenting.allwomenstalk.com/facts-about-only-children-parents-should-know/)
+- [good values for kids](https://parenting.allwomenstalk.com/moral-values-to-teach-your-children/)
 - [7 Easy Ways to Boost Your Childs Education ...](https://parenting.allwomenstalk.com/7-easy-ways-to-boost-your-childs-education/)
 - [8 Ways to Motivate Your Child ...](https://parenting.allwomenstalk.com/8-ways-to-motivate-your-child/)
 

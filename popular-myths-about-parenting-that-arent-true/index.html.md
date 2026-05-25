@@ -44,16 +44,16 @@ Being a parent can be difficult sometimes, but if you have patience and if you t
 
 ## Related Posts
 
-- [treated like a](https://teen.allwomenstalk.com/ways-to-get-treated-like-a-responsible-adult-when-youre-young/)
-- [trying not to raise](https://parenting.allwomenstalk.com/tips-if-your-parents-are-telling-you-how-to-raise-your-kids/)
-- [winnie the pooh toddler](https://movies.allwomenstalk.com/reasons-why-your-child-should-watch-winnie-the-pooh/)
-- [todler milestones](https://parenting.allwomenstalk.com/exciting-toddler-milestones-to-look-forward-to/)
-- [how to run peaceful with our family](https://inspiration.allwomenstalk.com/simple-ideas-to-keep-your-family-peaceful/)
-- [Discover How to Avoid Being an Embarrassing Parent...](https://parenting.allwomenstalk.com/ways-to-avoid-being-an-embarrassing-parent/)
-- [teach the children christmas](https://parenting.allwomenstalk.com/ways-to-teach-children-about-giving-to-others-at-christmas/)
-- [biology doesnt make you a parent](https://parenting.allwomenstalk.com/best-parenting-infographics/)
-- [teaching children about charity](https://money.allwomenstalk.com/ways-to-teach-your-kids-about-charitable-donations/)
 - [legos to build with your boyfriend](https://parenting.allwomenstalk.com/things-to-build-with-legos-that-your-kids-will-love/)
+- [todler milestones](https://parenting.allwomenstalk.com/exciting-toddler-milestones-to-look-forward-to/)
+- [biology doesnt make you a parent](https://parenting.allwomenstalk.com/best-parenting-infographics/)
+- [Discover How to Avoid Being an Embarrassing Parent...](https://parenting.allwomenstalk.com/ways-to-avoid-being-an-embarrassing-parent/)
+- [how to run peaceful with our family](https://inspiration.allwomenstalk.com/simple-ideas-to-keep-your-family-peaceful/)
+- [teaching children about charity](https://money.allwomenstalk.com/ways-to-teach-your-kids-about-charitable-donations/)
+- [winnie the pooh toddler](https://movies.allwomenstalk.com/reasons-why-your-child-should-watch-winnie-the-pooh/)
+- [trying not to raise](https://parenting.allwomenstalk.com/tips-if-your-parents-are-telling-you-how-to-raise-your-kids/)
+- [teach the children christmas](https://parenting.allwomenstalk.com/ways-to-teach-children-about-giving-to-others-at-christmas/)
+- [treated like a](https://teen.allwomenstalk.com/ways-to-get-treated-like-a-responsible-adult-when-youre-young/)
 - [7 Secrets of Motherhood ...](https://parenting.allwomenstalk.com/7-secrets-of-motherhood/)
 - [7 Things Parents Should Know ...](https://parenting.allwomenstalk.com/7-things-parents-should-know/)
 

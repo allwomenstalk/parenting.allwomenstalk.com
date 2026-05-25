@@ -42,16 +42,16 @@ Studying as a parent is both fun and invigorating. Sure, I rarely feel organized
 
 ## Related Posts
 
-- [20 Tips for Discussing Race with Kids ...](https://parenting.allwomenstalk.com/tips-for-discussing-race-with-kids/)
-- [7 Easy Ways to Get Your Kids to Eat Anything ...](https://parenting.allwomenstalk.com/easy-ways-to-get-your-kids-to-eat-anything/)
-- [help kids have more friends](https://parenting.allwomenstalk.com/fun-ways-to-help-your-child-make-more-friends/)
-- [morals for children](https://parenting.allwomenstalk.com/morals-for-kids-that-are-absolutely-essential/)
-- [7 Ways to Help Your Little One Get Ready for the F...](https://parenting.allwomenstalk.com/ways-to-help-your-little-one-get-ready-for-the-first-day-of-preschool/)
-- [living with someone with ocpd](https://health.allwomenstalk.com/tips-for-family-of-someone-with-obsessive-compulsive-personality-disorder/)
-- [how to get kids to listen](https://parenting.allwomenstalk.com/tips-on-how-to-get-your-kids-to-listen/)
-- [making chores fun](https://parenting.allwomenstalk.com/ways-to-make-household-chores-fun-for-kids/)
 - [7 Vitally Important Steps to Keep Your Kids Safe i...](https://parenting.allwomenstalk.com/vitally-important-steps-to-keep-your-kids-safe-in-the-car/)
+- [7 Easy Ways to Get Your Kids to Eat Anything ...](https://parenting.allwomenstalk.com/easy-ways-to-get-your-kids-to-eat-anything/)
+- [7 Ways to Help Your Little One Get Ready for the F...](https://parenting.allwomenstalk.com/ways-to-help-your-little-one-get-ready-for-the-first-day-of-preschool/)
+- [help kids have more friends](https://parenting.allwomenstalk.com/fun-ways-to-help-your-child-make-more-friends/)
 - [how to get my daughter to like science](https://parenting.allwomenstalk.com/ways-to-get-children-interested-in-science/)
+- [morals for children](https://parenting.allwomenstalk.com/morals-for-kids-that-are-absolutely-essential/)
+- [20 Tips for Discussing Race with Kids ...](https://parenting.allwomenstalk.com/tips-for-discussing-race-with-kids/)
+- [making chores fun](https://parenting.allwomenstalk.com/ways-to-make-household-chores-fun-for-kids/)
+- [how to get kids to listen](https://parenting.allwomenstalk.com/tips-on-how-to-get-your-kids-to-listen/)
+- [living with someone with ocpd](https://health.allwomenstalk.com/tips-for-family-of-someone-with-obsessive-compulsive-personality-disorder/)
 - [8 Tips for Single Parents ...](https://parenting.allwomenstalk.com/8-tips-for-single-parents/)
 - [7 Easy Ways to Boost Your Childs Education ...](https://parenting.allwomenstalk.com/7-easy-ways-to-boost-your-childs-education/)
 

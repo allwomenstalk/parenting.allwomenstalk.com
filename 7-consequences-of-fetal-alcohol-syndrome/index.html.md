@@ -44,16 +44,16 @@ Top Photo Credit: [Kmale.](https://www.flickr.com/photos/kathleenmale/3072903172
 
 ## Related Posts
 
+- [10 Reasons to Get Regular Checkups ...](https://health.allwomenstalk.com/10-reasons-to-get-regular-checkups/)
+- [7 Tips for Coping with Long-Term Health Conditions...](https://health.allwomenstalk.com/7-tips-for-coping-with-long-term-health-conditions/)
 - [8 Myths about ADHD ...](https://parenting.allwomenstalk.com/8-myths-about-adhd/)
-- [5 Herbs to Take Caution with ...](https://gardening.allwomenstalk.com/5-herbs-to-take-caution-with/)
-- [7 Prescription Drugs with Strange Side Effects ...](https://health.allwomenstalk.com/prescription-drugs-with-strange-side-effects/)
 - [7 Scariest Invasive Surgeries ...](https://health.allwomenstalk.com/7-scariest-invasive-surgeries/)
 - [most important womens vitamins](https://health.allwomenstalk.com/highly-important-vitamins-for-women/)
-- [7 Horrible Diseases ...](https://health.allwomenstalk.com/7-horrible-diseases/)
-- [7 Tips for Coping with Long-Term Health Conditions...](https://health.allwomenstalk.com/7-tips-for-coping-with-long-term-health-conditions/)
+- [7 Prescription Drugs with Strange Side Effects ...](https://health.allwomenstalk.com/prescription-drugs-with-strange-side-effects/)
 - [8 Things to Know about Antioxidants ...](https://health.allwomenstalk.com/8-things-to-know-about-antioxidants/)
+- [5 Herbs to Take Caution with ...](https://gardening.allwomenstalk.com/5-herbs-to-take-caution-with/)
+- [7 Horrible Diseases ...](https://health.allwomenstalk.com/7-horrible-diseases/)
 - [7 Pertinent Laser Eye Surgery Points to Consider ....](https://health.allwomenstalk.com/pertinent-laser-eye-surgery-points-to-consider/)
-- [10 Reasons to Get Regular Checkups ...](https://health.allwomenstalk.com/10-reasons-to-get-regular-checkups/)
 - [7 Most Popular Pregnancy Myths ...](https://parenting.allwomenstalk.com/7-most-popular-pregnancy-myths/)
 - [7 Weird Pregnancy Facts ...](https://parenting.allwomenstalk.com/7-weird-pregnancy-facts/)
 

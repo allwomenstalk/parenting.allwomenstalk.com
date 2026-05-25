@@ -48,16 +48,16 @@ Top Photo Credit: [jaki good](https://www.flickr.com/photos/jakig/542039683/)
 
 ## Related Posts
 
-- [cut bake stamp etsy](https://lifestyle.allwomenstalk.com/giveaway-contest-cupcaketree-handmade-rubber-stamp/)
-- [homemade card idea](https://lifestyle.allwomenstalk.com/ideas-for-making-lovely-homemade-cards/)
-- [uses for bobby pins](https://hair.allwomenstalk.com/things-you-can-do-with-bobby-pins/)
-- [simply shawna etsy store](https://lifestyle.allwomenstalk.com/things-to-learn-about-etsy-shop-red-marionette/)
-- [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
-- [precious couture](https://parenting.allwomenstalk.com/giveaway-contest-handmade-knit-baby-hat-by-kids-precious-couture/)
 - [7 Tutorials on Making DIY Hair Accessories ...](https://hair.allwomenstalk.com/tutorials-on-making-diy-hair-accessories/)
 - [christmas giveaway banner](https://lifestyle.allwomenstalk.com/giveaway-contest-handmade-holiday-banner/)
 - [craft to learn](https://lifestyle.allwomenstalk.com/ways-to-learn-new-craft-skills/)
 - [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)
+- [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
+- [precious couture](https://parenting.allwomenstalk.com/giveaway-contest-handmade-knit-baby-hat-by-kids-precious-couture/)
+- [homemade card idea](https://lifestyle.allwomenstalk.com/ideas-for-making-lovely-homemade-cards/)
+- [uses for bobby pins](https://hair.allwomenstalk.com/things-you-can-do-with-bobby-pins/)
+- [simply shawna etsy store](https://lifestyle.allwomenstalk.com/things-to-learn-about-etsy-shop-red-marionette/)
+- [cut bake stamp etsy](https://lifestyle.allwomenstalk.com/giveaway-contest-cupcaketree-handmade-rubber-stamp/)
 - [8 Great Play-Date Crafts ...](https://allwomenstalk.com/8-great-play-date-crafts/)
 - [Top 10 Crafts for Your Child ...](https://allwomenstalk.com/top-10-crafts-for-your-child/)
 

@@ -46,16 +46,16 @@ Mental preparation is only part of getting ready for a new baby, and of course y
 
 ## Related Posts
 
-- [helping out mommy](https://parenting.allwomenstalk.com/fabulous-ideas-for-helping-out-a-new-mom/)
-- [pregnancy complaints](https://parenting.allwomenstalk.com/common-complaints-of-pregnancy-and-how-you-can-combat-them/)
 - [can pedicure induce labor](https://parenting.allwomenstalk.com/ways-to-relax-while-pregnant/)
+- [realize baby](https://parenting.allwomenstalk.com/things-you-dont-realize-until-you-have-a-baby/)
+- [baby first pictures ideas](https://parenting.allwomenstalk.com/adorable-newborn-photo-ideas/)
+- [flying while pregnant tips](https://parenting.allwomenstalk.com/tips-for-flying-while-pregnant/)
+- [pregnancy complaints](https://parenting.allwomenstalk.com/common-complaints-of-pregnancy-and-how-you-can-combat-them/)
+- [7 friends drawing](https://lifestyle.allwomenstalk.com/ways-to-stay-connected-with-your-new-mom-friends/)
+- [how to clean newborn toys](https://parenting.allwomenstalk.com/things-to-sterilize-before-you-give-it-to-your-baby/)
 - [tips for baby registry](https://parenting.allwomenstalk.com/tips-for-getting-the-most-out-of-your-baby-registery/)
 - [mom need a break](https://parenting.allwomenstalk.com/things-dads-can-do-to-give-mom-a-break/)
-- [flying while pregnant tips](https://parenting.allwomenstalk.com/tips-for-flying-while-pregnant/)
-- [how to clean newborn toys](https://parenting.allwomenstalk.com/things-to-sterilize-before-you-give-it-to-your-baby/)
-- [baby first pictures ideas](https://parenting.allwomenstalk.com/adorable-newborn-photo-ideas/)
-- [realize baby](https://parenting.allwomenstalk.com/things-you-dont-realize-until-you-have-a-baby/)
-- [7 friends drawing](https://lifestyle.allwomenstalk.com/ways-to-stay-connected-with-your-new-mom-friends/)
+- [helping out mommy](https://parenting.allwomenstalk.com/fabulous-ideas-for-helping-out-a-new-mom/)
 - [8 Ways to Handle Pre-Wedding Jitters ...](https://wedding.allwomenstalk.com/8-ways-to-handle-pre-wedding-jitters/)
 - [8 Ways to Survive Life with a Newborn ...](https://parenting.allwomenstalk.com/8-ways-to-survive-life-with-a-newborn/)
 

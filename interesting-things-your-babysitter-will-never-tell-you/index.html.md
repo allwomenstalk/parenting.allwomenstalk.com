@@ -42,15 +42,15 @@ In my opinion, there are a lot more things your babysitter will never tell you. 
 
 ## Related Posts
 
-- [why do children bite](https://parenting.allwomenstalk.com/important-reasons-why-children-bite-and-how-to-deal-with-it/)
-- [things to teach](https://parenting.allwomenstalk.com/important-things-to-teach-your-teenage-son/)
-- [things to do with your son](https://parenting.allwomenstalk.com/things-to-do-for-your-son-that-he-will-never-forget/)
-- [kid pick clothes](https://parenting.allwomenstalk.com/reasons-to-let-your-kids-choose-their-own-clothes/)
-- [most searched parenting topics](https://parenting.allwomenstalk.com/crunchy-parenting-topics-that-are-highly-debated/)
-- [jobs that kids can do](https://lifestyle.allwomenstalk.com/real-work-from-home-jobs-you-can-do-with-kids/)
-- [disciplining a 6 year old](https://parenting.allwomenstalk.com/guidelines-for-disciplining-your-child-fairly/)
 - [how to stay safe during a shooting](https://parenting.allwomenstalk.com/tips-on-how-to-stay-safe-during-a-school-shooting-to-share-with-your-kids/)
+- [why do children bite](https://parenting.allwomenstalk.com/important-reasons-why-children-bite-and-how-to-deal-with-it/)
+- [kid pick clothes](https://parenting.allwomenstalk.com/reasons-to-let-your-kids-choose-their-own-clothes/)
+- [jobs that kids can do](https://lifestyle.allwomenstalk.com/real-work-from-home-jobs-you-can-do-with-kids/)
+- [things to teach](https://parenting.allwomenstalk.com/important-things-to-teach-your-teenage-son/)
+- [disciplining a 6 year old](https://parenting.allwomenstalk.com/guidelines-for-disciplining-your-child-fairly/)
 - [sonic food ideas for birthday party](https://parenting.allwomenstalk.com/ways-to-throw-a-sonic-party-for-your-child/)
+- [things to do with your son](https://parenting.allwomenstalk.com/things-to-do-for-your-son-that-he-will-never-forget/)
+- [most searched parenting topics](https://parenting.allwomenstalk.com/crunchy-parenting-topics-that-are-highly-debated/)
 - [why do parents embarrass you in public](https://parenting.allwomenstalk.com/too-cute-ways-your-kids-will-embarrass-you-in-public/)
 - [7 Things Parents Should Know ...](https://parenting.allwomenstalk.com/7-things-parents-should-know/)
 - [7 Things New Moms May Not Know ...](https://parenting.allwomenstalk.com/7-things-new-moms-may-not-know/)

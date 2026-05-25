@@ -42,16 +42,16 @@ I want to encourage all of you moms, or you ladies who want to be moms some day,
 
 ## Related Posts
 
+- [preparing toddler for new baby](https://parenting.allwomenstalk.com/ways-to-prepare-your-toddler-for-a-new-baby/)
+- [get tasks done with a baby](https://parenting.allwomenstalk.com/tips-for-getting-housework-done-with-a-baby/)
 - [what to wear to wedding when pregnant](https://wedding.allwomenstalk.com/tips-for-choosing-a-wedding-dress-when-youre-pregnant/)
 - [when does extrusion reflex go away](https://parenting.allwomenstalk.com/sure-fire-signs-your-baby-is-ready-for-solid-foods/)
-- [get tasks done with a baby](https://parenting.allwomenstalk.com/tips-for-getting-housework-done-with-a-baby/)
-- [mom friends](https://parenting.allwomenstalk.com/kinds-of-fellow-mom-friends-you-desperately-need-when-you-become-a-mom/)
-- [stressful situations at work are exhausting or exh...](https://parenting.allwomenstalk.com/stressful-situations-when-you-have-twins/)
-- [going to be an aunt](https://parenting.allwomenstalk.com/wonderful-aspects-of-being-an-aunt/)
 - [essential nutrients for pregnancy](https://health.allwomenstalk.com/essential-nutrients-to-take-while-pregnant-interesting-facts-about-them/)
-- [bbc2 newsnight](https://health.allwomenstalk.com/scary-signs-of-postpartum-depression/)
-- [preparing toddler for new baby](https://parenting.allwomenstalk.com/ways-to-prepare-your-toddler-for-a-new-baby/)
+- [stressful situations at work are exhausting or exh...](https://parenting.allwomenstalk.com/stressful-situations-when-you-have-twins/)
 - [are babies smarter than we think](https://parenting.allwomenstalk.com/awesome-reasons-why-babies-are-smarter-than-you-think/)
+- [going to be an aunt](https://parenting.allwomenstalk.com/wonderful-aspects-of-being-an-aunt/)
+- [bbc2 newsnight](https://health.allwomenstalk.com/scary-signs-of-postpartum-depression/)
+- [mom friends](https://parenting.allwomenstalk.com/kinds-of-fellow-mom-friends-you-desperately-need-when-you-become-a-mom/)
 - [7 Things Parents Should Know ...](https://parenting.allwomenstalk.com/7-things-parents-should-know/)
 - [7 Things New Moms May Not Know ...](https://parenting.allwomenstalk.com/7-things-new-moms-may-not-know/)
 

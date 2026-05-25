@@ -46,16 +46,16 @@ Whether you're royal or not, a new baby is always an exciting time. But few moms
 
 ## Related Posts
 
-- [hospital labor and delivery bag](https://parenting.allwomenstalk.com/things-to-pack-for-childbirth-in-your-hospital-bag/)
+- [moms going back to college](https://lifestyle.allwomenstalk.com/tips-for-moms-going-back-to-school-after-a-break/)
+- [tricked into having a baby](https://parenting.allwomenstalk.com/things-we-really-dont-need-for-a-baby-that-were-tricked-into-thinking-we-do/)
+- [best things about a baby boy](https://parenting.allwomenstalk.com/good-and-bad-things-about-having-a-baby-boy/)
 - [like to play](https://parenting.allwomenstalk.com/things-that-all-babies-love-to-play-with-that-arent-toys/)
 - [funny pregnancy facts](https://parenting.allwomenstalk.com/funny-and-infuriating-facts-about-being-pregnant-that-no-one-tells-you-about/)
-- [moms going back to college](https://lifestyle.allwomenstalk.com/tips-for-moms-going-back-to-school-after-a-break/)
-- [should i be a stay at home mom quiz](https://parenting.allwomenstalk.com/best-and-worst-things-about-being-a-stay-at-home-mom/)
-- [best things about a baby boy](https://parenting.allwomenstalk.com/good-and-bad-things-about-having-a-baby-boy/)
-- [scared to be a parent](https://parenting.allwomenstalk.com/ways-to-deal-with-fears-about-parenthood/)
 - [dr seuss baby gifts](https://parenting.allwomenstalk.com/whimsical-ways-to-create-a-dr-seuss-baby-shower/)
-- [tricked into having a baby](https://parenting.allwomenstalk.com/things-we-really-dont-need-for-a-baby-that-were-tricked-into-thinking-we-do/)
+- [should i be a stay at home mom quiz](https://parenting.allwomenstalk.com/best-and-worst-things-about-being-a-stay-at-home-mom/)
 - [tips for baby registry](https://parenting.allwomenstalk.com/tips-for-getting-the-most-out-of-your-baby-registery/)
+- [hospital labor and delivery bag](https://parenting.allwomenstalk.com/things-to-pack-for-childbirth-in-your-hospital-bag/)
+- [scared to be a parent](https://parenting.allwomenstalk.com/ways-to-deal-with-fears-about-parenthood/)
 - [8 Ways to Help New Parents ...](https://parenting.allwomenstalk.com/8-ways-to-help-new-parents/)
 - [7 Secrets of Motherhood ...](https://parenting.allwomenstalk.com/7-secrets-of-motherhood/)
 

@@ -74,16 +74,16 @@ What are some of your favorite newborn photo ideas? Have you or will you be givi
 
 ## Related Posts
 
-- [tricked into having a baby](https://parenting.allwomenstalk.com/things-we-really-dont-need-for-a-baby-that-were-tricked-into-thinking-we-do/)
-- [scared to be a parent](https://parenting.allwomenstalk.com/ways-to-deal-with-fears-about-parenthood/)
 - [best things about a baby boy](https://parenting.allwomenstalk.com/good-and-bad-things-about-having-a-baby-boy/)
-- [helping out mommy](https://parenting.allwomenstalk.com/fabulous-ideas-for-helping-out-a-new-mom/)
-- [moms going back to college](https://lifestyle.allwomenstalk.com/tips-for-moms-going-back-to-school-after-a-break/)
+- [scared to be a parent](https://parenting.allwomenstalk.com/ways-to-deal-with-fears-about-parenthood/)
+- [like to play](https://parenting.allwomenstalk.com/things-that-all-babies-love-to-play-with-that-arent-toys/)
+- [tricked into having a baby](https://parenting.allwomenstalk.com/things-we-really-dont-need-for-a-baby-that-were-tricked-into-thinking-we-do/)
 - [tips for baby registry](https://parenting.allwomenstalk.com/tips-for-getting-the-most-out-of-your-baby-registery/)
 - [should i be a stay at home mom quiz](https://parenting.allwomenstalk.com/best-and-worst-things-about-being-a-stay-at-home-mom/)
+- [helping out mommy](https://parenting.allwomenstalk.com/fabulous-ideas-for-helping-out-a-new-mom/)
 - [funny pregnancy facts](https://parenting.allwomenstalk.com/funny-and-infuriating-facts-about-being-pregnant-that-no-one-tells-you-about/)
 - [dr seuss baby gifts](https://parenting.allwomenstalk.com/whimsical-ways-to-create-a-dr-seuss-baby-shower/)
-- [like to play](https://parenting.allwomenstalk.com/things-that-all-babies-love-to-play-with-that-arent-toys/)
+- [moms going back to college](https://lifestyle.allwomenstalk.com/tips-for-moms-going-back-to-school-after-a-break/)
 - [7 Adorable Baby Shower Themes ...](https://parenting.allwomenstalk.com/adorable-baby-shower-themes/)
 - [Top 10 Gifts for a Baby Girl ...](https://allwomenstalk.com/top-10-gifts-for-a-baby-girl/)
 

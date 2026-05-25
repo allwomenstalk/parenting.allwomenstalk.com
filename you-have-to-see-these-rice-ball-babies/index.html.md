@@ -28,16 +28,16 @@ Now aren't those babies (and kittens) absolutely adorable? As long as you don't 
 
 ## Related Posts
 
+- [funny football commercials](https://funny.allwomenstalk.com/the-funniest-commercials-from-superbowl-50/)
+- [kissing gif for whatsapp](https://love.allwomenstalk.com/pieces-of-pda-that-arent-at-all-inappropriate/)
 - [spin the bottle with sister](https://love.allwomenstalk.com/short-story-spin-the-bottle/)
-- [plastic surgery you cant hide it forever](https://beauty.allwomenstalk.com/youll-never-believe-these-plastic-surgery-stories/)
 - [true crime docs](https://movies.allwomenstalk.com/true-crime-shock-docs-that-will-keep-you-up-at-night/)
 - [17gifs](https://lifestyle.allwomenstalk.com/gifs-that-perfectly-describe-a-cancer/)
-- [kissing gif for whatsapp](https://love.allwomenstalk.com/pieces-of-pda-that-arent-at-all-inappropriate/)
 - [loreal paris riche le stylo vegas](https://movies.allwomenstalk.com/funny-superbowl-commercials-youll-crack-up-at/)
-- [funny football commercials](https://funny.allwomenstalk.com/the-funniest-commercials-from-superbowl-50/)
+- [plastic surgery you cant hide it forever](https://beauty.allwomenstalk.com/youll-never-believe-these-plastic-surgery-stories/)
+- [marrige gif](https://love.allwomenstalk.com/the-first-year-of-marriage-a-trainwreck-fairy-tale-told-in-gifs/)
 - [cheating girlfriend story](https://love.allwomenstalk.com/an-eye-opening-short-story-about-cheating/)
 - [cards against humanity funny](https://funny.allwomenstalk.com/the-funniest-cards-against-humanity-photos/)
-- [marrige gif](https://love.allwomenstalk.com/the-first-year-of-marriage-a-trainwreck-fairy-tale-told-in-gifs/)
 - [Tasty Treats ...](https://allwomenstalk.com/tasty-treats/)
 - [50 of the Cutest Cupcakes Youll Ever See ...](https://food.allwomenstalk.com/of-the-cutest-cupcakes-youll-ever-see/)
 

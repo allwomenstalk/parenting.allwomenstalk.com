@@ -52,16 +52,16 @@ Sometimes a craving is just a craving and it doesn't necessarily point to anythi
 
 ## Related Posts
 
-- [opportunities in life](https://parenting.allwomenstalk.com/new-life-opportunities-to-enjoy-after-the-kids-are-grown/)
-- [stepmom vs mom](https://parenting.allwomenstalk.com/important-things-every-stepmom-must-know-and-remember/)
+- [pros and cons of parenthood](https://parenting.allwomenstalk.com/pros-and-cons-of-postponing-parenthood/)
 - [mommy needs a break](https://parenting.allwomenstalk.com/ways-for-moms-to-get-a-break-without-a-sitter/)
+- [how becoming a parent changes you](https://parenting.allwomenstalk.com/positive-and-negative-ways-life-changes-when-you-become-a-parent/)
 - [how to stay sane as a stay at home mom](https://parenting.allwomenstalk.com/tips-on-how-to-stay-sane-as-a-new-mom/)
 - [baby chiropractor benefits](https://parenting.allwomenstalk.com/amazing-benefits-of-chiropractic-care-for-newborns/)
-- [what to bring for babysitting](https://parenting.allwomenstalk.com/must-have-items-to-bring-when-you-babysit/)
-- [how becoming a parent changes you](https://parenting.allwomenstalk.com/positive-and-negative-ways-life-changes-when-you-become-a-parent/)
 - [5 qualities of mother](https://parenting.allwomenstalk.com/lovable-qualities-of-a-great-mother/)
+- [what to bring for babysitting](https://parenting.allwomenstalk.com/must-have-items-to-bring-when-you-babysit/)
 - [motherhood easy](https://parenting.allwomenstalk.com/ways-to-make-motherhood-easier-in-the-early-years/)
-- [pros and cons of parenthood](https://parenting.allwomenstalk.com/pros-and-cons-of-postponing-parenthood/)
+- [stepmom vs mom](https://parenting.allwomenstalk.com/important-things-every-stepmom-must-know-and-remember/)
+- [opportunities in life](https://parenting.allwomenstalk.com/new-life-opportunities-to-enjoy-after-the-kids-are-grown/)
 - [8 Strangest Pregnancy Cravings ...](https://parenting.allwomenstalk.com/strangest-pregnancy-cravings/)
 - [7 Things a Pregnant Woman Needs in Her Diet ...](https://parenting.allwomenstalk.com/things-a-pregnant-woman-needs-in-her-diet/)
 

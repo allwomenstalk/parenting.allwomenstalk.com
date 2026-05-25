@@ -42,16 +42,16 @@ Experience is the best teacher and I hope that my experiences can offer you some
 
 ## Related Posts
 
-- [telling friends you are pregnant](https://parenting.allwomenstalk.com/totally-fun-ways-to-announce-your-pregnancy/)
-- [opportunities in life](https://parenting.allwomenstalk.com/new-life-opportunities-to-enjoy-after-the-kids-are-grown/)
-- [how to stay sane as a stay at home mom](https://parenting.allwomenstalk.com/tips-on-how-to-stay-sane-as-a-new-mom/)
-- [new fashion tips](https://fashion.allwomenstalk.com/fashion-tips-for-new-moms-that-work-great-for-that-transition-period/)
-- [things to do while pregnant](https://parenting.allwomenstalk.com/fun-things-to-do-when-you-are-pregnant-to-celebrate-the-pregnancy/)
-- [stepmom vs mom](https://parenting.allwomenstalk.com/important-things-every-stepmom-must-know-and-remember/)
-- [pros and cons of parenthood](https://parenting.allwomenstalk.com/pros-and-cons-of-postponing-parenthood/)
-- [benefits mum](https://parenting.allwomenstalk.com/benefits-of-being-a-working-mom/)
 - [newborn party](https://parenting.allwomenstalk.com/ideas-to-celebrate-the-arrival-of-a-new-baby/)
+- [how to stay sane as a stay at home mom](https://parenting.allwomenstalk.com/tips-on-how-to-stay-sane-as-a-new-mom/)
+- [stepmom vs mom](https://parenting.allwomenstalk.com/important-things-every-stepmom-must-know-and-remember/)
+- [things to do while pregnant](https://parenting.allwomenstalk.com/fun-things-to-do-when-you-are-pregnant-to-celebrate-the-pregnancy/)
+- [opportunities in life](https://parenting.allwomenstalk.com/new-life-opportunities-to-enjoy-after-the-kids-are-grown/)
 - [high school moms cast](https://teen.allwomenstalk.com/cons-of-being-a-mother-in-high-school/)
+- [telling friends you are pregnant](https://parenting.allwomenstalk.com/totally-fun-ways-to-announce-your-pregnancy/)
+- [pros and cons of parenthood](https://parenting.allwomenstalk.com/pros-and-cons-of-postponing-parenthood/)
+- [new fashion tips](https://fashion.allwomenstalk.com/fashion-tips-for-new-moms-that-work-great-for-that-transition-period/)
+- [benefits mum](https://parenting.allwomenstalk.com/benefits-of-being-a-working-mom/)
 - [7 Secrets of Motherhood ...](https://parenting.allwomenstalk.com/7-secrets-of-motherhood/)
 - [8 Things Every New Mom Should Know ...](https://parenting.allwomenstalk.com/things-every-new-mom-should-know/)
 

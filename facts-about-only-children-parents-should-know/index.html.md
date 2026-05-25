@@ -48,16 +48,16 @@ Of course, there are plenty of other interesting facts, too. Parents are much le
 
 ## Related Posts
 
-- [things to do with kids when babysitting](https://lifestyle.allwomenstalk.com/things-to-do-with-kids-when-babysitting/)
+- [send a ball](https://parenting.allwomenstalk.com/things-to-mail-to-kids/)
 - [things to teach your son](https://parenting.allwomenstalk.com/ways-to-teach-your-son-to-be-a-gentleman/)
+- [artificial consequences definition](https://parenting.allwomenstalk.com/techniques-to-teach-your-child-to-behave-acceptably/)
+- [kids help at home](https://parenting.allwomenstalk.com/things-kids-can-do-to-help-around-the-house/)
+- [things to do with kids when babysitting](https://lifestyle.allwomenstalk.com/things-to-do-with-kids-when-babysitting/)
+- [how involved](https://parenting.allwomenstalk.com/ways-to-be-involved-in-your-childs-life/)
+- [moms favorite things](https://parenting.allwomenstalk.com/of-my-favorite-things-about-being-a-parent/)
+- [quiet kid stereotype](https://parenting.allwomenstalk.com/gender-based-stereotypes-imposed-on-kids/)
 - [high energy games for kids](https://parenting.allwomenstalk.com/fun-activities-for-high-energy-kids-that-will-keep-them-healthy-and-calm/)
 - [how to teach your child to swim yourself](https://parenting.allwomenstalk.com/tips-for-teaching-your-child-how-to-swim/)
-- [moms favorite things](https://parenting.allwomenstalk.com/of-my-favorite-things-about-being-a-parent/)
-- [kids help at home](https://parenting.allwomenstalk.com/things-kids-can-do-to-help-around-the-house/)
-- [artificial consequences definition](https://parenting.allwomenstalk.com/techniques-to-teach-your-child-to-behave-acceptably/)
-- [send a ball](https://parenting.allwomenstalk.com/things-to-mail-to-kids/)
-- [quiet kid stereotype](https://parenting.allwomenstalk.com/gender-based-stereotypes-imposed-on-kids/)
-- [how involved](https://parenting.allwomenstalk.com/ways-to-be-involved-in-your-childs-life/)
 - [5 Facts on Scene Kids ...](https://twilight.allwomenstalk.com/5-facts-on-scene-kids/)
 - [7 Things Parents Should Know ...](https://parenting.allwomenstalk.com/7-things-parents-should-know/)
 

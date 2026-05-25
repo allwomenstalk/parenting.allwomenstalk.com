@@ -42,16 +42,16 @@ Whatever time you choose to have children, remember that it's yours to make and 
 
 ## Related Posts
 
+- [high school moms cast](https://teen.allwomenstalk.com/cons-of-being-a-mother-in-high-school/)
+- [things to do while pregnant](https://parenting.allwomenstalk.com/fun-things-to-do-when-you-are-pregnant-to-celebrate-the-pregnancy/)
 - [stepmom vs mom](https://parenting.allwomenstalk.com/important-things-every-stepmom-must-know-and-remember/)
 - [how to stay sane as a stay at home mom](https://parenting.allwomenstalk.com/tips-on-how-to-stay-sane-as-a-new-mom/)
 - [opportunities in life](https://parenting.allwomenstalk.com/new-life-opportunities-to-enjoy-after-the-kids-are-grown/)
 - [newborn party](https://parenting.allwomenstalk.com/ideas-to-celebrate-the-arrival-of-a-new-baby/)
-- [johnson baby items](https://parenting.allwomenstalk.com/must-have-baby-products-from-johnson-johnson/)
+- [benefits mum](https://parenting.allwomenstalk.com/benefits-of-being-a-working-mom/)
 - [telling friends you are pregnant](https://parenting.allwomenstalk.com/totally-fun-ways-to-announce-your-pregnancy/)
 - [new fashion tips](https://fashion.allwomenstalk.com/fashion-tips-for-new-moms-that-work-great-for-that-transition-period/)
-- [high school moms cast](https://teen.allwomenstalk.com/cons-of-being-a-mother-in-high-school/)
-- [benefits mum](https://parenting.allwomenstalk.com/benefits-of-being-a-working-mom/)
-- [things to do while pregnant](https://parenting.allwomenstalk.com/fun-things-to-do-when-you-are-pregnant-to-celebrate-the-pregnancy/)
+- [johnson baby items](https://parenting.allwomenstalk.com/must-have-baby-products-from-johnson-johnson/)
 - [8 Reasons to Have Your Family Later ...](https://parenting.allwomenstalk.com/8-reasons-to-have-your-family-later/)
 - [7 Pros and Cons of Midwives Vs Doctors ...](https://parenting.allwomenstalk.com/pros-and-cons-of-midwives-vs-doctors/)
 

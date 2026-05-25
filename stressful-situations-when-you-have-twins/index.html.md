@@ -42,16 +42,16 @@ But one thing that my husband and I realized about having twins is that we are t
 
 ## Related Posts
 
+- [dealing with pregnancy alone](https://parenting.allwomenstalk.com/ways-to-find-support-when-going-through-pregnancy-alone/)
+- [baby crib safety](https://parenting.allwomenstalk.com/rules-of-crib-safety-you-should-follow-with-your-baby/)
+- [baby apps for new parents](https://apps.allwomenstalk.com/educational-apps-for-new-parents/)
 - [advice for moms going back to work](https://parenting.allwomenstalk.com/tips-for-when-you-miss-your-baby-after-returning-to-work/)
 - [what are 20 babies born at once called](https://parenting.allwomenstalk.com/advantages-to-having-babies-in-your-20s/)
-- [baby apps for new parents](https://apps.allwomenstalk.com/educational-apps-for-new-parents/)
 - [sneaky mom](https://parenting.allwomenstalk.com/ways-to-sneak-in-exercise-with-a-newborn/)
-- [how to buy baby carrier](https://parenting.allwomenstalk.com/things-to-consider-when-buying-a-baby-carrier/)
 - [babymoon quotes](https://travel.allwomenstalk.com/tips-to-enjoy-your-babymoon/)
-- [how to complain to mom about company](https://parenting.allwomenstalk.com/hilariously-silly-things-all-mothers-complain-about/)
-- [baby crib safety](https://parenting.allwomenstalk.com/rules-of-crib-safety-you-should-follow-with-your-baby/)
 - [mom with a blog](https://parenting.allwomenstalk.com/great-mommy-blogs-to-help-you-with-your-journey-as-a-mom/)
-- [dealing with pregnancy alone](https://parenting.allwomenstalk.com/ways-to-find-support-when-going-through-pregnancy-alone/)
+- [how to buy baby carrier](https://parenting.allwomenstalk.com/things-to-consider-when-buying-a-baby-carrier/)
+- [how to complain to mom about company](https://parenting.allwomenstalk.com/hilariously-silly-things-all-mothers-complain-about/)
 - [7 Warning Signs of Stress You Should Be Aware of ....](https://allwomenstalk.com/7-warning-signs-of-stress-you-should-be-aware-of/)
 - [8 Dangers of Stress ...](https://lifestyle.allwomenstalk.com/dangers-of-stress/)
 

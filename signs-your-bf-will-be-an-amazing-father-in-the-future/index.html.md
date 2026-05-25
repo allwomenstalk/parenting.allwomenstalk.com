@@ -42,13 +42,13 @@ These seven things are not the complete absolute to conclude that you boyfriend 
 
 ## Related Posts
 
-- [signs he wants a second date](https://love.allwomenstalk.com/signs-you-shouldnt-go-on-a-second-date-with-him/)
-- [how to tell if a guy cares about you](https://love.allwomenstalk.com/signs-he-only-cares-about-himself/)
-- [what does it mean when a guy wants to call you ins...](https://love.allwomenstalk.com/verbal-clues-that-mean-hes-into-you/)
-- [feeling trapped in a relationship](https://love.allwomenstalk.com/things-thatll-make-him-feel-trapped-in-a-relationship/)
-- [signs of a warrior](https://love.allwomenstalk.com/is-your-man-a-warrior-the-signs/)
-- [how do you know if a guy is only after one thing](https://love.allwomenstalk.com/signs-hes-only-interested-in-sex/)
 - [how to make your boyfriend realize your importance](https://love.allwomenstalk.com/does-your-so-realize-how-important-you-are/)
+- [what does it mean when a guy wants to call you ins...](https://love.allwomenstalk.com/verbal-clues-that-mean-hes-into-you/)
+- [signs of a warrior](https://love.allwomenstalk.com/is-your-man-a-warrior-the-signs/)
+- [feeling trapped in a relationship](https://love.allwomenstalk.com/things-thatll-make-him-feel-trapped-in-a-relationship/)
+- [how to tell if a guy cares about you](https://love.allwomenstalk.com/signs-he-only-cares-about-himself/)
+- [how do you know if a guy is only after one thing](https://love.allwomenstalk.com/signs-hes-only-interested-in-sex/)
+- [signs he wants a second date](https://love.allwomenstalk.com/signs-you-shouldnt-go-on-a-second-date-with-him/)
 - [signs of lust in a woman](https://love.allwomenstalk.com/signs-its-lust-not-love/)
 - [wife material means](https://love.allwomenstalk.com/things-that-prove-hes-relationship-material/)
 - [7 Ways to Tell if Hes a Mamas Boy ...](https://love.allwomenstalk.com/ways-to-tell-if-hes-a-mamas-boy/)

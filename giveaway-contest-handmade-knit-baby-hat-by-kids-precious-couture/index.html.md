@@ -43,15 +43,15 @@ You can also stop by [Dianira Soto's Etsy shop](http://www.etsy.com?ref=allwomen
 ## Related Posts
 
 - [cut bake stamp etsy](https://lifestyle.allwomenstalk.com/giveaway-contest-cupcaketree-handmade-rubber-stamp/)
-- [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
-- [7 Tutorials on Making DIY Hair Accessories ...](https://hair.allwomenstalk.com/tutorials-on-making-diy-hair-accessories/)
-- [uses for bobby pins](https://hair.allwomenstalk.com/things-you-can-do-with-bobby-pins/)
-- [christmas giveaway banner](https://lifestyle.allwomenstalk.com/giveaway-contest-handmade-holiday-banner/)
-- [simply shawna etsy store](https://lifestyle.allwomenstalk.com/things-to-learn-about-etsy-shop-red-marionette/)
 - [homemade paper christmas ornaments](https://lifestyle.allwomenstalk.com/top-reasons-to-diy-paper-christmas-ornaments/)
+- [uses for bobby pins](https://hair.allwomenstalk.com/things-you-can-do-with-bobby-pins/)
+- [simply shawna etsy store](https://lifestyle.allwomenstalk.com/things-to-learn-about-etsy-shop-red-marionette/)
+- [7 Tutorials on Making DIY Hair Accessories ...](https://hair.allwomenstalk.com/tutorials-on-making-diy-hair-accessories/)
+- [christmas giveaway banner](https://lifestyle.allwomenstalk.com/giveaway-contest-handmade-holiday-banner/)
 - [homemade card idea](https://lifestyle.allwomenstalk.com/ideas-for-making-lovely-homemade-cards/)
-- [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)
+- [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [craft to learn](https://lifestyle.allwomenstalk.com/ways-to-learn-new-craft-skills/)
+- [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)
 - [Giveaway Winner: the Lucky Elephant Bridal Bracele...](https://wedding.allwomenstalk.com/giveaway-winner-the-lucky-elephant-bridal-bracelet/)
 - [Giveaway Contest Winner: Townsend Custom Gifts ...](https://lifestyle.allwomenstalk.com/giveaway-contest-townsend-custom-gifts/)
 

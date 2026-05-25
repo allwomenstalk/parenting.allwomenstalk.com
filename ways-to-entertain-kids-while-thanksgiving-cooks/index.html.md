@@ -42,16 +42,16 @@ How do you keep your kids entertained while the food cooks? I love all of these 
 
 ## Related Posts
 
-- [7 Ways to Celebrate the Holidays with Presence Not...](https://inspiration.allwomenstalk.com/ways-to-celebrate-the-holidays-with-presence-not-presents/)
-- [best infographics ever](https://lifestyle.allwomenstalk.com/best-party-infographics-for-the-best-party-ever/)
-- [what things to do on christmas eve](https://lifestyle.allwomenstalk.com/simple-cozy-things-to-do-on-christmas-eve/)
-- [7 Themes for the Best Birthday Ever ...](https://lifestyle.allwomenstalk.com/themes-for-the-best-birthday-ever/)
-- [things to do during winter break college students](https://lifestyle.allwomenstalk.com/fun-ideas-for-students-stuck-on-campus-during-winter-break/)
 - [7 Fun Winter Break Adventures for You and Your BFF...](https://teen.allwomenstalk.com/fun-winter-break-adventures-for-you-and-your-bff/)
-- [7 Things to do in the Shower Other than Just Wash ...](https://beauty.allwomenstalk.com/things-to-do-in-the-shower-other-than-just-wash/)
 - [7 Ways to Celebrate New Year with the Kids ...](https://parenting.allwomenstalk.com/ways-to-celebrate-new-year-with-the-kids/)
+- [7 Ways to Celebrate the Holidays with Presence Not...](https://inspiration.allwomenstalk.com/ways-to-celebrate-the-holidays-with-presence-not-presents/)
+- [7 Things to do in the Shower Other than Just Wash ...](https://beauty.allwomenstalk.com/things-to-do-in-the-shower-other-than-just-wash/)
+- [best infographics ever](https://lifestyle.allwomenstalk.com/best-party-infographics-for-the-best-party-ever/)
+- [things to do during winter break college students](https://lifestyle.allwomenstalk.com/fun-ideas-for-students-stuck-on-campus-during-winter-break/)
 - [Try This if You Need to Get into the Holiday Spiri...](https://inspiration.allwomenstalk.com/ways-to-get-into-the-holiday-spirit-quickly/)
 - [7 Christmassy Things to do This December ...](https://lifestyle.allwomenstalk.com/christmassy-things-to-do-this-december/)
+- [what things to do on christmas eve](https://lifestyle.allwomenstalk.com/simple-cozy-things-to-do-on-christmas-eve/)
+- [7 Themes for the Best Birthday Ever ...](https://lifestyle.allwomenstalk.com/themes-for-the-best-birthday-ever/)
 - [7 Ideas to Keep Kids Occupied during Summer Break ...](https://parenting.allwomenstalk.com/7-ideas-to-keep-kids-occupied-during-summer-break/)
 - [7 Fun Ways to Keep the Kids Entertained on a Holid...](https://parenting.allwomenstalk.com/fun-ways-to-keep-the-kids-entertained-on-a-holiday/)
 

@@ -28,16 +28,16 @@ Marijuana may be a wonderful alternative to stronger more invasive drugs. All po
 
 ## Related Posts
 
-- [do opposites really attract](https://love.allwomenstalk.com/do-opposites-really-attract/)
 - [Is Your Beauty Routine Harming the Planet](https://beauty.allwomenstalk.com/is-your-beauty-routine-harming-the-planet/)
+- [What is  Your Dieting Personality](https://weightloss.allwomenstalk.com/what-is-your-dieting-personality/)
+- [Which is the Best Type of Yoga for You](https://fitness.allwomenstalk.com/which-is-the-best-type-of-yoga-for-you/)
 - [Did You Know  the Way You Use Social Media Can Hin...](https://apps.allwomenstalk.com/did-you-know-the-way-you-use-social-media-can-hint-at-depression/)
+- [when not to keep a secret](https://lifestyle.allwomenstalk.com/when-is-it-okay-to-keep-a-secret/)
+- [do opposites really attract](https://love.allwomenstalk.com/do-opposites-really-attract/)
+- [Where is  the Metoo Headed](https://lifestyle.allwomenstalk.com/where-is-metoo-heading/)
+- [pedalstole](https://love.allwomenstalk.com/is-a-break-really-the-end-of-your-relationship/)
 - [How Long Should Your Monthly Cycle Be](https://health.allwomenstalk.com/how-long-should-your-monthly-cycle-be/)
 - [Are  Women in Love Crazy](https://love.allwomenstalk.com/are-women-in-love-crazy/)
-- [when not to keep a secret](https://lifestyle.allwomenstalk.com/when-is-it-okay-to-keep-a-secret/)
-- [pedalstole](https://love.allwomenstalk.com/is-a-break-really-the-end-of-your-relationship/)
-- [Which is the Best Type of Yoga for You](https://fitness.allwomenstalk.com/which-is-the-best-type-of-yoga-for-you/)
-- [Where is  the Metoo Headed](https://lifestyle.allwomenstalk.com/where-is-metoo-heading/)
-- [What is  Your Dieting Personality](https://weightloss.allwomenstalk.com/what-is-your-dieting-personality/)
 - [Does CBD Positively Influence Individual Performan...](https://allwomenstalk.com/does-cbd-positively-influence-individual-performance/)
 - [Can Hemp Be a Cure for Endometriosis and Other Rep...](https://allwomenstalk.com/hemp-cure-for-endometriosis/)
 

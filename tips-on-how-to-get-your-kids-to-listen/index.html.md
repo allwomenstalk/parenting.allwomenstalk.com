@@ -50,16 +50,16 @@ Being a parent isn’t always easy. There are moments that make you want to cry,
 
 ## Related Posts
 
-- [20 Tips for Discussing Race with Kids ...](https://parenting.allwomenstalk.com/tips-for-discussing-race-with-kids/)
 - [help kids have more friends](https://parenting.allwomenstalk.com/fun-ways-to-help-your-child-make-more-friends/)
-- [how to flirt with your childs teacher](https://parenting.allwomenstalk.com/tips-on-how-to-talk-to-your-childs-teacher/)
-- [7 Ways to Help Your Little One Get Ready for the F...](https://parenting.allwomenstalk.com/ways-to-help-your-little-one-get-ready-for-the-first-day-of-preschool/)
-- [7 Tips on How to Be a Great Babysitter ...](https://teen.allwomenstalk.com/tips-on-how-to-be-a-great-babysitter/)
 - [top foster care new years resolutions](https://parenting.allwomenstalk.com/amazing-new-years-resolutions-for-families/)
-- [tween activities](https://parenting.allwomenstalk.com/fun-things-to-do-with-your-tween-daughter-to-bond-with-them/)
+- [7 Tips on How to Be a Great Babysitter ...](https://teen.allwomenstalk.com/tips-on-how-to-be-a-great-babysitter/)
 - [living with someone with ocpd](https://health.allwomenstalk.com/tips-for-family-of-someone-with-obsessive-compulsive-personality-disorder/)
-- [7 Vitally Important Steps to Keep Your Kids Safe i...](https://parenting.allwomenstalk.com/vitally-important-steps-to-keep-your-kids-safe-in-the-car/)
+- [how to flirt with your childs teacher](https://parenting.allwomenstalk.com/tips-on-how-to-talk-to-your-childs-teacher/)
 - [making chores fun](https://parenting.allwomenstalk.com/ways-to-make-household-chores-fun-for-kids/)
+- [tween activities](https://parenting.allwomenstalk.com/fun-things-to-do-with-your-tween-daughter-to-bond-with-them/)
+- [7 Vitally Important Steps to Keep Your Kids Safe i...](https://parenting.allwomenstalk.com/vitally-important-steps-to-keep-your-kids-safe-in-the-car/)
+- [20 Tips for Discussing Race with Kids ...](https://parenting.allwomenstalk.com/tips-for-discussing-race-with-kids/)
+- [7 Ways to Help Your Little One Get Ready for the F...](https://parenting.allwomenstalk.com/ways-to-help-your-little-one-get-ready-for-the-first-day-of-preschool/)
 - [9 Essential Ways to Be a Good Parent ...](https://parenting.allwomenstalk.com/essential-ways-to-be-a-good-parent/)
 - [7 Ways to Be a Good Influence on Your Children ...](https://lifestyle.allwomenstalk.com/ways-to-be-a-good-influence-on-your-children/)
 

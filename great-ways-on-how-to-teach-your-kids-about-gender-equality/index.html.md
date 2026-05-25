@@ -32,16 +32,16 @@ Don’t play into all of the different gender stereotypes that have traditionall
 
 ## Related Posts
 
-- [Pro Tips on How to Balance Writing and Parenting ....](https://parenting.allwomenstalk.com/pro-tips-on-how-to-balance-writing-and-parenting/)
-- [what should you do to bridge the generation gap](https://parenting.allwomenstalk.com/tips-to-bridge-the-generation-gap-and-be-a-better-parent/)
-- [Qualifications to Look for when Picking a Tennis C...](https://parenting.allwomenstalk.com/qualifications-to-look-for-when-picking-a-tennis-camp-for-your-kids/)
-- [reasons to read to your child](https://parenting.allwomenstalk.com/important-reasons-to-read-to-your-children/)
-- [Tips for Teaching Your Children Proper Money Manag...](https://parenting.allwomenstalk.com/tips-for-teaching-your-children-proper-money-management/)
-- [prepare an infant for daycare](https://parenting.allwomenstalk.com/preparing-your-infant-for-daycare/)
 - [4 Great Ways to Curb Temper Tantrums in Your Child...](https://parenting.allwomenstalk.com/ways-to-curb-temper-tantrums/)
+- [Genius Ways to Get Children to Eat More Vegetables...](https://diet.allwomenstalk.com/genius-ways-to-get-children-to-eat-more-vegetables/)
 - [message to my child](https://inspiration.allwomenstalk.com/a-message-for-my-child/)
 - [How to Build a Stronger Relationship with Parents ...](https://allwomenstalk.com/how-to-build-a-stronger-relationship-with-parents-2/)
-- [Genius Ways to Get Children to Eat More Vegetables...](https://diet.allwomenstalk.com/genius-ways-to-get-children-to-eat-more-vegetables/)
+- [what should you do to bridge the generation gap](https://parenting.allwomenstalk.com/tips-to-bridge-the-generation-gap-and-be-a-better-parent/)
+- [Qualifications to Look for when Picking a Tennis C...](https://parenting.allwomenstalk.com/qualifications-to-look-for-when-picking-a-tennis-camp-for-your-kids/)
+- [prepare an infant for daycare](https://parenting.allwomenstalk.com/preparing-your-infant-for-daycare/)
+- [Tips for Teaching Your Children Proper Money Manag...](https://parenting.allwomenstalk.com/tips-for-teaching-your-children-proper-money-management/)
+- [reasons to read to your child](https://parenting.allwomenstalk.com/important-reasons-to-read-to-your-children/)
+- [Pro Tips on How to Balance Writing and Parenting ....](https://parenting.allwomenstalk.com/pro-tips-on-how-to-balance-writing-and-parenting/)
 - [Top 7 Things to Teach Your Children ...](https://parenting.allwomenstalk.com/top-7-things-to-teach-your-children/)
 - [9 Essential Ways to Be a Good Parent ...](https://parenting.allwomenstalk.com/essential-ways-to-be-a-good-parent/)
 

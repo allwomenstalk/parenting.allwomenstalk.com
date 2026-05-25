@@ -42,16 +42,16 @@ Well ladies, these are the best and worst things that I think come with having a
 
 ## Related Posts
 
-- [hospital labor and delivery bag](https://parenting.allwomenstalk.com/things-to-pack-for-childbirth-in-your-hospital-bag/)
-- [what is the weirdest pregnancy craving](https://parenting.allwomenstalk.com/strange-pregnancy-cravings-and-what-they-mean/)
 - [how becoming a parent changes you](https://parenting.allwomenstalk.com/positive-and-negative-ways-life-changes-when-you-become-a-parent/)
-- [how to make life easier with a newborn](https://parenting.allwomenstalk.com/ways-to-make-life-easier-after-bringing-your-newborn-home/)
-- [pros and cons of parenthood](https://parenting.allwomenstalk.com/pros-and-cons-of-postponing-parenthood/)
 - [baby chiropractor benefits](https://parenting.allwomenstalk.com/amazing-benefits-of-chiropractic-care-for-newborns/)
-- [mommy needs a break](https://parenting.allwomenstalk.com/ways-for-moms-to-get-a-break-without-a-sitter/)
-- [motherhood easy](https://parenting.allwomenstalk.com/ways-to-make-motherhood-easier-in-the-early-years/)
 - [5 qualities of mother](https://parenting.allwomenstalk.com/lovable-qualities-of-a-great-mother/)
+- [mommy needs a break](https://parenting.allwomenstalk.com/ways-for-moms-to-get-a-break-without-a-sitter/)
+- [pros and cons of parenthood](https://parenting.allwomenstalk.com/pros-and-cons-of-postponing-parenthood/)
 - [what to bring for babysitting](https://parenting.allwomenstalk.com/must-have-items-to-bring-when-you-babysit/)
+- [what is the weirdest pregnancy craving](https://parenting.allwomenstalk.com/strange-pregnancy-cravings-and-what-they-mean/)
+- [motherhood easy](https://parenting.allwomenstalk.com/ways-to-make-motherhood-easier-in-the-early-years/)
+- [how to make life easier with a newborn](https://parenting.allwomenstalk.com/ways-to-make-life-easier-after-bringing-your-newborn-home/)
+- [hospital labor and delivery bag](https://parenting.allwomenstalk.com/things-to-pack-for-childbirth-in-your-hospital-bag/)
 - [7 Things Parents Should Know ...](https://parenting.allwomenstalk.com/7-things-parents-should-know/)
 - [7 Things to Consider before Adopting a Child ...](https://parenting.allwomenstalk.com/7-things-to-consider-before-adopting-a-child/)
 

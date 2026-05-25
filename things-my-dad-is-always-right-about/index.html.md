@@ -42,16 +42,16 @@ I haven’t always gotten along with my dad but I’m so grateful that I’ve ha
 
 ## Related Posts
 
-- [what was the moral of the great gatsby](https://lifestyle.allwomenstalk.com/life-lessons-you-can-learn-from-the-great-gatsby/)
-- [how to restore your faith in humanity](https://inspiration.allwomenstalk.com/things-that-will-restore-your-faith-in-humanity/)
-- [movies like clueless](https://movies.allwomenstalk.com/lessons-clueless-taught-me/)
-- [truths for kids](https://parenting.allwomenstalk.com/adult-truths-that-kids-never-believe/)
-- [advantages and disadvantages of being kind](https://inspiration.allwomenstalk.com/advantages-of-being-nice-to-other-people-that-you-must-always-consider/)
+- [should i speak up or let it go](https://inspiration.allwomenstalk.com/times-you-should-speak-up/)
 - [never take for granted quotes](https://inspiration.allwomenstalk.com/things-you-should-never-take-for-granted/)
 - [lessons](https://movies.allwomenstalk.com/lessons-i-learned-from-buffy-the-vampire-slayer/)
-- [should i speak up or let it go](https://inspiration.allwomenstalk.com/times-you-should-speak-up/)
-- [creative talents decoupage paper](https://diy.allwomenstalk.com/things-i-learned-from-pinterest/)
+- [how to restore your faith in humanity](https://inspiration.allwomenstalk.com/things-that-will-restore-your-faith-in-humanity/)
 - [dont judge a book by its cover movie cast](https://lifestyle.allwomenstalk.com/disney-life-lessons-we-should-all-learn/)
+- [movies like clueless](https://movies.allwomenstalk.com/lessons-clueless-taught-me/)
+- [creative talents decoupage paper](https://diy.allwomenstalk.com/things-i-learned-from-pinterest/)
+- [advantages and disadvantages of being kind](https://inspiration.allwomenstalk.com/advantages-of-being-nice-to-other-people-that-you-must-always-consider/)
+- [what was the moral of the great gatsby](https://lifestyle.allwomenstalk.com/life-lessons-you-can-learn-from-the-great-gatsby/)
+- [truths for kids](https://parenting.allwomenstalk.com/adult-truths-that-kids-never-believe/)
 - [10 Things That Can Help You Understand Men Better ...](https://love.allwomenstalk.com/things-that-can-help-you-understand-men-better/)
 - [10 Tips for Being a Better Parent ...](https://allwomenstalk.com/10-tips-for-being-a-better-parent/)
 

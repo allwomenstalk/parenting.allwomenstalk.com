@@ -57,15 +57,15 @@ Do these reasons sound like good incentives for home schooling? I’m willing to
 ## Related Posts
 
 - [teaching kids to cook](https://parenting.allwomenstalk.com/ways-to-teach-your-kids-to-cook/)
-- [mixed kids girls](https://parenting.allwomenstalk.com/ways-to-train-your-children-for-the-future/)
-- [good values for kids](https://parenting.allwomenstalk.com/moral-values-to-teach-your-children/)
 - [how to be part of a community](https://lifestyle.allwomenstalk.com/ways-teens-can-help-the-community/)
-- [reasons why chores are bad](https://parenting.allwomenstalk.com/reasons-to-get-your-kids-to-do-chores/)
-- [toddler cartoons list](https://parenting.allwomenstalk.com/cartoons-that-are-good-for-kids-to-watch/)
-- [only child facts](https://parenting.allwomenstalk.com/facts-about-only-children-parents-should-know/)
 - [things to do with my daughter](https://parenting.allwomenstalk.com/best-things-you-can-do-for-your-children/)
-- [choosing a babysitter](https://parenting.allwomenstalk.com/tips-on-how-to-choose-a-babysitter/)
+- [good values for kids](https://parenting.allwomenstalk.com/moral-values-to-teach-your-children/)
+- [only child facts](https://parenting.allwomenstalk.com/facts-about-only-children-parents-should-know/)
 - [tolerance kids](https://parenting.allwomenstalk.com/ways-to-teach-kids-tolerance/)
+- [mixed kids girls](https://parenting.allwomenstalk.com/ways-to-train-your-children-for-the-future/)
+- [choosing a babysitter](https://parenting.allwomenstalk.com/tips-on-how-to-choose-a-babysitter/)
+- [toddler cartoons list](https://parenting.allwomenstalk.com/cartoons-that-are-good-for-kids-to-watch/)
+- [reasons why chores are bad](https://parenting.allwomenstalk.com/reasons-to-get-your-kids-to-do-chores/)
 - [7 Easy Ways to Boost Your Childs Education ...](https://parenting.allwomenstalk.com/7-easy-ways-to-boost-your-childs-education/)
 - [7 Reasons Kids Need Chores ...](https://parenting.allwomenstalk.com/7-reasons-kids-need-chores/)
 

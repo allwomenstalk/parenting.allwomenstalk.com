@@ -42,16 +42,16 @@ What alternatives to spanking work for you? Share your ideas here. Moms offering
 
 ## Related Posts
 
-- [biology doesnt make you a parent](https://parenting.allwomenstalk.com/best-parenting-infographics/)
-- [characteristics of a little child](https://lifestyle.allwomenstalk.com/characteristics-of-a-controlling-parent/)
-- [how to start a babysitting service](https://money.allwomenstalk.com/simple-ways-to-start-your-own-babysitting-business/)
-- [how to deal with stubborn child](https://parenting.allwomenstalk.com/tips-for-dealing-with-a-stubborn-child/)
-- [legos to build with your boyfriend](https://parenting.allwomenstalk.com/things-to-build-with-legos-that-your-kids-will-love/)
-- [myths about parenting](https://parenting.allwomenstalk.com/popular-myths-about-parenting-that-arent-true/)
 - [oobleck recipe nz](https://parenting.allwomenstalk.com/gooey-science-experiments-to-do-with-your-kid/)
-- [what is food production](https://food.allwomenstalk.com/ways-to-get-your-kids-interested-in-cooking/)
 - [parenting hacks](https://parenting.allwomenstalk.com/gentle-parenting-hacks-that-really-work/)
+- [what is food production](https://food.allwomenstalk.com/ways-to-get-your-kids-interested-in-cooking/)
+- [legos to build with your boyfriend](https://parenting.allwomenstalk.com/things-to-build-with-legos-that-your-kids-will-love/)
 - [why am i jealous of my stepchildren](https://parenting.allwomenstalk.com/tips-for-when-your-partner-is-jealous-of-your-child/)
+- [myths about parenting](https://parenting.allwomenstalk.com/popular-myths-about-parenting-that-arent-true/)
+- [how to deal with stubborn child](https://parenting.allwomenstalk.com/tips-for-dealing-with-a-stubborn-child/)
+- [biology doesnt make you a parent](https://parenting.allwomenstalk.com/best-parenting-infographics/)
+- [how to start a babysitting service](https://money.allwomenstalk.com/simple-ways-to-start-your-own-babysitting-business/)
+- [characteristics of a little child](https://lifestyle.allwomenstalk.com/characteristics-of-a-controlling-parent/)
 - [7 Ways to Get Your Child to Sleep ...](https://parenting.allwomenstalk.com/7-ways-to-get-your-child-to-sleep/)
 - [7 Ways to Calm an Unhappy Child ...](https://parenting.allwomenstalk.com/7-ways-to-calm-an-unhappy-child/)
 

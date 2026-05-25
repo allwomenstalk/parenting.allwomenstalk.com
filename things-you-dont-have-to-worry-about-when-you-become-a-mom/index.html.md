@@ -42,16 +42,16 @@ These are some things that are not worth worrying over when you become a mom. Wh
 
 ## Related Posts
 
-- [9 Things You Can do to Help Your Baby Relax and Ca...](https://parenting.allwomenstalk.com/things-you-can-do-to-help-your-baby-relax-and-calm-down/)
-- [7 Great Ways to Boost Your Energy Levels While Pre...](https://parenting.allwomenstalk.com/great-ways-to-boost-your-energy-levels-while-pregnant/)
-- [Everything New Parents Should Know about Baby Led ...](https://parenting.allwomenstalk.com/facts-new-parents-need-to-know-about-baby-led-weaning/)
-- [7 Helpful Tips when You Are Having a Baby on a Tig...](https://parenting.allwomenstalk.com/helpful-tips-when-you-are-having-a-baby-on-a-tight-budget/)
-- [7 Essentials for Your Hospital Maternity Bag ...](https://parenting.allwomenstalk.com/essentials-for-your-hospital-maternity-bag/)
-- [7 Things to Know about a Hospital Birth versus a H...](https://parenting.allwomenstalk.com/things-to-know-about-a-hospital-birth-versus-a-home-birth/)
-- [Skip These Items when Packing Your Hospital Matern...](https://parenting.allwomenstalk.com/items-you-dont-need-in-your-hospital-maternity-bag/)
-- [brain fog pregnancy](https://parenting.allwomenstalk.com/things-you-can-do-to-survive-pregnancy-brain-fog/)
 - [Must-Have Mom-Friendly Life Hacks for an Easier Li...](https://parenting.allwomenstalk.com/life-hacks-for-moms-to-make-life-easier/)
+- [7 Helpful Tips when You Are Having a Baby on a Tig...](https://parenting.allwomenstalk.com/helpful-tips-when-you-are-having-a-baby-on-a-tight-budget/)
+- [Everything New Parents Should Know about Baby Led ...](https://parenting.allwomenstalk.com/facts-new-parents-need-to-know-about-baby-led-weaning/)
 - [Essential Items New Moms Should Always Have on Han...](https://parenting.allwomenstalk.com/things-new-moms-should-have-on-hand-always/)
+- [9 Things You Can do to Help Your Baby Relax and Ca...](https://parenting.allwomenstalk.com/things-you-can-do-to-help-your-baby-relax-and-calm-down/)
+- [7 Essentials for Your Hospital Maternity Bag ...](https://parenting.allwomenstalk.com/essentials-for-your-hospital-maternity-bag/)
+- [brain fog pregnancy](https://parenting.allwomenstalk.com/things-you-can-do-to-survive-pregnancy-brain-fog/)
+- [7 Things to Know about a Hospital Birth versus a H...](https://parenting.allwomenstalk.com/things-to-know-about-a-hospital-birth-versus-a-home-birth/)
+- [7 Great Ways to Boost Your Energy Levels While Pre...](https://parenting.allwomenstalk.com/great-ways-to-boost-your-energy-levels-while-pregnant/)
+- [Skip These Items when Packing Your Hospital Matern...](https://parenting.allwomenstalk.com/items-you-dont-need-in-your-hospital-maternity-bag/)
 - [7 Secrets of Motherhood ...](https://parenting.allwomenstalk.com/7-secrets-of-motherhood/)
 - [8 Things Every New Mom Should Know ...](https://parenting.allwomenstalk.com/things-every-new-mom-should-know/)
 

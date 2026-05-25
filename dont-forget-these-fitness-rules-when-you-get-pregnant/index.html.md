@@ -42,16 +42,16 @@ Ok mama make sure you prioritize your health and fitness and keep it going!
 
 ## Related Posts
 
-- [heartburn during 3rd trimester](https://parenting.allwomenstalk.com/life-saving-infographics-for-moms-to-be/)
-- [does pushing a stroller burn more calories](https://parenting.allwomenstalk.com/burn-calories-with-your-baby-and-bond-at-the-same-time/)
-- [The Real Truth on the Benefits of Exercising While...](https://parenting.allwomenstalk.com/does-exercising-during-pregnancy-benefit-your-baby/)
-- [7 Ways to Ease Back into Exercising after Giving B...](https://parenting.allwomenstalk.com/ways-to-ease-back-into-exercising-after-giving-birth/)
-- [Dont Forget These Fitness Rules when You Get Pregn...](https://parenting.allwomenstalk.com/dont-forget-these-fitness-rules-when-you-get-pregnant-2/)
 - [How Can You Tell if Youre Actually Pregnant](https://parenting.allwomenstalk.com/how-can-you-tell-if-youre-actually-pregnant/)
-- [Awesome Tips for Mommys to Be  to Stay Fit during ...](https://parenting.allwomenstalk.com/how-to-stay-in-shape-if-you-have-a-baby-on-the-way/)
 - [7 Pregnancy Woes That You Can Turn around ...](https://parenting.allwomenstalk.com/pregnancy-woes-that-you-can-turn-around/)
-- [7 Easy Ways to Exercise when You Have a Baby on th...](https://parenting.allwomenstalk.com/easy-ways-to-exercise-when-you-have-a-baby-on-the-way/)
+- [Awesome Tips for Mommys to Be  to Stay Fit during ...](https://parenting.allwomenstalk.com/how-to-stay-in-shape-if-you-have-a-baby-on-the-way/)
 - [These Pictures Will Make You Want to Become a Pare...](https://parenting.allwomenstalk.com/these-pictures-will-make-you-want-to-become-a-parent/)
+- [does pushing a stroller burn more calories](https://parenting.allwomenstalk.com/burn-calories-with-your-baby-and-bond-at-the-same-time/)
+- [Dont Forget These Fitness Rules when You Get Pregn...](https://parenting.allwomenstalk.com/dont-forget-these-fitness-rules-when-you-get-pregnant-2/)
+- [7 Ways to Ease Back into Exercising after Giving B...](https://parenting.allwomenstalk.com/ways-to-ease-back-into-exercising-after-giving-birth/)
+- [heartburn during 3rd trimester](https://parenting.allwomenstalk.com/life-saving-infographics-for-moms-to-be/)
+- [7 Easy Ways to Exercise when You Have a Baby on th...](https://parenting.allwomenstalk.com/easy-ways-to-exercise-when-you-have-a-baby-on-the-way/)
+- [The Real Truth on the Benefits of Exercising While...](https://parenting.allwomenstalk.com/does-exercising-during-pregnancy-benefit-your-baby/)
 - [7 Tips on Staying Fit during Pregnancy ...](https://allwomenstalk.com/7-tips-on-staying-fit-during-pregnancy/)
 - [8 Smart Ways to Exercise While Pregnant ...](https://parenting.allwomenstalk.com/smart-ways-to-exercise-while-pregnant/)
 

@@ -163,16 +163,16 @@ Mother and daughter projects are meant to be fun, bonding activities. While many
 
 ## Related Posts
 
-- [what can glitter be used for](https://diy.allwomenstalk.com/fantastic-ways-to-use-leftover-glitter/)
-- [tye dye crafts](https://parenting.allwomenstalk.com/fun-tie-dye-crafts-your-kids-will-love/)
 - [different ways to express creativity](https://inspiration.allwomenstalk.com/awesome-ways-to-express-your-artistic-side/)
 - [new years eve crafts for adults](https://parenting.allwomenstalk.com/fun-new-years-eve-crafts-kids-will-enjoy/)
 - [how to make a care package](https://diy.allwomenstalk.com/diy-steps-to-creating-a-care-package-for-someone-you-know/)
 - [upcycled christmas gifts](https://diy.allwomenstalk.com/fun-ways-to-upcycle-christmas-cards/)
+- [crafts with paper bags](https://diy.allwomenstalk.com/fun-and-creative-paper-bag-crafts-for-kids/)
+- [what can glitter be used for](https://diy.allwomenstalk.com/fantastic-ways-to-use-leftover-glitter/)
+- [lampshade ideas](https://diy.allwomenstalk.com/extremely-simple-diy-lampshade-ideas-to-try-today/)
 - [recycled wood pallets](https://diy.allwomenstalk.com/amazing-ways-to-recycle-wood-pallets/)
 - [couples christmas crafts](https://parenting.allwomenstalk.com/creative-christmas-crafts-for-kids-to-try/)
-- [lampshade ideas](https://diy.allwomenstalk.com/extremely-simple-diy-lampshade-ideas-to-try-today/)
-- [crafts with paper bags](https://diy.allwomenstalk.com/fun-and-creative-paper-bag-crafts-for-kids/)
+- [tye dye crafts](https://parenting.allwomenstalk.com/fun-tie-dye-crafts-your-kids-will-love/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Easy DIY Projects for Teens ...](https://allwomenstalk.com/7-easy-diy-projects-for-teens/)
 

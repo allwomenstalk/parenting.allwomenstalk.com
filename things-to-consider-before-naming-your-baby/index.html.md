@@ -46,16 +46,16 @@ My husband and I are currently expecting our first baby, and these are things we
 
 ## Related Posts
 
-- [mom need a break](https://parenting.allwomenstalk.com/things-dads-can-do-to-give-mom-a-break/)
+- [baby diapers brands](https://parenting.allwomenstalk.com/best-diaper-brands-to-use/)
+- [can pedicure induce labor](https://parenting.allwomenstalk.com/ways-to-relax-while-pregnant/)
+- [baby first pictures ideas](https://parenting.allwomenstalk.com/adorable-newborn-photo-ideas/)
 - [how to clean newborn toys](https://parenting.allwomenstalk.com/things-to-sterilize-before-you-give-it-to-your-baby/)
 - [7 friends drawing](https://lifestyle.allwomenstalk.com/ways-to-stay-connected-with-your-new-mom-friends/)
-- [flying while pregnant tips](https://parenting.allwomenstalk.com/tips-for-flying-while-pregnant/)
-- [baby first pictures ideas](https://parenting.allwomenstalk.com/adorable-newborn-photo-ideas/)
-- [can pedicure induce labor](https://parenting.allwomenstalk.com/ways-to-relax-while-pregnant/)
-- [pregnancy complaints](https://parenting.allwomenstalk.com/common-complaints-of-pregnancy-and-how-you-can-combat-them/)
 - [emotionally ready for a baby](https://parenting.allwomenstalk.com/ways-to-mentally-prepare-for-a-baby/)
-- [baby diapers brands](https://parenting.allwomenstalk.com/best-diaper-brands-to-use/)
+- [flying while pregnant tips](https://parenting.allwomenstalk.com/tips-for-flying-while-pregnant/)
+- [pregnancy complaints](https://parenting.allwomenstalk.com/common-complaints-of-pregnancy-and-how-you-can-combat-them/)
 - [realize baby](https://parenting.allwomenstalk.com/things-you-dont-realize-until-you-have-a-baby/)
+- [mom need a break](https://parenting.allwomenstalk.com/things-dads-can-do-to-give-mom-a-break/)
 - [7 Things to Consider before Adopting a Child ...](https://parenting.allwomenstalk.com/7-things-to-consider-before-adopting-a-child/)
 - [8 Things You Need to Know about Your Teen ...](https://parenting.allwomenstalk.com/things-you-need-to-know-about-your-teen/)
 

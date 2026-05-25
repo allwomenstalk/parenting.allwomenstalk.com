@@ -42,16 +42,16 @@ So, now that I’ve gushed over my own child, you can see that I really love bei
 
 ## Related Posts
 
-- [what to do when your child is bullying others](https://parenting.allwomenstalk.com/tips-for-when-your-child-is-bullying-other-kids-at-school/)
-- [apps to help kids talk](https://apps.allwomenstalk.com/best-apps-to-teach-your-child-to-read/)
-- [fraternal twins](https://parenting.allwomenstalk.com/tips-for-raising-fraternal-twins/)
-- [why is my baby licking the floor](https://parenting.allwomenstalk.com/things-i-learned-from-my-1-year-old/)
-- [therapy metaphors](https://health.allwomenstalk.com/short-therapeutic-metaphors-for-the-child-within/)
 - [i love being an only child](https://parenting.allwomenstalk.com/amazing-things-about-being-and-having-an-only-child/)
-- [annoying tv shows](https://parenting.allwomenstalk.com/least-annoying-kid-shows-that-will-actually-teach-your-child-something/)
+- [fraternal twins](https://parenting.allwomenstalk.com/tips-for-raising-fraternal-twins/)
+- [therapy metaphors](https://health.allwomenstalk.com/short-therapeutic-metaphors-for-the-child-within/)
 - [high energy games for kids](https://parenting.allwomenstalk.com/fun-activities-for-high-energy-kids-that-will-keep-them-healthy-and-calm/)
-- [send a ball](https://parenting.allwomenstalk.com/things-to-mail-to-kids/)
+- [apps to help kids talk](https://apps.allwomenstalk.com/best-apps-to-teach-your-child-to-read/)
+- [what to do when your child is bullying others](https://parenting.allwomenstalk.com/tips-for-when-your-child-is-bullying-other-kids-at-school/)
 - [child wants to be vegetarian](https://parenting.allwomenstalk.com/ways-to-cope-with-a-vegetarian-child/)
+- [why is my baby licking the floor](https://parenting.allwomenstalk.com/things-i-learned-from-my-1-year-old/)
+- [annoying tv shows](https://parenting.allwomenstalk.com/least-annoying-kid-shows-that-will-actually-teach-your-child-something/)
+- [send a ball](https://parenting.allwomenstalk.com/things-to-mail-to-kids/)
 - [Top 7 Things to Teach Your Children ...](https://parenting.allwomenstalk.com/top-7-things-to-teach-your-children/)
 - [7 Times I Feel Im a Bad Parent ...](https://parenting.allwomenstalk.com/7-times-i-feel-im-a-bad-parent/)
 

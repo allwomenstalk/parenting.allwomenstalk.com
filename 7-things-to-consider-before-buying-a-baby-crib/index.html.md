@@ -44,16 +44,16 @@ Top Photo Credit: _tofslie_
 
 ## Related Posts
 
-- [what to pack for baby in hospital](https://parenting.allwomenstalk.com/essential-what-to-pack-for-the-hospital-when-having-a-baby/)
-- [best books on pregnancy and parenting](https://parenting.allwomenstalk.com/8-great-books-for-pregnant-moms/)
-- [how to introduce avocado to baby](https://parenting.allwomenstalk.com/easy-ways-to-use-avocados-as-babys-first-food/)
-- [mommy tips](https://parenting.allwomenstalk.com/7-great-tips-for-the-mommy-to-be/)
-- [new mom things to know](https://parenting.allwomenstalk.com/things-every-new-mom-should-know/)
-- [10 Newborn Essentials ...](https://parenting.allwomenstalk.com/newborn-essentials/)
-- [7 Most Popular Pregnancy Myths ...](https://parenting.allwomenstalk.com/7-most-popular-pregnancy-myths/)
 - [10 facts about breastfeeding](https://parenting.allwomenstalk.com/10-facts-on-breast-feeding/)
 - [7 Things a Pregnant Woman Needs in Her Diet ...](https://parenting.allwomenstalk.com/things-a-pregnant-woman-needs-in-her-diet/)
+- [what to pack for baby in hospital](https://parenting.allwomenstalk.com/essential-what-to-pack-for-the-hospital-when-having-a-baby/)
+- [7 Most Popular Pregnancy Myths ...](https://parenting.allwomenstalk.com/7-most-popular-pregnancy-myths/)
+- [mommy tips](https://parenting.allwomenstalk.com/7-great-tips-for-the-mommy-to-be/)
+- [best books on pregnancy and parenting](https://parenting.allwomenstalk.com/8-great-books-for-pregnant-moms/)
 - [tricks to get pregnant fast](https://parenting.allwomenstalk.com/tried-ways-to-get-pregnant-fast/)
+- [new mom things to know](https://parenting.allwomenstalk.com/things-every-new-mom-should-know/)
+- [10 Newborn Essentials ...](https://parenting.allwomenstalk.com/newborn-essentials/)
+- [how to introduce avocado to baby](https://parenting.allwomenstalk.com/easy-ways-to-use-avocados-as-babys-first-food/)
 - [8 Sleep Safety Tips for Your Baby ...](https://parenting.allwomenstalk.com/sleep-safety-tips-for-your-baby/)
 - [9 Best Babyproofing Tips ...](https://parenting.allwomenstalk.com/best-babyproofing-tips/)
 

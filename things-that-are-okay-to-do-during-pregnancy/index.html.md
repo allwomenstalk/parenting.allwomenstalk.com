@@ -46,16 +46,16 @@ What are a few things that you have heard are “unsafe” to do during pregnanc
 
 ## Related Posts
 
-- [8 Tips for Painting when Pregnant ...](https://health.allwomenstalk.com/tips-for-painting-when-pregnant/)
-- [9 Ways to Prepare for Birth ...](https://parenting.allwomenstalk.com/ways-to-prepare-for-birth/)
-- [9 Ways Moms Can Pamper Themselves ...](https://parenting.allwomenstalk.com/ways-moms-can-pamper-themselves/)
-- [7 Ways to Get Back into Shape after Having a Baby ...](https://parenting.allwomenstalk.com/ways-to-get-back-into-shape-after-having-a-baby/)
 - [7 Wonderful Benefits of Breastfeeding Your Preciou...](https://parenting.allwomenstalk.com/benefits-of-breastfeeding/)
-- [7 Things That Are Okay to do during Pregnancy ...](https://parenting.allwomenstalk.com/things-that-are-okay-to-do-during-pregnancy-2/)
-- [7 Important Tips for Weaning That You Should Try ....](https://parenting.allwomenstalk.com/important-tips-for-weaning-that-you-should-try/)
-- [7 Ways You Change after You Have a Baby ...](https://parenting.allwomenstalk.com/ways-you-change-after-you-have-a-baby/)
 - [7 Crucial Tips for Getting Intimate after Pregnanc...](https://parenting.allwomenstalk.com/tips-for-getting-intimate-after-pregnancy/)
+- [7 Ways You Change after You Have a Baby ...](https://parenting.allwomenstalk.com/ways-you-change-after-you-have-a-baby/)
 - [7 Ways to Prepare Your Firstborn for a Sibling ...](https://parenting.allwomenstalk.com/ways-to-prepare-your-firstborn-for-a-sibling/)
+- [9 Ways to Prepare for Birth ...](https://parenting.allwomenstalk.com/ways-to-prepare-for-birth/)
+- [7 Ways to Get Back into Shape after Having a Baby ...](https://parenting.allwomenstalk.com/ways-to-get-back-into-shape-after-having-a-baby/)
+- [7 Important Tips for Weaning That You Should Try ....](https://parenting.allwomenstalk.com/important-tips-for-weaning-that-you-should-try/)
+- [9 Ways Moms Can Pamper Themselves ...](https://parenting.allwomenstalk.com/ways-moms-can-pamper-themselves/)
+- [7 Things That Are Okay to do during Pregnancy ...](https://parenting.allwomenstalk.com/things-that-are-okay-to-do-during-pregnancy-2/)
+- [8 Tips for Painting when Pregnant ...](https://health.allwomenstalk.com/tips-for-painting-when-pregnant/)
 - [8 Things to do before You Head to the Labor Room ....](https://health.allwomenstalk.com/8-things-to-do-before-you-head-to-the-labor-room/)
 - [9 Things to Ask Your Doctor ...](https://health.allwomenstalk.com/9-things-to-ask-your-doctor/)
 

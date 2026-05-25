@@ -44,16 +44,16 @@ Top Photo Credit: _Ashlee Butanis_
 
 ## Related Posts
 
-- [how to prepare for baby arrival](https://parenting.allwomenstalk.com/ways-to-get-ready-for-your-babys-arrival/)
-- [the best exercises for pregnant women](https://parenting.allwomenstalk.com/best-exercises-for-pregnant-women/)
-- [10 facts about breastfeeding](https://parenting.allwomenstalk.com/10-facts-on-breast-feeding/)
-- [being a teenage mom](https://parenting.allwomenstalk.com/9-tips-for-real-teen-moms/)
-- [pregnancy nine months](https://parenting.allwomenstalk.com/facts-for-the-nine-months-youre-pregnant/)
-- [when to buy a crib](https://parenting.allwomenstalk.com/7-things-to-consider-before-buying-a-baby-crib/)
-- [7 Most Popular Pregnancy Myths ...](https://parenting.allwomenstalk.com/7-most-popular-pregnancy-myths/)
-- [advice for stay at home moms](https://parenting.allwomenstalk.com/8-great-tips-for-stay-at-home-moms/)
-- [7 Pregnancy Facts You Should Know ...](https://parenting.allwomenstalk.com/pregnancy-facts-you-should-know/)
 - [best books on pregnancy and parenting](https://parenting.allwomenstalk.com/8-great-books-for-pregnant-moms/)
+- [the best exercises for pregnant women](https://parenting.allwomenstalk.com/best-exercises-for-pregnant-women/)
+- [7 Pregnancy Facts You Should Know ...](https://parenting.allwomenstalk.com/pregnancy-facts-you-should-know/)
+- [being a teenage mom](https://parenting.allwomenstalk.com/9-tips-for-real-teen-moms/)
+- [advice for stay at home moms](https://parenting.allwomenstalk.com/8-great-tips-for-stay-at-home-moms/)
+- [how to prepare for baby arrival](https://parenting.allwomenstalk.com/ways-to-get-ready-for-your-babys-arrival/)
+- [pregnancy nine months](https://parenting.allwomenstalk.com/facts-for-the-nine-months-youre-pregnant/)
+- [7 Most Popular Pregnancy Myths ...](https://parenting.allwomenstalk.com/7-most-popular-pregnancy-myths/)
+- [10 facts about breastfeeding](https://parenting.allwomenstalk.com/10-facts-on-breast-feeding/)
+- [when to buy a crib](https://parenting.allwomenstalk.com/7-things-to-consider-before-buying-a-baby-crib/)
 - [7 Toys Every Child Should Have ...](https://allwomenstalk.com/7-toys-every-child-should-have/)
 - [7 Items You Shouldnt Buy at the Grocery Store ...](https://allwomenstalk.com/7-items-you-shouldnt-buy-at-the-grocery-store/)
 

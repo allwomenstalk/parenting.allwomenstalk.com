@@ -42,16 +42,16 @@ What’s the best piece of advice you could give to youngest children?
 
 ## Related Posts
 
-- [punctual people](https://lifestyle.allwomenstalk.com/most-common-habits-of-punctual-people/)
-- [body language mistakes](https://lifestyle.allwomenstalk.com/body-language-mistakes-you-may-be-making/)
-- [misconceptions about me](https://teen.allwomenstalk.com/common-misconceptions-about-teenagers-today/)
-- [shadow questions to ask yourself](https://inspiration.allwomenstalk.com/profound-questions-to-ask-yourself-in-life/)
+- [teenage worries](https://teen.allwomenstalk.com/top-things-teens-worry-about/)
 - [people in your life](https://inspiration.allwomenstalk.com/types-of-people-you-need-in-your-life-to-make-you-happy/)
 - [knitting life](https://inspiration.allwomenstalk.com/timeless-lessons-about-life-that-knitting-taught-me/)
-- [teenage worries](https://teen.allwomenstalk.com/top-things-teens-worry-about/)
+- [shadow questions to ask yourself](https://inspiration.allwomenstalk.com/profound-questions-to-ask-yourself-in-life/)
 - [misconceptions of introverts](https://lifestyle.allwomenstalk.com/very-popular-myths-about-introverts-that-arent-true/)
-- [mom was right](https://parenting.allwomenstalk.com/times-your-mother-was-right/)
 - [dont let what youre good at define who you are](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-emotional-baggage-so-it-doesnt-define-you/)
+- [body language mistakes](https://lifestyle.allwomenstalk.com/body-language-mistakes-you-may-be-making/)
+- [punctual people](https://lifestyle.allwomenstalk.com/most-common-habits-of-punctual-people/)
+- [misconceptions about me](https://teen.allwomenstalk.com/common-misconceptions-about-teenagers-today/)
+- [mom was right](https://parenting.allwomenstalk.com/times-your-mother-was-right/)
 - [Top 7 Things to Teach Your Children ...](https://parenting.allwomenstalk.com/top-7-things-to-teach-your-children/)
 - [7 Coolest Baby Milestones ...](https://parenting.allwomenstalk.com/7-coolest-baby-milestones/)
 

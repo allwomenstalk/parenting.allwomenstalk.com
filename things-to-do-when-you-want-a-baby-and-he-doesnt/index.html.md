@@ -42,16 +42,16 @@ These are 7 things to do when you're ready to have a baby and he isn't. Are you 
 
 ## Related Posts
 
+- [things to think about before having kids](https://parenting.allwomenstalk.com/things-to-think-about-before-having-children/)
+- [mom burnout signs](https://parenting.allwomenstalk.com/signs-of-mommy-burnout-and-how-to-cope/)
+- [talk about your shopping habit](https://money.allwomenstalk.com/ways-to-adjust-your-single-lady-shopping-habits-when-starting-a-family/)
+- [energetic mom](https://parenting.allwomenstalk.com/ways-to-have-more-energy-as-a-mom/)
+- [wise mom](https://parenting.allwomenstalk.com/moms-are-wise-reasons-to-listen-to-yours/)
 - [harmful ingredients in baby products](https://parenting.allwomenstalk.com/common-baby-products-that-contain-harmful-ingredients/)
 - [he wants a baby i dont](https://parenting.allwomenstalk.com/things-to-do-when-he-wants-a-baby-and-you-dont/)
-- [energetic mom](https://parenting.allwomenstalk.com/ways-to-have-more-energy-as-a-mom/)
-- [things to think about before having kids](https://parenting.allwomenstalk.com/things-to-think-about-before-having-children/)
 - [emojinal](https://lifestyle.allwomenstalk.com/ways-to-get-so-emojinal-baby/)
-- [talk about your shopping habit](https://money.allwomenstalk.com/ways-to-adjust-your-single-lady-shopping-habits-when-starting-a-family/)
-- [mom burnout signs](https://parenting.allwomenstalk.com/signs-of-mommy-burnout-and-how-to-cope/)
-- [lonely stay at home mom quotes](https://parenting.allwomenstalk.com/ways-to-beat-the-isolation-of-being-a-stay-at-home-mom/)
-- [wise mom](https://parenting.allwomenstalk.com/moms-are-wise-reasons-to-listen-to-yours/)
 - [new parents photoshoot](https://parenting.allwomenstalk.com/wonderful-newborn-photo-poses-you-wont-want-to-pass-up/)
+- [lonely stay at home mom quotes](https://parenting.allwomenstalk.com/ways-to-beat-the-isolation-of-being-a-stay-at-home-mom/)
 - [8 Things You Should Know before You Get Pregnant ....](https://parenting.allwomenstalk.com/things-you-should-know-before-you-get-pregnant/)
 - [8 Tried Ways to Get Pregnant Fast ...](https://parenting.allwomenstalk.com/tried-ways-to-get-pregnant-fast/)
 

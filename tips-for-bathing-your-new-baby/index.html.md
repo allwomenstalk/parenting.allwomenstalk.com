@@ -44,15 +44,15 @@ Top Photo Credit: [a roving eye](https://www.flickr.com/photos/rovingeyephotogra
 
 ## Related Posts
 
-- [pregnancy nine months](https://parenting.allwomenstalk.com/facts-for-the-nine-months-youre-pregnant/)
-- [ways to help new parents](https://parenting.allwomenstalk.com/8-ways-to-help-new-parents/)
-- [7 Baby Products You Dont Need to Buy ...](https://parenting.allwomenstalk.com/7-baby-products-you-dont-need-to-buy/)
-- [7 Pregnancy Facts You Should Know ...](https://parenting.allwomenstalk.com/pregnancy-facts-you-should-know/)
-- [6 Tips on Picking out the Proper Baby Stroller...](https://parenting.allwomenstalk.com/tips-on-picking-out-the-proper-baby-stroller/)
+- [advice for stay at home moms](https://parenting.allwomenstalk.com/8-great-tips-for-stay-at-home-moms/)
 - [8 Things You Should Know before You Get Pregnant ....](https://parenting.allwomenstalk.com/things-you-should-know-before-you-get-pregnant/)
+- [pregnancy nine months](https://parenting.allwomenstalk.com/facts-for-the-nine-months-youre-pregnant/)
+- [7 Baby Products You Dont Need to Buy ...](https://parenting.allwomenstalk.com/7-baby-products-you-dont-need-to-buy/)
+- [6 Tips on Picking out the Proper Baby Stroller...](https://parenting.allwomenstalk.com/tips-on-picking-out-the-proper-baby-stroller/)
+- [ways to help new parents](https://parenting.allwomenstalk.com/8-ways-to-help-new-parents/)
 - [things to know during pregnancy](https://parenting.allwomenstalk.com/10-things-pregnant-women-should-know/)
 - [the best exercises for pregnant women](https://parenting.allwomenstalk.com/best-exercises-for-pregnant-women/)
-- [advice for stay at home moms](https://parenting.allwomenstalk.com/8-great-tips-for-stay-at-home-moms/)
+- [7 Pregnancy Facts You Should Know ...](https://parenting.allwomenstalk.com/pregnancy-facts-you-should-know/)
 - [how to prepare for baby arrival](https://parenting.allwomenstalk.com/ways-to-get-ready-for-your-babys-arrival/)
 - [17 Tips on Creating a Home Bath Spa ...](https://allwomenstalk.com/how-to-get-rid-of-stress-with-a-home-bath-spa/)
 - [7 Tips on Shaving ...](https://allwomenstalk.com/7-tips-on-shaving/)

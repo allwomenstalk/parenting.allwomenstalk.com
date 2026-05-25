@@ -46,14 +46,14 @@ Now that you’re familiar with the reasons why children are tense, you can expe
 
 - [7 Cute Kids Birthday Themes That They Will Love .....](https://parenting.allwomenstalk.com/cute-kids-birthday-themes-that-they-will-love/)
 - [7 Common Behavior Problems of Children That You Sh...](https://parenting.allwomenstalk.com/common-behavior-problems-of-children/)
+- [7 Important Reasons to Read with Your Children ...](https://parenting.allwomenstalk.com/important-reasons-to-read-with-your-children/)
+- [7 Tips for Getting Your Baby to Try New Foods ...](https://parenting.allwomenstalk.com/tips-for-getting-your-baby-to-try-new-foods/)
+- [7 Benefits of Long Term Travel for Kids ...](https://travel.allwomenstalk.com/benefits-of-long-term-travel-for-kids/)
 - [7 Ways to Manage Working from Home with Kids ...](https://parenting.allwomenstalk.com/ways-to-manage-working-from-home-with-kids/)
 - [7 Ways to Keep Your Kids Occupied on Long Road Tri...](https://parenting.allwomenstalk.com/ways-to-keep-your-kids-occupied-on-long-road-trips/)
-- [7 Benefits of Long Term Travel for Kids ...](https://travel.allwomenstalk.com/benefits-of-long-term-travel-for-kids/)
-- [7 Tips for Getting Your Baby to Try New Foods ...](https://parenting.allwomenstalk.com/tips-for-getting-your-baby-to-try-new-foods/)
-- [7 Important Reasons to Read with Your Children ...](https://parenting.allwomenstalk.com/important-reasons-to-read-with-your-children/)
+- [learn numbers for toddlers](https://parenting.allwomenstalk.com/awesome-ways-to-teach-toddlers-numbers/)
 - [9 Ways to Talk to Your Child about Weight ...](https://parenting.allwomenstalk.com/ways-to-talk-to-your-child-about-weight/)
 - [9 Ways You Can Stay Involved with Your Children if...](https://parenting.allwomenstalk.com/ways-you-can-stay-involved-with-your-children-if-youre-a-long-distance-parent/)
-- [learn numbers for toddlers](https://parenting.allwomenstalk.com/awesome-ways-to-teach-toddlers-numbers/)
 - [7 Ways to Get Your Child to Sleep ...](https://parenting.allwomenstalk.com/7-ways-to-get-your-child-to-sleep/)
 - [7 Ways to Calm an Unhappy Child ...](https://parenting.allwomenstalk.com/7-ways-to-calm-an-unhappy-child/)
 

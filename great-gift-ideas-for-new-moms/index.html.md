@@ -56,16 +56,16 @@ I want to hear your thoughts. What do you usually give as a gift for new moms? I
 
 ## Related Posts
 
-- [what do tween girls want for christmas](https://lifestyle.allwomenstalk.com/amazing-gifts-for-tween-girls/)
-- [things to put in a food gift basket](https://food.allwomenstalk.com/ideas-for-food-gifts-for-all-occasions/)
-- [purple christmas wreaths](https://diy.allwomenstalk.com/christmas-wreaths-to-welcome-your-guests/)
-- [nail polish favors](https://parenting.allwomenstalk.com/baby-shower-favors-sure-to-be-a-hit/)
-- [10 fit ka teddy bear](https://parenting.allwomenstalk.com/adorable-teddy-bears-for-your-child-to-love/)
-- [baby shower diaper cake ideas](https://parenting.allwomenstalk.com/diaper-cakes-any-mother-will-adore-to-receive/)
 - [baby jewelry for christening](https://parenting.allwomenstalk.com/ideas-of-all-sorts-for-christening-gifts/)
-- [sorority big little basket ideas](https://teen.allwomenstalk.com/things-to-great-presents-to-include-during-big-little-gift-week/)
-- [swimming party favours](https://diy.allwomenstalk.com/outstanding-party-favors-you-can-customize-for-your-next-party/)
 - [printable dog bone stocking pattern](https://lifestyle.allwomenstalk.com/great-christmas-stockings-to-adorn-your-fireplace-this-year/)
+- [nail polish favors](https://parenting.allwomenstalk.com/baby-shower-favors-sure-to-be-a-hit/)
+- [baby shower diaper cake ideas](https://parenting.allwomenstalk.com/diaper-cakes-any-mother-will-adore-to-receive/)
+- [10 fit ka teddy bear](https://parenting.allwomenstalk.com/adorable-teddy-bears-for-your-child-to-love/)
+- [swimming party favours](https://diy.allwomenstalk.com/outstanding-party-favors-you-can-customize-for-your-next-party/)
+- [things to put in a food gift basket](https://food.allwomenstalk.com/ideas-for-food-gifts-for-all-occasions/)
+- [sorority big little basket ideas](https://teen.allwomenstalk.com/things-to-great-presents-to-include-during-big-little-gift-week/)
+- [what do tween girls want for christmas](https://lifestyle.allwomenstalk.com/amazing-gifts-for-tween-girls/)
+- [purple christmas wreaths](https://diy.allwomenstalk.com/christmas-wreaths-to-welcome-your-guests/)
 - [Affordable Mothers Day Gifts for Tech Savvy Moms ....](https://allwomenstalk.com/affordable-mothers-day-gifts-for-tech-savvy-moms/)
 - [Mothers Day Gift Ideas ...](https://allwomenstalk.com/mothers-day-gift-ideas/)
 

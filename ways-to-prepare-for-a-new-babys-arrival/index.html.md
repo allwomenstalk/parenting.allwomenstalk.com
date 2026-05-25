@@ -42,16 +42,16 @@ Remember not to stress when you're preparing yourself and home for your sweet ar
 
 ## Related Posts
 
-- [Put These Worries to Bed when You Become a Mom ...](https://parenting.allwomenstalk.com/things-you-dont-have-to-worry-about-when-you-become-a-mom/)
-- [7 Ways to Ease Pregnancy Backaches ...](https://parenting.allwomenstalk.com/ways-to-ease-pregnancy-backaches/)
 - [Everything New Parents Should Know about Baby Led ...](https://parenting.allwomenstalk.com/facts-new-parents-need-to-know-about-baby-led-weaning/)
-- [7 Ways Your Body Changes during Pregnancy besides ...](https://parenting.allwomenstalk.com/ways-your-body-changes-during-pregnancy-besides-the-obvious-bump/)
-- [9 Things You Can do to Help Your Baby Relax and Ca...](https://parenting.allwomenstalk.com/things-you-can-do-to-help-your-baby-relax-and-calm-down/)
-- [Why Working Moms Should Never Feel Guilty ...](https://parenting.allwomenstalk.com/reasons-you-shouldnt-feel-guilty-about-being-a-working-mom/)
 - [Essential Items New Moms Should Always Have on Han...](https://parenting.allwomenstalk.com/things-new-moms-should-have-on-hand-always/)
-- [7 Essentials for Your Hospital Maternity Bag ...](https://parenting.allwomenstalk.com/essentials-for-your-hospital-maternity-bag/)
+- [9 Things You Can do to Help Your Baby Relax and Ca...](https://parenting.allwomenstalk.com/things-you-can-do-to-help-your-baby-relax-and-calm-down/)
 - [7 Great Ways to Boost Your Energy Levels While Pre...](https://parenting.allwomenstalk.com/great-ways-to-boost-your-energy-levels-while-pregnant/)
 - [Skip These Items when Packing Your Hospital Matern...](https://parenting.allwomenstalk.com/items-you-dont-need-in-your-hospital-maternity-bag/)
+- [7 Ways to Ease Pregnancy Backaches ...](https://parenting.allwomenstalk.com/ways-to-ease-pregnancy-backaches/)
+- [7 Ways Your Body Changes during Pregnancy besides ...](https://parenting.allwomenstalk.com/ways-your-body-changes-during-pregnancy-besides-the-obvious-bump/)
+- [Put These Worries to Bed when You Become a Mom ...](https://parenting.allwomenstalk.com/things-you-dont-have-to-worry-about-when-you-become-a-mom/)
+- [Why Working Moms Should Never Feel Guilty ...](https://parenting.allwomenstalk.com/reasons-you-shouldnt-feel-guilty-about-being-a-working-mom/)
+- [7 Essentials for Your Hospital Maternity Bag ...](https://parenting.allwomenstalk.com/essentials-for-your-hospital-maternity-bag/)
 - [7 Great Tips for the Mommy-to-Be ...](https://parenting.allwomenstalk.com/7-great-tips-for-the-mommy-to-be/)
 - [7 Ways to Reduce Costs with a New Baby ...](https://parenting.allwomenstalk.com/ways-to-reduce-costs-with-a-new-baby/)
 

@@ -42,16 +42,16 @@ These are 7 things you can do to help your child deal with missing or far away g
 
 ## Related Posts
 
-- [grocery store tantrum](https://parenting.allwomenstalk.com/ways-to-avoid-toddler-tantrums-in-the-grocery-store/)
-- [wearing activities](https://parenting.allwomenstalk.com/activities-that-your-kids-should-wear-a-helmet-for/)
 - [maximising quality time with your child](https://parenting.allwomenstalk.com/tips-to-maximizing-time-with-your-child-as-a-working-mom/)
 - [babysitting kids games](https://teen.allwomenstalk.com/go-to-babysitting-games-to-entertain-the-kids/)
-- [it brings out the kid in you](https://lifestyle.allwomenstalk.com/activities-that-will-bring-out-the-kid-in-you/)
-- [7 Things Every Teen Should do with Her Mom ...](https://teen.allwomenstalk.com/things-every-teen-should-do-with-her-mom/)
-- [storytelling style](https://parenting.allwomenstalk.com/storytelling-styles-that-kids-enjoy/)
 - [teenage daughter problems](https://parenting.allwomenstalk.com/things-to-expect-when-raising-a-teenage-daughter/)
 - [aspirations for your child](https://parenting.allwomenstalk.com/ways-to-help-your-child-achieve-their-future-goals-and-aspirations/)
+- [storytelling style](https://parenting.allwomenstalk.com/storytelling-styles-that-kids-enjoy/)
 - [babysitting activity ideas](https://teen.allwomenstalk.com/fun-ways-to-keep-kids-occupied-when-babysitting/)
+- [grocery store tantrum](https://parenting.allwomenstalk.com/ways-to-avoid-toddler-tantrums-in-the-grocery-store/)
+- [wearing activities](https://parenting.allwomenstalk.com/activities-that-your-kids-should-wear-a-helmet-for/)
+- [7 Things Every Teen Should do with Her Mom ...](https://teen.allwomenstalk.com/things-every-teen-should-do-with-her-mom/)
+- [it brings out the kid in you](https://lifestyle.allwomenstalk.com/activities-that-will-bring-out-the-kid-in-you/)
 - [7 Cute Ideas for Family Portraits ...](https://parenting.allwomenstalk.com/cute-ideas-for-family-portraits/)
 - [7 Ways to Celebrate Your Heritage ...](https://allwomenstalk.com/7-ways-to-celebrate-your-heritage/)
 

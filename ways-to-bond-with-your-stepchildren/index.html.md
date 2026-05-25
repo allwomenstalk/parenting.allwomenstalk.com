@@ -44,16 +44,16 @@ Top Photo Credit: [Kewlkid](https://www.flickr.com/photos/kkid/1664717830/)
 
 ## Related Posts
 
-- [shopping with a toddler](https://parenting.allwomenstalk.com/10-ways-to-keep-a-toddler-happy-in-the-grocery-store/)
-- [my children have left home](https://parenting.allwomenstalk.com/tips-for-coping-when-a-child-leaves-home/)
-- [onesmile](https://parenting.allwomenstalk.com/7-ways-to-make-your-little-one-smile/)
-- [paris le stylo shadow enchanted](https://parenting.allwomenstalk.com/7-ways-to-reduce-the-worry-of-elderly-parents/)
-- [hypnotizes](https://movies.allwomenstalk.com/8-shows-that-will-hypnotize-your-kids/)
-- [7 Most Frequent Parenting Mistakes ...](https://parenting.allwomenstalk.com/7-most-frequent-parenting-mistakes/)
 - [what should i know about adoption](https://parenting.allwomenstalk.com/7-things-to-consider-before-adopting-a-child/)
+- [quality of a good parent](https://parenting.allwomenstalk.com/essential-ways-to-be-a-good-parent/)
+- [7 Most Frequent Parenting Mistakes ...](https://parenting.allwomenstalk.com/7-most-frequent-parenting-mistakes/)
+- [paris le stylo shadow enchanted](https://parenting.allwomenstalk.com/7-ways-to-reduce-the-worry-of-elderly-parents/)
+- [my children have left home](https://parenting.allwomenstalk.com/tips-for-coping-when-a-child-leaves-home/)
+- [hypnotizes](https://movies.allwomenstalk.com/8-shows-that-will-hypnotize-your-kids/)
+- [onesmile](https://parenting.allwomenstalk.com/7-ways-to-make-your-little-one-smile/)
+- [shopping with a toddler](https://parenting.allwomenstalk.com/10-ways-to-keep-a-toddler-happy-in-the-grocery-store/)
 - [8 Things You Need to Know about Your Teen ...](https://parenting.allwomenstalk.com/things-you-need-to-know-about-your-teen/)
 - [best co parenting tips](https://parenting.allwomenstalk.com/10-co-parenting-tips-for-divorced-parents/)
-- [quality of a good parent](https://parenting.allwomenstalk.com/essential-ways-to-be-a-good-parent/)
 - [7 Ways to Involve Your Kids with Everything ...](https://parenting.allwomenstalk.com/7-ways-to-involve-your-kids-with-everything/)
 - [7 Daily Relationship Tips for Your Children ...](https://parenting.allwomenstalk.com/7-daily-relationship-tips-for-your-children/)
 

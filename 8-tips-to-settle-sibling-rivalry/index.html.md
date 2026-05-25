@@ -56,16 +56,16 @@ Top Photo Credit: [cdn.sheknows.com](http://cdn.sheknows.com/articles/sibling-ri
 
 ## Related Posts
 
-- [8 Alternatives to Punishment ...](https://parenting.allwomenstalk.com/alternatives-to-punishment/)
-- [12 Things You Can Say to Someone Suicidal or Depre...](https://health.allwomenstalk.com/12-things-you-can-say-to-someone-suicidal-or-depressed/)
-- [difficult daughter in law problems](https://lifestyle.allwomenstalk.com/ways-to-deal-with-a-difficult-daughter-in-law/)
-- [how to avoid peer pressure](https://lifestyle.allwomenstalk.com/positive-tips-to-avoid-peer-pressure/)
-- [how to deal with insults from friends](https://lifestyle.allwomenstalk.com/ways-to-handle-an-insult/)
-- [9 Easy Ways to Overcome Your Shyness ...](https://lifestyle.allwomenstalk.com/easy-ways-to-overcome-your-shyness/)
-- [7 Ways to Thank Your Teacher ...](https://lifestyle.allwomenstalk.com/ways-to-thank-your-teacher/)
 - [how to overcome envy](https://lifestyle.allwomenstalk.com/tips-to-overcome-envy/)
 - [how to help others](https://lifestyle.allwomenstalk.com/ways-to-help-other-people/)
+- [7 Ways to Thank Your Teacher ...](https://lifestyle.allwomenstalk.com/ways-to-thank-your-teacher/)
+- [8 Alternatives to Punishment ...](https://parenting.allwomenstalk.com/alternatives-to-punishment/)
 - [7 People to Ask for Advice ...](https://lifestyle.allwomenstalk.com/people-to-ask-for-advice/)
+- [9 Easy Ways to Overcome Your Shyness ...](https://lifestyle.allwomenstalk.com/easy-ways-to-overcome-your-shyness/)
+- [12 Things You Can Say to Someone Suicidal or Depre...](https://health.allwomenstalk.com/12-things-you-can-say-to-someone-suicidal-or-depressed/)
+- [difficult daughter in law problems](https://lifestyle.allwomenstalk.com/ways-to-deal-with-a-difficult-daughter-in-law/)
+- [how to deal with insults from friends](https://lifestyle.allwomenstalk.com/ways-to-handle-an-insult/)
+- [how to avoid peer pressure](https://lifestyle.allwomenstalk.com/positive-tips-to-avoid-peer-pressure/)
 - [8 Tips on Resolving Fights between Your Children ....](https://parenting.allwomenstalk.com/8-tips-on-resolving-fights-between-your-children/)
 - [7 Things to do with Your Siblings ...](https://allwomenstalk.com/7-things-to-do-with-your-siblings/)
 

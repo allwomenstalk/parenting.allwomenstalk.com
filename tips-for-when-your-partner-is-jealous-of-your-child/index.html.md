@@ -42,16 +42,16 @@ It's definitely possible for a jealous partner to get over their feelings and be
 
 ## Related Posts
 
-- [how to run peaceful with our family](https://inspiration.allwomenstalk.com/simple-ideas-to-keep-your-family-peaceful/)
-- [biology doesnt make you a parent](https://parenting.allwomenstalk.com/best-parenting-infographics/)
-- [treated like a](https://teen.allwomenstalk.com/ways-to-get-treated-like-a-responsible-adult-when-youre-young/)
-- [legos to build with your boyfriend](https://parenting.allwomenstalk.com/things-to-build-with-legos-that-your-kids-will-love/)
-- [todler milestones](https://parenting.allwomenstalk.com/exciting-toddler-milestones-to-look-forward-to/)
-- [trying not to raise](https://parenting.allwomenstalk.com/tips-if-your-parents-are-telling-you-how-to-raise-your-kids/)
-- [teaching children about charity](https://money.allwomenstalk.com/ways-to-teach-your-kids-about-charitable-donations/)
-- [myths about parenting](https://parenting.allwomenstalk.com/popular-myths-about-parenting-that-arent-true/)
 - [teach the children christmas](https://parenting.allwomenstalk.com/ways-to-teach-children-about-giving-to-others-at-christmas/)
 - [Discover How to Avoid Being an Embarrassing Parent...](https://parenting.allwomenstalk.com/ways-to-avoid-being-an-embarrassing-parent/)
+- [treated like a](https://teen.allwomenstalk.com/ways-to-get-treated-like-a-responsible-adult-when-youre-young/)
+- [todler milestones](https://parenting.allwomenstalk.com/exciting-toddler-milestones-to-look-forward-to/)
+- [teaching children about charity](https://money.allwomenstalk.com/ways-to-teach-your-kids-about-charitable-donations/)
+- [biology doesnt make you a parent](https://parenting.allwomenstalk.com/best-parenting-infographics/)
+- [legos to build with your boyfriend](https://parenting.allwomenstalk.com/things-to-build-with-legos-that-your-kids-will-love/)
+- [how to run peaceful with our family](https://inspiration.allwomenstalk.com/simple-ideas-to-keep-your-family-peaceful/)
+- [trying not to raise](https://parenting.allwomenstalk.com/tips-if-your-parents-are-telling-you-how-to-raise-your-kids/)
+- [myths about parenting](https://parenting.allwomenstalk.com/popular-myths-about-parenting-that-arent-true/)
 - [7 Ways to Help Your Child through Your Divorce ...](https://parenting.allwomenstalk.com/7-ways-to-help-your-child-through-your-divorce/)
 - [7 Daily Relationship Tips for Your Children ...](https://parenting.allwomenstalk.com/7-daily-relationship-tips-for-your-children/)
 

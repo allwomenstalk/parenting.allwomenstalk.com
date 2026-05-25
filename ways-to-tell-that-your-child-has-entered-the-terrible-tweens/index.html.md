@@ -59,15 +59,15 @@ The best way to get through the Terrible Tweens is to exercise patience – lots
 ## Related Posts
 
 - [childhood myths told by parents](https://parenting.allwomenstalk.com/creepy-myths-that-might-be-scaring-your-kids/)
-- [make difference in the world](https://teen.allwomenstalk.com/ways-teens-can-make-a-difference-in-the-world/)
-- [hows your relationship with your parents](https://teen.allwomenstalk.com/ways-to-improve-your-relationship-with-your-parents/)
-- [negotiate with parents](https://teen.allwomenstalk.com/helpful-tips-for-negotiating-with-your-parents/)
+- [are parents responsible for their childrens behavi...](https://parenting.allwomenstalk.com/reasons-to-stop-blaming-parents-for-a-childs-misbehavior/)
 - [signs toddlers are ready for potty training](https://parenting.allwomenstalk.com/easy-to-recognize-signs-that-your-toddler-is-ready-to-potty-train/)
-- [how to discipline a child with oppositional defian...](https://parenting.allwomenstalk.com/ways-to-manage-oppositional-defiant-disorder-in-children/)
+- [hows your relationship with your parents](https://teen.allwomenstalk.com/ways-to-improve-your-relationship-with-your-parents/)
 - [kids playing in the playground](https://fitness.allwomenstalk.com/exercises-you-can-do-at-the-playground-while-your-kids-play/)
 - [7 ways to build good relationship with my family](https://teen.allwomenstalk.com/ways-to-bond-with-your-parents/)
-- [are parents responsible for their childrens behavi...](https://parenting.allwomenstalk.com/reasons-to-stop-blaming-parents-for-a-childs-misbehavior/)
+- [how to discipline a child with oppositional defian...](https://parenting.allwomenstalk.com/ways-to-manage-oppositional-defiant-disorder-in-children/)
 - [anger management skills for kids](https://parenting.allwomenstalk.com/ways-to-teach-your-child-anger-management-skills/)
+- [make difference in the world](https://teen.allwomenstalk.com/ways-teens-can-make-a-difference-in-the-world/)
+- [negotiate with parents](https://teen.allwomenstalk.com/helpful-tips-for-negotiating-with-your-parents/)
 - [7 Things Parents Should Know ...](https://parenting.allwomenstalk.com/7-things-parents-should-know/)
 - [8 Ways You Realise Kids Have Grown up ...](https://parenting.allwomenstalk.com/8-ways-you-realise-kids-have-grown-up/)
 

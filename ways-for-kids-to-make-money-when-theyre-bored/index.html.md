@@ -42,16 +42,16 @@ If your kids are complaining of boredom this summer, suggesting ways for them to
 
 ## Related Posts
 
-- [schools for troubled teens near me](https://parenting.allwomenstalk.com/tips-for-when-you-feel-your-child-doesnt-need-you-any-more/)
-- [french parents](https://parenting.allwomenstalk.com/french-parenting-basics-that-will-make-your-life-easier/)
-- [audio bedtime stories over 10 mins](https://books.allwomenstalk.com/stories-to-read-to-your-kids-within-10-minutes/)
 - [shopping](https://parenting.allwomenstalk.com/of-the-best-tips-for-shopping-with-children/)
-- [kid cudio](https://parenting.allwomenstalk.com/ways-to-deal-with-your-kids-tantrums/)
-- [how do siblings show love](https://parenting.allwomenstalk.com/tips-on-how-to-raise-siblings-that-love-each-other/)
-- [why do we need to listen to our parents](https://teen.allwomenstalk.com/reasons-to-listen-to-your-parents/)
-- [potty training books](https://parenting.allwomenstalk.com/great-potty-training-books-your-child-will-enjoy/)
 - [how to become a young author](https://books.allwomenstalk.com/ways-to-encourage-a-young-writer/)
+- [audio bedtime stories over 10 mins](https://books.allwomenstalk.com/stories-to-read-to-your-kids-within-10-minutes/)
+- [kid cudio](https://parenting.allwomenstalk.com/ways-to-deal-with-your-kids-tantrums/)
+- [french parents](https://parenting.allwomenstalk.com/french-parenting-basics-that-will-make-your-life-easier/)
 - [dr suess decorations](https://parenting.allwomenstalk.com/totally-great-dr-seuss-things-to-share-with-your-kids/)
+- [potty training books](https://parenting.allwomenstalk.com/great-potty-training-books-your-child-will-enjoy/)
+- [why do we need to listen to our parents](https://teen.allwomenstalk.com/reasons-to-listen-to-your-parents/)
+- [how do siblings show love](https://parenting.allwomenstalk.com/tips-on-how-to-raise-siblings-that-love-each-other/)
+- [schools for troubled teens near me](https://parenting.allwomenstalk.com/tips-for-when-you-feel-your-child-doesnt-need-you-any-more/)
 - [7 Ideas to Keep Kids Occupied during Summer Break ...](https://parenting.allwomenstalk.com/7-ideas-to-keep-kids-occupied-during-summer-break/)
 - [7 Summer Activities for Bored Preschoolers ...](https://parenting.allwomenstalk.com/summer-activities-for-bored-preschoolers/)
 

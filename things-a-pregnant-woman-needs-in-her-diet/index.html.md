@@ -42,15 +42,15 @@ Top Photo Credit: [Alex Bramwell](https://www.flickr.com/photos/spanishalex/5452
 
 ## Related Posts
 
+- [10 Newborn Essentials ...](https://parenting.allwomenstalk.com/newborn-essentials/)
+- [new mom things to know](https://parenting.allwomenstalk.com/things-every-new-mom-should-know/)
+- [what to pack for baby in hospital](https://parenting.allwomenstalk.com/essential-what-to-pack-for-the-hospital-when-having-a-baby/)
 - [7 Things to Remember in Your Diaper Bag ...](https://parenting.allwomenstalk.com/7-things-to-remember-in-your-diaper-bag/)
 - [9 Best Babyproofing Tips ...](https://parenting.allwomenstalk.com/best-babyproofing-tips/)
-- [what to pack for baby in hospital](https://parenting.allwomenstalk.com/essential-what-to-pack-for-the-hospital-when-having-a-baby/)
-- [7 Things New Moms May Not Know ...](https://parenting.allwomenstalk.com/7-things-new-moms-may-not-know/)
-- [10 Newborn Essentials ...](https://parenting.allwomenstalk.com/newborn-essentials/)
-- [craving coffee meaning](https://parenting.allwomenstalk.com/strangest-pregnancy-cravings/)
-- [tricks to get pregnant fast](https://parenting.allwomenstalk.com/tried-ways-to-get-pregnant-fast/)
-- [new mom things to know](https://parenting.allwomenstalk.com/things-every-new-mom-should-know/)
 - [mommy tips](https://parenting.allwomenstalk.com/7-great-tips-for-the-mommy-to-be/)
+- [7 Things New Moms May Not Know ...](https://parenting.allwomenstalk.com/7-things-new-moms-may-not-know/)
+- [tricks to get pregnant fast](https://parenting.allwomenstalk.com/tried-ways-to-get-pregnant-fast/)
+- [craving coffee meaning](https://parenting.allwomenstalk.com/strangest-pregnancy-cravings/)
 - [7 Simple Tips on Weaning Your Baby ...](https://parenting.allwomenstalk.com/7-simple-tips-on-weaning-your-baby/)
 - [7 Foods to Avoid While Pregnant ...](https://parenting.allwomenstalk.com/7-foods-to-avoid-while-pregnant/)
 - [7 Superfoods to Add to Your Diet ...](https://allwomenstalk.com/superfoods-to-add-to-your-diet/)

@@ -42,16 +42,16 @@ Do you dread your child’s first day of preschool? I’ve done it three times a
 
 ## Related Posts
 
-- [tween activities](https://parenting.allwomenstalk.com/fun-things-to-do-with-your-tween-daughter-to-bond-with-them/)
+- [7 Chores Even a Toddler Can do ...](https://parenting.allwomenstalk.com/chores-even-a-toddler-can-do/)
 - [7 Tips on How to Be a Great Babysitter ...](https://teen.allwomenstalk.com/tips-on-how-to-be-a-great-babysitter/)
-- [7 Simple Ways to Encourage Your Childs Love of Lea...](https://parenting.allwomenstalk.com/simple-ways-to-encourage-your-childs-love-of-learning/)
+- [tween activities](https://parenting.allwomenstalk.com/fun-things-to-do-with-your-tween-daughter-to-bond-with-them/)
+- [top foster care new years resolutions](https://parenting.allwomenstalk.com/amazing-new-years-resolutions-for-families/)
+- [7 Ways to Make Healthy Living a Family Affair ...](https://health.allwomenstalk.com/ways-to-make-healthy-living-a-family-affair/)
+- [7 Ways to Help Your Child if You Are Worried about...](https://parenting.allwomenstalk.com/ways-to-help-your-child-if-you-are-worried-about-their-weight/)
+- [7 Life Lessons You Learn when Youre a Parent ...](https://parenting.allwomenstalk.com/life-lessons-you-learn-when-youre-a-parent/)
 - [7 Tips for What to do if Your Child is Being Bulli...](https://parenting.allwomenstalk.com/tips-for-what-to-do-if-your-child-is-being-bullied/)
 - [how to flirt with your childs teacher](https://parenting.allwomenstalk.com/tips-on-how-to-talk-to-your-childs-teacher/)
-- [7 Chores Even a Toddler Can do ...](https://parenting.allwomenstalk.com/chores-even-a-toddler-can-do/)
-- [7 Life Lessons You Learn when Youre a Parent ...](https://parenting.allwomenstalk.com/life-lessons-you-learn-when-youre-a-parent/)
-- [7 Ways to Help Your Child if You Are Worried about...](https://parenting.allwomenstalk.com/ways-to-help-your-child-if-you-are-worried-about-their-weight/)
-- [7 Ways to Make Healthy Living a Family Affair ...](https://health.allwomenstalk.com/ways-to-make-healthy-living-a-family-affair/)
-- [top foster care new years resolutions](https://parenting.allwomenstalk.com/amazing-new-years-resolutions-for-families/)
+- [7 Simple Ways to Encourage Your Childs Love of Lea...](https://parenting.allwomenstalk.com/simple-ways-to-encourage-your-childs-love-of-learning/)
 - [7 Easy Ways to Boost Your Childs Education ...](https://parenting.allwomenstalk.com/7-easy-ways-to-boost-your-childs-education/)
 - [7 Tips on Being a Parent to a Toddler ...](https://allwomenstalk.com/7-tips-on-being-a-parent-to-a-toddler/)
 

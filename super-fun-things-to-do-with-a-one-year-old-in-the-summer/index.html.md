@@ -56,16 +56,16 @@ Well ladies these are the fun things that I love to do with my one year old in t
 
 ## Related Posts
 
-- [aspen tourist attractions](https://travel.allwomenstalk.com/attractions-of-aspen-in-the-summertime/)
-- [beach date food ideas](https://food.allwomenstalk.com/tips-for-a-beach-picnic-that-goes-with-a-bang/)
-- [having a good summer](https://lifestyle.allwomenstalk.com/simple-ways-to-have-a-great-summer/)
-- [high school summer jobs](https://teen.allwomenstalk.com/great-summer-jobs-for-high-school-students/)
 - [pleine lune cheese](https://food.allwomenstalk.com/delicious-cheeses-for-your-summer-cheeseboard/)
-- [summer roll ideas](https://food.allwomenstalk.com/summer-roll-recipes-that-are-sure-to-satisfy-any-craving/)
-- [vacation destinations vermont](https://travel.allwomenstalk.com/best-places-to-visit-in-vermont-during-the-summer/)
-- [barbaque sause](https://food.allwomenstalk.com/barbecue-sauce-recipes-to-make-this-summer-totally-tasty/)
-- [top attractions newfoundland](https://travel.allwomenstalk.com/places-to-visit-in-newfoundland-in-the-summer/)
 - [cleanest lakes in georgia](https://travel.allwomenstalk.com/best-lakes-for-summer-vacation/)
+- [having a good summer](https://lifestyle.allwomenstalk.com/simple-ways-to-have-a-great-summer/)
+- [top attractions newfoundland](https://travel.allwomenstalk.com/places-to-visit-in-newfoundland-in-the-summer/)
+- [high school summer jobs](https://teen.allwomenstalk.com/great-summer-jobs-for-high-school-students/)
+- [beach date food ideas](https://food.allwomenstalk.com/tips-for-a-beach-picnic-that-goes-with-a-bang/)
+- [vacation destinations vermont](https://travel.allwomenstalk.com/best-places-to-visit-in-vermont-during-the-summer/)
+- [aspen tourist attractions](https://travel.allwomenstalk.com/attractions-of-aspen-in-the-summertime/)
+- [summer roll ideas](https://food.allwomenstalk.com/summer-roll-recipes-that-are-sure-to-satisfy-any-craving/)
+- [barbaque sause](https://food.allwomenstalk.com/barbecue-sauce-recipes-to-make-this-summer-totally-tasty/)
 - [7 Ideas to Keep Kids Occupied during Summer Break ...](https://parenting.allwomenstalk.com/7-ideas-to-keep-kids-occupied-during-summer-break/)
 - [7 Ways to Entertain Your Kids This Summer ...](https://allwomenstalk.com/7-ways-to-entertain-your-kids-this-summer/)
 

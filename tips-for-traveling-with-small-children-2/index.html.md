@@ -50,16 +50,16 @@ Traveling with kids is never predictable! However, these tips should help things
 
 ## Related Posts
 
-- [9 Tips to Make Vacationing with an Infant Stress-F...](https://parenting.allwomenstalk.com/tips-to-make-vacationing-with-an-infant-stress-free/)
-- [A Must-Have Checklist for Your Next Trip ...](https://travel.allwomenstalk.com/things-you-need-to-check-before-traveling/)
-- [paris riche stylo bottomless](https://travel.allwomenstalk.com/ways-to-not-be-a-jerk-when-traveling/)
-- [7 Medicines to Take when Travelling ...](https://travel.allwomenstalk.com/medicines-to-take-when-travelling/)
-- [sleeping at airports](https://travel.allwomenstalk.com/tips-for-sleeping-at-airports/)
-- [7 Ways to Score Travel Deals ...](https://travel.allwomenstalk.com/ways-to-score-travel-deals/)
-- [7 Tips for Vacationing with Friends ...](https://travel.allwomenstalk.com/tips-for-vacationing-with-friends/)
-- [7 Travel Blunders You Should Avoid Committing ...](https://travel.allwomenstalk.com/travel-blunders-you-should-avoid-committing/)
 - [9 Tips for Travelling to Marrakech ...](https://travel.allwomenstalk.com/tips-for-travelling-to-marrakech/)
+- [9 Tips to Make Vacationing with an Infant Stress-F...](https://parenting.allwomenstalk.com/tips-to-make-vacationing-with-an-infant-stress-free/)
+- [7 Ways to Score Travel Deals ...](https://travel.allwomenstalk.com/ways-to-score-travel-deals/)
+- [7 Travel Blunders You Should Avoid Committing ...](https://travel.allwomenstalk.com/travel-blunders-you-should-avoid-committing/)
+- [7 Medicines to Take when Travelling ...](https://travel.allwomenstalk.com/medicines-to-take-when-travelling/)
 - [7 Tips for Travelling to Geneva ...](https://travel.allwomenstalk.com/tips-for-travelling-to-geneva/)
+- [sleeping at airports](https://travel.allwomenstalk.com/tips-for-sleeping-at-airports/)
+- [paris riche stylo bottomless](https://travel.allwomenstalk.com/ways-to-not-be-a-jerk-when-traveling/)
+- [A Must-Have Checklist for Your Next Trip ...](https://travel.allwomenstalk.com/things-you-need-to-check-before-traveling/)
+- [7 Tips for Vacationing with Friends ...](https://travel.allwomenstalk.com/tips-for-vacationing-with-friends/)
 - [9 Things for a Mother to Remember on a Trip ...](https://travel.allwomenstalk.com/things-for-a-mother-to-remember-on-a-trip/)
 - [7 Tips for Travelling with Children ...](https://travel.allwomenstalk.com/tips-for-travelling-with-children/)
 

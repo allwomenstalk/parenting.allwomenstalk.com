@@ -42,16 +42,16 @@ These are 7 tips to help you have a healthy, fit and fabulous pregnancy. What’
 
 ## Related Posts
 
-- [an amazing mother](https://parenting.allwomenstalk.com/signs-youre-going-to-be-an-amazing-mom/)
-- [foods you cant eat when pregnant](https://parenting.allwomenstalk.com/foods-pregnant-women-should-avoid-at-all-costs/)
-- [blast away drink](https://fitness.allwomenstalk.com/blast-away-your-baby-weight-with-these-tips/)
-- [mom style man](https://fashion.allwomenstalk.com/its-time-to-embrace-these-embarrassing-mom-trends/)
-- [mom apps to meet other moms](https://parenting.allwomenstalk.com/places-where-youre-guaranteed-to-make-fellow-mom-friends/)
-- [gift of motherhood](https://parenting.allwomenstalk.com/the-most-rewarding-things-about-being-a-mother/)
 - [things moms do](https://parenting.allwomenstalk.com/daily-things-moms-should-do-for-themselves/)
-- [what are good jobs for stay at home moms](https://money.allwomenstalk.com/awesome-side-jobs-for-stay-at-home-moms/)
 - [being pregnant is a blessing](https://parenting.allwomenstalk.com/all-of-the-benefits-and-blessings-of-being-pregnant/)
+- [blast away drink](https://fitness.allwomenstalk.com/blast-away-your-baby-weight-with-these-tips/)
+- [foods you cant eat when pregnant](https://parenting.allwomenstalk.com/foods-pregnant-women-should-avoid-at-all-costs/)
+- [an amazing mother](https://parenting.allwomenstalk.com/signs-youre-going-to-be-an-amazing-mom/)
 - [halloween maternity pictures](https://parenting.allwomenstalk.com/pregnant-women-should-try-taking-these-types-of-maternity-photos/)
+- [gift of motherhood](https://parenting.allwomenstalk.com/the-most-rewarding-things-about-being-a-mother/)
+- [mom style man](https://fashion.allwomenstalk.com/its-time-to-embrace-these-embarrassing-mom-trends/)
+- [what are good jobs for stay at home moms](https://money.allwomenstalk.com/awesome-side-jobs-for-stay-at-home-moms/)
+- [mom apps to meet other moms](https://parenting.allwomenstalk.com/places-where-youre-guaranteed-to-make-fellow-mom-friends/)
 - [8 Tips to Get Back in Shape after a Pregnancy ...](https://weightloss.allwomenstalk.com/tips-to-get-back-in-shape-after-a-pregnancy/)
 - [8 Best Exercises for Pregnant Women ...](https://parenting.allwomenstalk.com/best-exercises-for-pregnant-women/)
 

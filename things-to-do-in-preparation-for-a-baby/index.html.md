@@ -46,16 +46,16 @@ These ideas are just a few of the things you will need to do in preparation for 
 
 ## Related Posts
 
-- [how to prepare your body for pregnancy after misca...](https://parenting.allwomenstalk.com/tips-for-preparing-to-get-pregnant-after-miscarriage/)
-- [emotionally ready for a baby](https://parenting.allwomenstalk.com/ways-to-mentally-prepare-for-a-baby/)
 - [pregnant and didnt know it](https://parenting.allwomenstalk.com/things-you-didnt-know-about-pregnancy/)
-- [factors to consider when naming a child](https://parenting.allwomenstalk.com/things-to-consider-before-naming-your-baby/)
-- [7 friends drawing](https://lifestyle.allwomenstalk.com/ways-to-stay-connected-with-your-new-mom-friends/)
 - [how to clean newborn toys](https://parenting.allwomenstalk.com/things-to-sterilize-before-you-give-it-to-your-baby/)
+- [how to prepare your body for pregnancy after misca...](https://parenting.allwomenstalk.com/tips-for-preparing-to-get-pregnant-after-miscarriage/)
 - [can pedicure induce labor](https://parenting.allwomenstalk.com/ways-to-relax-while-pregnant/)
-- [flying while pregnant tips](https://parenting.allwomenstalk.com/tips-for-flying-while-pregnant/)
+- [7 friends drawing](https://lifestyle.allwomenstalk.com/ways-to-stay-connected-with-your-new-mom-friends/)
+- [factors to consider when naming a child](https://parenting.allwomenstalk.com/things-to-consider-before-naming-your-baby/)
+- [emotionally ready for a baby](https://parenting.allwomenstalk.com/ways-to-mentally-prepare-for-a-baby/)
 - [baby diapers brands](https://parenting.allwomenstalk.com/best-diaper-brands-to-use/)
 - [when to start buying maternity clothes](https://money.allwomenstalk.com/ways-to-avoid-buying-maternity-clothes/)
+- [flying while pregnant tips](https://parenting.allwomenstalk.com/tips-for-flying-while-pregnant/)
 - [7 Extremely Important Things to do 24 Hours before...](https://wedding.allwomenstalk.com/extremely-important-things-to-do-24-hours-before-your-highly-anticipated/)
 - [Essential 10: What to Pack for the Hospital when H...](https://parenting.allwomenstalk.com/essential-what-to-pack-for-the-hospital-when-having-a-baby/)
 

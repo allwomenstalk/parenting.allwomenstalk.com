@@ -28,15 +28,15 @@ Having a newborn baby is a massive responsibility, but it is also a load of fun.
 
 ## Related Posts
 
+- [8 Ways to Avoid an Unplanned Pregnancy  ...](https://health.allwomenstalk.com/ways-to-avoid-an-unplanned-pregnancy/)
 - [are you ready to be a parent](https://parenting.allwomenstalk.com/signs-youre-ready-to-be-a-parent-for-girls-facing-motherhood/)
 - [tips for new mom](https://parenting.allwomenstalk.com/tips-for-new-mothers/)
 - [Top 10 Things for New Moms to Pack in Your Labor H...](https://parenting.allwomenstalk.com/things-you-should-pack-in-your-labor-hospital-bag/)
-- [What You Should Know about Postpartum Depression ....](https://parenting.allwomenstalk.com/what-you-should-know-about-postpartum-depression/)
-- [How to Deal with the Stigma  of Formula Feeding fo...](https://parenting.allwomenstalk.com/dealing-with-the-stigma-of-formula-feeding/)
-- [I Dont Want to Be a Mom ...](https://lifestyle.allwomenstalk.com/reasons-i-dont-want-to-be-a-mom/)
 - [Unexpected Reasons a Baby Cries for New Moms ...](https://parenting.allwomenstalk.com/unexpected-reasons-a-baby-cries/)
-- [8 Ways to Avoid an Unplanned Pregnancy  ...](https://health.allwomenstalk.com/ways-to-avoid-an-unplanned-pregnancy/)
+- [What You Should Know about Postpartum Depression ....](https://parenting.allwomenstalk.com/what-you-should-know-about-postpartum-depression/)
+- [I Dont Want to Be a Mom ...](https://lifestyle.allwomenstalk.com/reasons-i-dont-want-to-be-a-mom/)
 - [Truths about Becoming a Parent Every Mom Should Kn...](https://parenting.allwomenstalk.com/truths-about-becoming-a-parent-every-mom-to-be-should-know/)
+- [How to Deal with the Stigma  of Formula Feeding fo...](https://parenting.allwomenstalk.com/dealing-with-the-stigma-of-formula-feeding/)
 - [My Experience of Becoming a Mother  ...](https://parenting.allwomenstalk.com/my-experience-of-becoming-a-mother/)
 - [8 Ways to Help New Parents ...](https://parenting.allwomenstalk.com/8-ways-to-help-new-parents/)
 - [8 Ways to Survive Life with a Newborn ...](https://parenting.allwomenstalk.com/8-ways-to-survive-life-with-a-newborn/)

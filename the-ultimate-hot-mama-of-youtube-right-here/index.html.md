@@ -182,16 +182,16 @@ We are just smitten with UK blogger and YouTuber Patricia Bright! This lovely la
 
 ## Related Posts
 
-- [women comparison](https://inspiration.allwomenstalk.com/women-are-like-water/)
-- [video game characters girl](https://apps.allwomenstalk.com/most-badass-female-video-game-characters/)
-- [woman empowerment quotes](https://celebs.allwomenstalk.com/quotes-on-female-empowerment/)
 - [common misconceptions about feminism](https://lifestyle.allwomenstalk.com/misconceptions-about-feminism/)
+- [video game characters girl](https://apps.allwomenstalk.com/most-badass-female-video-game-characters/)
 - [disney character female](https://movies.allwomenstalk.com/weakest-female-disney-characters/)
-- [important female scientists](https://celebs.allwomenstalk.com/famous-female-scientists/)
-- [inspiring women podcast](https://inspiration.allwomenstalk.com/inspiring-women-run-podcasts-to-listen-to-this-weekend/)
-- [lucy sutcliffe and kaelyn](https://celebs.allwomenstalk.com/inspirational-lesbian-celebs/)
-- [girl from the office](https://movies.allwomenstalk.com/women-from-the-office-who-should-be-your-role-models/)
 - [girl punk outfit](https://fashion.allwomenstalk.com/celebrity-punk-style-icons/)
+- [women comparison](https://inspiration.allwomenstalk.com/women-are-like-water/)
+- [inspiring women podcast](https://inspiration.allwomenstalk.com/inspiring-women-run-podcasts-to-listen-to-this-weekend/)
+- [girl from the office](https://movies.allwomenstalk.com/women-from-the-office-who-should-be-your-role-models/)
+- [woman empowerment quotes](https://celebs.allwomenstalk.com/quotes-on-female-empowerment/)
+- [important female scientists](https://celebs.allwomenstalk.com/famous-female-scientists/)
+- [lucy sutcliffe and kaelyn](https://celebs.allwomenstalk.com/inspirational-lesbian-celebs/)
 - [The Mother of All Contests ...](https://allwomenstalk.com/the-mother-of-all-contests/)
 - [Beautifully Nude ...](https://allwomenstalk.com/beautifully-nude/)
 

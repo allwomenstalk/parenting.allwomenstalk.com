@@ -46,16 +46,16 @@ Pregnancy is amazing, and everyone looks back with a smile. But when it’s happ
 
 ## Related Posts
 
+- [how to clean newborn toys](https://parenting.allwomenstalk.com/things-to-sterilize-before-you-give-it-to-your-baby/)
+- [how to prepare your body for pregnancy after misca...](https://parenting.allwomenstalk.com/tips-for-preparing-to-get-pregnant-after-miscarriage/)
+- [mom need a break](https://parenting.allwomenstalk.com/things-dads-can-do-to-give-mom-a-break/)
 - [flying while pregnant tips](https://parenting.allwomenstalk.com/tips-for-flying-while-pregnant/)
 - [7 friends drawing](https://lifestyle.allwomenstalk.com/ways-to-stay-connected-with-your-new-mom-friends/)
-- [how to clean newborn toys](https://parenting.allwomenstalk.com/things-to-sterilize-before-you-give-it-to-your-baby/)
-- [emotionally ready for a baby](https://parenting.allwomenstalk.com/ways-to-mentally-prepare-for-a-baby/)
-- [baby diapers brands](https://parenting.allwomenstalk.com/best-diaper-brands-to-use/)
-- [how to prepare your body for pregnancy after misca...](https://parenting.allwomenstalk.com/tips-for-preparing-to-get-pregnant-after-miscarriage/)
-- [can pedicure induce labor](https://parenting.allwomenstalk.com/ways-to-relax-while-pregnant/)
-- [mom need a break](https://parenting.allwomenstalk.com/things-dads-can-do-to-give-mom-a-break/)
 - [when to start buying maternity clothes](https://money.allwomenstalk.com/ways-to-avoid-buying-maternity-clothes/)
 - [factors to consider when naming a child](https://parenting.allwomenstalk.com/things-to-consider-before-naming-your-baby/)
+- [baby diapers brands](https://parenting.allwomenstalk.com/best-diaper-brands-to-use/)
+- [emotionally ready for a baby](https://parenting.allwomenstalk.com/ways-to-mentally-prepare-for-a-baby/)
+- [can pedicure induce labor](https://parenting.allwomenstalk.com/ways-to-relax-while-pregnant/)
 - [10 Things Pregnant Women Should Know ...](https://parenting.allwomenstalk.com/10-things-pregnant-women-should-know/)
 - [8 of the Worst Reasons to Get Pregnant ...](https://parenting.allwomenstalk.com/8-of-the-worst-reasons-to-get-pregnant/)
 

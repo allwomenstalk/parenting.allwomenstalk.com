@@ -42,16 +42,16 @@ How will you celebrate Valentine’s Day this year?
 
 ## Related Posts
 
-- [funny ikea instructions](https://funny.allwomenstalk.com/you-have-to-see-ikeas-silly-but-sweet-love-manual/)
 - [Love Stories to Make You Say Awww This Valentines ...](https://books.allwomenstalk.com/love-stories-to-fawn-over-on-valentines-day/)
-- [The Best Places to Say I Love You ...](https://travel.allwomenstalk.com/the-best-places-to-say-i-love-you/)
-- [Short Story: the Perfect Proposal ...](https://love.allwomenstalk.com/short-story-the-perfect-proposal/)
-- [Short Story: Love Alert Part 4 ...](https://love.allwomenstalk.com/short-story-love-alert-part-4/)
-- [deserve love quotes](https://love.allwomenstalk.com/yes-you-deserve-love/)
-- [Short Story: Love Alert Part 3 ...](https://love.allwomenstalk.com/short-story-love-alert-part-3/)
 - [Check out the Special Valentines Menu at Starbucks...](https://food.allwomenstalk.com/the-secret-valentines-menu-at-starbucks/)
-- [YA Short Story : Love Alert Part 1 ...](https://love.allwomenstalk.com/ya-short-story-love-alert-part-1/)
+- [deserve love quotes](https://love.allwomenstalk.com/yes-you-deserve-love/)
+- [funny ikea instructions](https://funny.allwomenstalk.com/you-have-to-see-ikeas-silly-but-sweet-love-manual/)
+- [The Best Places to Say I Love You ...](https://travel.allwomenstalk.com/the-best-places-to-say-i-love-you/)
 - [make out sessions](https://love.allwomenstalk.com/kisses-that-will-fire-up-your-makeout-session/)
+- [Short Story: the Perfect Proposal ...](https://love.allwomenstalk.com/short-story-the-perfect-proposal/)
+- [Short Story: Love Alert Part 3 ...](https://love.allwomenstalk.com/short-story-love-alert-part-3/)
+- [Short Story: Love Alert Part 4 ...](https://love.allwomenstalk.com/short-story-love-alert-part-4/)
+- [YA Short Story : Love Alert Part 1 ...](https://love.allwomenstalk.com/ya-short-story-love-alert-part-1/)
 - [19 Creative Ways to Celebrate Valentines Day ...](https://love.allwomenstalk.com/creative-ways-to-celebrate-valentines-day/)
 - [Special Things for Valentines Day ...](https://allwomenstalk.com/special-things-for-valentines-day/)
 

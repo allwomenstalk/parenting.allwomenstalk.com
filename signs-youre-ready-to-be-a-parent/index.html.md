@@ -42,16 +42,16 @@ These are 7 signs you’re ready to become a parent. How many of them do you hav
 
 ## Related Posts
 
-- [how to tell if youre getting enough sleep](https://health.allwomenstalk.com/telling-signs-youre-not-getting-enough-sleep/)
+- [severe weather warning](https://lifestyle.allwomenstalk.com/warning-signs-world-war-3-is-on-the-way/)
+- [teen namen](https://teen.allwomenstalk.com/signs-youre-ready-for-the-semester-to-end/)
 - [am i alpha female](https://inspiration.allwomenstalk.com/are-you-an-alpha-female-here-are-the-signs/)
 - [signs youre gonna be successful](https://inspiration.allwomenstalk.com/signs-youre-going-to-live-a-successful-life/)
-- [ombivert](https://lifestyle.allwomenstalk.com/psychology-101-here-are-the-signs-you-are-an-ambivert/)
-- [severe weather warning](https://lifestyle.allwomenstalk.com/warning-signs-world-war-3-is-on-the-way/)
-- [how often should you replace your makeup](https://makeup.allwomenstalk.com/signs-you-need-a-new-foundation/)
+- [how to tell if youre getting enough sleep](https://health.allwomenstalk.com/telling-signs-youre-not-getting-enough-sleep/)
 - [baser instincts meaning](https://lifestyle.allwomenstalk.com/signs-you-are-still-ruled-by-your-base-instincts/)
 - [signs you are studying the wrong course](https://teen.allwomenstalk.com/warning-signs-that-youve-chosen-the-wrong-major/)
-- [teen namen](https://teen.allwomenstalk.com/signs-youre-ready-for-the-semester-to-end/)
+- [ombivert](https://lifestyle.allwomenstalk.com/psychology-101-here-are-the-signs-you-are-an-ambivert/)
 - [fangirl tumblr](https://lifestyle.allwomenstalk.com/signs-you-are-definitely-a-fan-girl/)
+- [how often should you replace your makeup](https://makeup.allwomenstalk.com/signs-you-need-a-new-foundation/)
 - [7 Signs You Are Ready for a Baby ...](https://lifestyle.allwomenstalk.com/signs-you-are-ready-for-a-baby-2/)
 - [7 Things to Consider before Adopting a Child ...](https://parenting.allwomenstalk.com/7-things-to-consider-before-adopting-a-child/)
 

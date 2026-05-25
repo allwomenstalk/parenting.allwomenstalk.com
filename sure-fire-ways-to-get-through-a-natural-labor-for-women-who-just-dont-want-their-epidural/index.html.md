@@ -42,16 +42,16 @@ So without medication other than one bag of IV, I had a completely natural labor
 
 ## Related Posts
 
-- [are you ready to be a parent](https://parenting.allwomenstalk.com/signs-youre-ready-to-be-a-parent-for-girls-facing-motherhood/)
-- [Unexpected Reasons a Baby Cries for New Moms ...](https://parenting.allwomenstalk.com/unexpected-reasons-a-baby-cries/)
-- [My Experience of Becoming a Mother  ...](https://parenting.allwomenstalk.com/my-experience-of-becoming-a-mother/)
-- [7 Things to Focus on for Women Who Are Terrified b...](https://parenting.allwomenstalk.com/things-to-focus-on-for-women-who-are-terrified-by-their-upcoming-natural-labor/)
-- [Things Only New Parents Can Appreciate ...](https://parenting.allwomenstalk.com/things-only-new-parents-can-appreciate/)
 - [What to do Once Your Baby is Born for Totally Lost...](https://parenting.allwomenstalk.com/what-to-do-once-your-baby-is-born/)
-- [8 Truths Only Pregnant  Women Can Relate to ...](https://parenting.allwomenstalk.com/truths-only-pregnant-women-can-relate-to/)
-- [7 Life Changing Tips for Women Having the Toughest...](https://parenting.allwomenstalk.com/life-changing-tips-for-women-having-the-toughest-pregnancy-ever/)
+- [My Experience of Becoming a Mother  ...](https://parenting.allwomenstalk.com/my-experience-of-becoming-a-mother/)
 - [What You Should Know about Postpartum Depression ....](https://parenting.allwomenstalk.com/what-you-should-know-about-postpartum-depression/)
+- [7 Life Changing Tips for Women Having the Toughest...](https://parenting.allwomenstalk.com/life-changing-tips-for-women-having-the-toughest-pregnancy-ever/)
+- [are you ready to be a parent](https://parenting.allwomenstalk.com/signs-youre-ready-to-be-a-parent-for-girls-facing-motherhood/)
 - [tips for new mom](https://parenting.allwomenstalk.com/tips-for-new-mothers/)
+- [7 Things to Focus on for Women Who Are Terrified b...](https://parenting.allwomenstalk.com/things-to-focus-on-for-women-who-are-terrified-by-their-upcoming-natural-labor/)
+- [Unexpected Reasons a Baby Cries for New Moms ...](https://parenting.allwomenstalk.com/unexpected-reasons-a-baby-cries/)
+- [8 Truths Only Pregnant  Women Can Relate to ...](https://parenting.allwomenstalk.com/truths-only-pregnant-women-can-relate-to/)
+- [Things Only New Parents Can Appreciate ...](https://parenting.allwomenstalk.com/things-only-new-parents-can-appreciate/)
 - [7 Ways to Relieve Stress While Pregnant ...](https://parenting.allwomenstalk.com/ways-to-relieve-stress-while-pregnant/)
 - [8 Tried Ways to Get Pregnant Fast ...](https://parenting.allwomenstalk.com/tried-ways-to-get-pregnant-fast/)
 

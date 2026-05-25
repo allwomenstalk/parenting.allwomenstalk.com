@@ -44,15 +44,15 @@ Top Photo Credit: [Alex Bramwell](https://www.flickr.com/photos/spanishalex/4603
 
 ## Related Posts
 
-- [the best exercises for pregnant women](https://parenting.allwomenstalk.com/best-exercises-for-pregnant-women/)
-- [being a teenage mom](https://parenting.allwomenstalk.com/9-tips-for-real-teen-moms/)
-- [when to buy a crib](https://parenting.allwomenstalk.com/7-things-to-consider-before-buying-a-baby-crib/)
-- [10 facts about breastfeeding](https://parenting.allwomenstalk.com/10-facts-on-breast-feeding/)
-- [how to introduce avocado to baby](https://parenting.allwomenstalk.com/easy-ways-to-use-avocados-as-babys-first-food/)
-- [7 Most Popular Pregnancy Myths ...](https://parenting.allwomenstalk.com/7-most-popular-pregnancy-myths/)
 - [7 Things a Pregnant Woman Needs in Her Diet ...](https://parenting.allwomenstalk.com/things-a-pregnant-woman-needs-in-her-diet/)
 - [best books on pregnancy and parenting](https://parenting.allwomenstalk.com/8-great-books-for-pregnant-moms/)
+- [when to buy a crib](https://parenting.allwomenstalk.com/7-things-to-consider-before-buying-a-baby-crib/)
+- [how to introduce avocado to baby](https://parenting.allwomenstalk.com/easy-ways-to-use-avocados-as-babys-first-food/)
+- [10 facts about breastfeeding](https://parenting.allwomenstalk.com/10-facts-on-breast-feeding/)
 - [tricks to get pregnant fast](https://parenting.allwomenstalk.com/tried-ways-to-get-pregnant-fast/)
+- [7 Most Popular Pregnancy Myths ...](https://parenting.allwomenstalk.com/7-most-popular-pregnancy-myths/)
+- [being a teenage mom](https://parenting.allwomenstalk.com/9-tips-for-real-teen-moms/)
+- [the best exercises for pregnant women](https://parenting.allwomenstalk.com/best-exercises-for-pregnant-women/)
 - [mommy tips](https://parenting.allwomenstalk.com/7-great-tips-for-the-mommy-to-be/)
 - [7 Weird Pregnancy Facts ...](https://parenting.allwomenstalk.com/7-weird-pregnancy-facts/)
 - [7 Things You Didnt Know about Parasites ...](https://health.allwomenstalk.com/7-things-you-didnt-know-about-parasites/)

@@ -50,15 +50,15 @@ Pregnancy is a demanding time physically, but it doesn’t need to be so hard. M
 
 ## Related Posts
 
-- [flying while pregnant tips](https://parenting.allwomenstalk.com/tips-for-flying-while-pregnant/)
-- [7 friends drawing](https://lifestyle.allwomenstalk.com/ways-to-stay-connected-with-your-new-mom-friends/)
-- [tips for baby registry](https://parenting.allwomenstalk.com/tips-for-getting-the-most-out-of-your-baby-registery/)
-- [tricked into having a baby](https://parenting.allwomenstalk.com/things-we-really-dont-need-for-a-baby-that-were-tricked-into-thinking-we-do/)
-- [baby first pictures ideas](https://parenting.allwomenstalk.com/adorable-newborn-photo-ideas/)
-- [pregnancy complaints](https://parenting.allwomenstalk.com/common-complaints-of-pregnancy-and-how-you-can-combat-them/)
 - [mom need a break](https://parenting.allwomenstalk.com/things-dads-can-do-to-give-mom-a-break/)
 - [realize baby](https://parenting.allwomenstalk.com/things-you-dont-realize-until-you-have-a-baby/)
+- [baby first pictures ideas](https://parenting.allwomenstalk.com/adorable-newborn-photo-ideas/)
+- [tips for baby registry](https://parenting.allwomenstalk.com/tips-for-getting-the-most-out-of-your-baby-registery/)
+- [flying while pregnant tips](https://parenting.allwomenstalk.com/tips-for-flying-while-pregnant/)
+- [7 friends drawing](https://lifestyle.allwomenstalk.com/ways-to-stay-connected-with-your-new-mom-friends/)
 - [helping out mommy](https://parenting.allwomenstalk.com/fabulous-ideas-for-helping-out-a-new-mom/)
+- [pregnancy complaints](https://parenting.allwomenstalk.com/common-complaints-of-pregnancy-and-how-you-can-combat-them/)
+- [tricked into having a baby](https://parenting.allwomenstalk.com/things-we-really-dont-need-for-a-baby-that-were-tricked-into-thinking-we-do/)
 - [how to clean newborn toys](https://parenting.allwomenstalk.com/things-to-sterilize-before-you-give-it-to-your-baby/)
 - [7 Ways to Relieve Stress While Pregnant ...](https://parenting.allwomenstalk.com/ways-to-relieve-stress-while-pregnant/)
 - [9 Healthy  Fun Ways to Relax ...](https://health.allwomenstalk.com/healthy-fun-ways-to-relax/)

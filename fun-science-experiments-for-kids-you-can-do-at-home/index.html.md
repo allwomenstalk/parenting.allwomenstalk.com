@@ -112,16 +112,16 @@ Just because you're older doesn't mean you've run out of things to learn! Perfor
 
 ## Related Posts
 
-- [how to make money weekends](https://money.allwomenstalk.com/ways-for-teenagers-to-make-extra-cash-on-the-weekends/)
 - [doing things alone](https://lifestyle.allwomenstalk.com/enjoyable-ways-to-do-things-alone/)
-- [college coed parties](https://wedding.allwomenstalk.com/fun-ideas-for-a-co-ed-bachelorette-party/)
-- [whats your favorite tradition](https://lifestyle.allwomenstalk.com/of-my-favorite-holiday-traditions/)
-- [what can you get for 5](https://money.allwomenstalk.com/things-to-do-for-5/)
-- [ideas first date](https://love.allwomenstalk.com/fun-first-date-ideas/)
-- [how much does it cost to throw a house party](https://parenting.allwomenstalk.com/ways-to-throw-a-teenage-party-on-a-budget/)
-- [things that are spontaneous](https://lifestyle.allwomenstalk.com/fun-spontaneous-things-to-do-as-an-adult/)
 - [theme party for kids](https://lifestyle.allwomenstalk.com/fun-kids-birthday-party-themes/)
+- [how to make money weekends](https://money.allwomenstalk.com/ways-for-teenagers-to-make-extra-cash-on-the-weekends/)
+- [things that are spontaneous](https://lifestyle.allwomenstalk.com/fun-spontaneous-things-to-do-as-an-adult/)
+- [what can you get for 5](https://money.allwomenstalk.com/things-to-do-for-5/)
 - [green items for kids](https://parenting.allwomenstalk.com/fun-green-activities-to-do-with-the-kids/)
+- [whats your favorite tradition](https://lifestyle.allwomenstalk.com/of-my-favorite-holiday-traditions/)
+- [ideas first date](https://love.allwomenstalk.com/fun-first-date-ideas/)
+- [college coed parties](https://wedding.allwomenstalk.com/fun-ideas-for-a-co-ed-bachelorette-party/)
+- [how much does it cost to throw a house party](https://parenting.allwomenstalk.com/ways-to-throw-a-teenage-party-on-a-budget/)
 - [5 Things Kids Can do in a Garden ...](https://gardening.allwomenstalk.com/5-things-kids-can-do-in-a-garden/)
 - [7 Homemade Natural Cleaners ...](https://allwomenstalk.com/7-homemade-natural-cleaners/)
 

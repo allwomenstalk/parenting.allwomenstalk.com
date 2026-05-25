@@ -42,16 +42,16 @@ What’s your favorite reason for having kids? Why did you have kids?
 
 ## Related Posts
 
-- [what is the best thing about being a teenager](https://lifestyle.allwomenstalk.com/reasons-why-being-a-teenager-is-great/)
-- [reasons to visit the dominican republic](https://travel.allwomenstalk.com/best-reasons-to-visit-the-dominican-republic/)
-- [traveling the world in your 20s](https://travel.allwomenstalk.com/reasons-to-travel-the-world-solo-in-your-20s/)
-- [not spending christmas with family](https://lifestyle.allwomenstalk.com/reasons-to-stay-close-to-your-family/)
-- [why should i be kind](https://lifestyle.allwomenstalk.com/reasons-why-being-kind-is-good-for-your-health/)
-- [what skills does being a waitress give you](https://lifestyle.allwomenstalk.com/reasons-why-you-should-be-a-waitress-at-least-once-in-your-life/)
-- [why we need faith in our life](https://lifestyle.allwomenstalk.com/important-reasons-you-need-faith-in-your-life/)
-- [reasons not to be a stay at home mom](https://parenting.allwomenstalk.com/reasons-to-become-a-stay-at-home-mom/)
 - [is there talking in the nutcracker](https://lifestyle.allwomenstalk.com/reasons-to-see-the-nutcracker-this-holiday-season/)
+- [reasons to visit the dominican republic](https://travel.allwomenstalk.com/best-reasons-to-visit-the-dominican-republic/)
+- [not spending christmas with family](https://lifestyle.allwomenstalk.com/reasons-to-stay-close-to-your-family/)
+- [why we need faith in our life](https://lifestyle.allwomenstalk.com/important-reasons-you-need-faith-in-your-life/)
 - [another way to say follow your dreams](https://inspiration.allwomenstalk.com/reasons-to-follow-your-dreams-no-matter-what/)
+- [reasons not to be a stay at home mom](https://parenting.allwomenstalk.com/reasons-to-become-a-stay-at-home-mom/)
+- [what skills does being a waitress give you](https://lifestyle.allwomenstalk.com/reasons-why-you-should-be-a-waitress-at-least-once-in-your-life/)
+- [why should i be kind](https://lifestyle.allwomenstalk.com/reasons-why-being-kind-is-good-for-your-health/)
+- [traveling the world in your 20s](https://travel.allwomenstalk.com/reasons-to-travel-the-world-solo-in-your-20s/)
+- [what is the best thing about being a teenager](https://lifestyle.allwomenstalk.com/reasons-why-being-a-teenager-is-great/)
 - [5 Reasons to Have Kids in Your Wedding ...](https://allwomenstalk.com/5-reasons-to-have-kids-in-your-wedding/)
 - [7 Ways to Tell Youre Ready to Have Children ...](https://allwomenstalk.com/7-ways-to-tell-youre-ready-to-have-children/)
 

@@ -42,16 +42,16 @@ I hope my kids have more than seven things to thank me for when they grow up. Ho
 
 ## Related Posts
 
-- [help kids have more friends](https://parenting.allwomenstalk.com/fun-ways-to-help-your-child-make-more-friends/)
-- [7 Easy Ways to Get Your Kids to Eat Anything ...](https://parenting.allwomenstalk.com/easy-ways-to-get-your-kids-to-eat-anything/)
-- [living with someone with ocpd](https://health.allwomenstalk.com/tips-for-family-of-someone-with-obsessive-compulsive-personality-disorder/)
-- [7 Uncommon Signs Your Child Might Be Depressed and...](https://mindfulness.allwomenstalk.com/uncommon-signs-your-child-might-be-depressed-and-what-to-do/)
 - [9 Ways to Keep Your Toddler Occupied While You Are...](https://parenting.allwomenstalk.com/ways-to-keep-your-toddler-occupied-while-you-are-sick/)
-- [morals for children](https://parenting.allwomenstalk.com/morals-for-kids-that-are-absolutely-essential/)
-- [how to study nicely with my family](https://parenting.allwomenstalk.com/essential-tips-for-studying-when-you-are-a-parent/)
-- [making chores fun](https://parenting.allwomenstalk.com/ways-to-make-household-chores-fun-for-kids/)
 - [how to get kids to listen](https://parenting.allwomenstalk.com/tips-on-how-to-get-your-kids-to-listen/)
+- [7 Uncommon Signs Your Child Might Be Depressed and...](https://mindfulness.allwomenstalk.com/uncommon-signs-your-child-might-be-depressed-and-what-to-do/)
 - [how to get my daughter to like science](https://parenting.allwomenstalk.com/ways-to-get-children-interested-in-science/)
+- [help kids have more friends](https://parenting.allwomenstalk.com/fun-ways-to-help-your-child-make-more-friends/)
+- [living with someone with ocpd](https://health.allwomenstalk.com/tips-for-family-of-someone-with-obsessive-compulsive-personality-disorder/)
+- [how to study nicely with my family](https://parenting.allwomenstalk.com/essential-tips-for-studying-when-you-are-a-parent/)
+- [morals for children](https://parenting.allwomenstalk.com/morals-for-kids-that-are-absolutely-essential/)
+- [making chores fun](https://parenting.allwomenstalk.com/ways-to-make-household-chores-fun-for-kids/)
+- [7 Easy Ways to Get Your Kids to Eat Anything ...](https://parenting.allwomenstalk.com/easy-ways-to-get-your-kids-to-eat-anything/)
 - [7 Ways to Involve Your Kids with Everything ...](https://parenting.allwomenstalk.com/7-ways-to-involve-your-kids-with-everything/)
 - [Top 7 Things to Teach Your Children ...](https://parenting.allwomenstalk.com/top-7-things-to-teach-your-children/)
 

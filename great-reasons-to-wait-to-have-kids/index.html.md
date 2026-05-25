@@ -50,16 +50,16 @@ There are some fundamental reasons why you should wait to have a baby and it’s
 
 ## Related Posts
 
-- [best food competition shows](https://food.allwomenstalk.com/reasons-to-not-watch-tv-cooking-shows/)
-- [real fur blanket](https://fashion.allwomenstalk.com/reasons-not-to-wear-real-fur/)
-- [is 22 too young to be a dad](https://parenting.allwomenstalk.com/reasons-not-to-start-a-family-too-young/)
 - [walking in 5 inch heels](https://shoes.allwomenstalk.com/reasons-not-to-wear-high-heels/)
 - [ive never been in a relationship before](https://love.allwomenstalk.com/reasons-why-its-okay-if-you-havent-been-in-a-relationship-yet/)
+- [is 22 too young to be a dad](https://parenting.allwomenstalk.com/reasons-not-to-start-a-family-too-young/)
 - [girls dating younger guys](https://love.allwomenstalk.com/reasons-why-women-can-date-younger-men/)
-- [why is dating so confusing](https://love.allwomenstalk.com/reasons-why-dating-is-so-confusing/)
-- [is social media ruining society](https://lifestyle.allwomenstalk.com/reasons-why-social-media-is-ruining-our-lives/)
-- [reasons to not get a puppy](https://lifestyle.allwomenstalk.com/reasons-not-to-get-a-puppy/)
 - [marrying at 20](https://wedding.allwomenstalk.com/reasons-not-to-get-married-too-young/)
+- [is social media ruining society](https://lifestyle.allwomenstalk.com/reasons-why-social-media-is-ruining-our-lives/)
+- [real fur blanket](https://fashion.allwomenstalk.com/reasons-not-to-wear-real-fur/)
+- [best food competition shows](https://food.allwomenstalk.com/reasons-to-not-watch-tv-cooking-shows/)
+- [why is dating so confusing](https://love.allwomenstalk.com/reasons-why-dating-is-so-confusing/)
+- [reasons to not get a puppy](https://lifestyle.allwomenstalk.com/reasons-not-to-get-a-puppy/)
 - [8 Reasons to Have Your Family Later ...](https://parenting.allwomenstalk.com/8-reasons-to-have-your-family-later/)
 - [8 of the Worst Reasons to Get Pregnant ...](https://parenting.allwomenstalk.com/8-of-the-worst-reasons-to-get-pregnant/)
 

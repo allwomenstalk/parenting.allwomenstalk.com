@@ -42,15 +42,15 @@ As someone who shops with children, I know the challenges firsthand. But I also 
 
 ## Related Posts
 
-- [weird name spellings](https://parenting.allwomenstalk.com/reasons-to-be-cautious-about-giving-your-child-an-unusual-name/)
-- [7 identical twins](https://parenting.allwomenstalk.com/tips-for-encouraging-individuality-in-twins/)
-- [my kids are lazy](https://parenting.allwomenstalk.com/ways-to-deal-when-your-child-is-lazy/)
+- [childhood stuff](https://lifestyle.allwomenstalk.com/childhood-mementos-you-should-keep/)
 - [why do we need to listen to our parents](https://teen.allwomenstalk.com/reasons-to-listen-to-your-parents/)
 - [potty training books](https://parenting.allwomenstalk.com/great-potty-training-books-your-child-will-enjoy/)
-- [childhood stuff](https://lifestyle.allwomenstalk.com/childhood-mementos-you-should-keep/)
+- [my kids are lazy](https://parenting.allwomenstalk.com/ways-to-deal-when-your-child-is-lazy/)
+- [why do i hate studying so much](https://parenting.allwomenstalk.com/ways-to-encourage-a-child-who-hates-studying/)
+- [7 identical twins](https://parenting.allwomenstalk.com/tips-for-encouraging-individuality-in-twins/)
+- [weird name spellings](https://parenting.allwomenstalk.com/reasons-to-be-cautious-about-giving-your-child-an-unusual-name/)
 - [woman with multiple baby fathers](https://parenting.allwomenstalk.com/reasons-not-to-be-ashamed-if-your-children-have-different-fathers/)
 - [how much should i charge my son for rent](https://parenting.allwomenstalk.com/tips-to-help-you-decide-how-much-rent-to-charge-your-kids/)
-- [why do i hate studying so much](https://parenting.allwomenstalk.com/ways-to-encourage-a-child-who-hates-studying/)
 - [open house survey questions](https://parenting.allwomenstalk.com/questions-to-ask-your-childs-teacher-at-open-house/)
 - [8 Ways to Make More Time for Your Kids ...](https://parenting.allwomenstalk.com/8-ways-to-make-more-time-for-your-kids/)
 - [6 Ways to Get Kids Excited about Going Back to Sch...](https://lifestyle.allwomenstalk.com/ways-to-get-kids-excited-about-going-back-to-school/)

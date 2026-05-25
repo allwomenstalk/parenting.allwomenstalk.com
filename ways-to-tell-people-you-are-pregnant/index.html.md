@@ -44,16 +44,16 @@ Top Image Source: _buttermedia.ca_
 
 ## Related Posts
 
-- [newborn preparation](https://parenting.allwomenstalk.com/things-to-do-in-preparation-for-a-baby/)
-- [pregnant and didnt know it](https://parenting.allwomenstalk.com/things-you-didnt-know-about-pregnancy/)
-- [can pedicure induce labor](https://parenting.allwomenstalk.com/ways-to-relax-while-pregnant/)
-- [how to prepare your body for pregnancy after misca...](https://parenting.allwomenstalk.com/tips-for-preparing-to-get-pregnant-after-miscarriage/)
-- [7 friends drawing](https://lifestyle.allwomenstalk.com/ways-to-stay-connected-with-your-new-mom-friends/)
-- [factors to consider when naming a child](https://parenting.allwomenstalk.com/things-to-consider-before-naming-your-baby/)
-- [when to start buying maternity clothes](https://money.allwomenstalk.com/ways-to-avoid-buying-maternity-clothes/)
-- [flying while pregnant tips](https://parenting.allwomenstalk.com/tips-for-flying-while-pregnant/)
 - [emotionally ready for a baby](https://parenting.allwomenstalk.com/ways-to-mentally-prepare-for-a-baby/)
+- [7 friends drawing](https://lifestyle.allwomenstalk.com/ways-to-stay-connected-with-your-new-mom-friends/)
+- [newborn preparation](https://parenting.allwomenstalk.com/things-to-do-in-preparation-for-a-baby/)
+- [factors to consider when naming a child](https://parenting.allwomenstalk.com/things-to-consider-before-naming-your-baby/)
+- [pregnant and didnt know it](https://parenting.allwomenstalk.com/things-you-didnt-know-about-pregnancy/)
+- [how to prepare your body for pregnancy after misca...](https://parenting.allwomenstalk.com/tips-for-preparing-to-get-pregnant-after-miscarriage/)
 - [baby diapers brands](https://parenting.allwomenstalk.com/best-diaper-brands-to-use/)
+- [when to start buying maternity clothes](https://money.allwomenstalk.com/ways-to-avoid-buying-maternity-clothes/)
+- [can pedicure induce labor](https://parenting.allwomenstalk.com/ways-to-relax-while-pregnant/)
+- [flying while pregnant tips](https://parenting.allwomenstalk.com/tips-for-flying-while-pregnant/)
 - [7 Weird Pregnancy Facts ...](https://parenting.allwomenstalk.com/7-weird-pregnancy-facts/)
 - [7 Ways to Show Subtly That You Are Available ...](https://love.allwomenstalk.com/ways-to-show-subtly-that-you-are-available/)
 

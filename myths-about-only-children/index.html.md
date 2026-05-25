@@ -44,16 +44,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/26414029)
 
 ## Related Posts
 
-- [how to come out to your parents](https://lifestyle.allwomenstalk.com/ways-to-come-out-to-your-parents/)
-- [financial advice for kids](https://money.allwomenstalk.com/financial-tips-to-teach-your-kids/)
-- [what are good after school activities](https://parenting.allwomenstalk.com/best-after-school-activites-for-you-kids/)
-- [parenting tips funny](https://parenting.allwomenstalk.com/humorous-and-unconventional-parenting-ideas/)
 - [manners should be taught at home](https://parenting.allwomenstalk.com/important-manners-to-teach-your-children/)
-- [how can i be obedient at school](https://parenting.allwomenstalk.com/effective-ways-to-teach-your-kids-to-be-obedient/)
-- [potty training busy toddler](https://parenting.allwomenstalk.com/effective-potty-training-methods-for-busy-parents/)
-- [how to nurture a gifted child](https://parenting.allwomenstalk.com/tips-for-nurturing-gifted-children/)
 - [how to act like a child](https://lifestyle.allwomenstalk.com/delightful-advantages-of-acting-like-a-child/)
+- [what are good after school activities](https://parenting.allwomenstalk.com/best-after-school-activites-for-you-kids/)
+- [how can i be obedient at school](https://parenting.allwomenstalk.com/effective-ways-to-teach-your-kids-to-be-obedient/)
+- [parenting tips funny](https://parenting.allwomenstalk.com/humorous-and-unconventional-parenting-ideas/)
 - [spanking 7](https://parenting.allwomenstalk.com/effective-discipline-techniques-to-use-instead-of-spanking/)
+- [how to nurture a gifted child](https://parenting.allwomenstalk.com/tips-for-nurturing-gifted-children/)
+- [how to come out to your parents](https://lifestyle.allwomenstalk.com/ways-to-come-out-to-your-parents/)
+- [potty training busy toddler](https://parenting.allwomenstalk.com/effective-potty-training-methods-for-busy-parents/)
+- [financial advice for kids](https://money.allwomenstalk.com/financial-tips-to-teach-your-kids/)
 - [7 Things Parents Should Know ...](https://parenting.allwomenstalk.com/7-things-parents-should-know/)
 - [7 Things to Consider before Adopting a Child ...](https://parenting.allwomenstalk.com/7-things-to-consider-before-adopting-a-child/)
 

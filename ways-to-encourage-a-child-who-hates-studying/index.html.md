@@ -42,15 +42,15 @@ Your child may never learn to love studying, but it is important that they do le
 
 ## Related Posts
 
+- [teenage attitudes](https://parenting.allwomenstalk.com/creative-and-successful-ways-of-dealing-with-teenage-attitude/)
+- [plane carseat](https://travel.allwomenstalk.com/important-reasons-to-take-your-childs-car-seat-on-a-plane/)
 - [my kids are lazy](https://parenting.allwomenstalk.com/ways-to-deal-when-your-child-is-lazy/)
 - [spend time with grandparents quotes](https://parenting.allwomenstalk.com/reasons-your-kids-should-spend-time-with-their-grandparents/)
-- [characteristics of a little child](https://lifestyle.allwomenstalk.com/characteristics-of-a-controlling-parent/)
-- [parenting hacks](https://parenting.allwomenstalk.com/gentle-parenting-hacks-that-really-work/)
-- [oobleck recipe nz](https://parenting.allwomenstalk.com/gooey-science-experiments-to-do-with-your-kid/)
 - [spanking at work](https://parenting.allwomenstalk.com/alternatives-to-spanking-that-work/)
+- [oobleck recipe nz](https://parenting.allwomenstalk.com/gooey-science-experiments-to-do-with-your-kid/)
 - [how to start a babysitting service](https://money.allwomenstalk.com/simple-ways-to-start-your-own-babysitting-business/)
-- [plane carseat](https://travel.allwomenstalk.com/important-reasons-to-take-your-childs-car-seat-on-a-plane/)
-- [teenage attitudes](https://parenting.allwomenstalk.com/creative-and-successful-ways-of-dealing-with-teenage-attitude/)
+- [parenting hacks](https://parenting.allwomenstalk.com/gentle-parenting-hacks-that-really-work/)
+- [characteristics of a little child](https://lifestyle.allwomenstalk.com/characteristics-of-a-controlling-parent/)
 - [how to deal with stubborn child](https://parenting.allwomenstalk.com/tips-for-dealing-with-a-stubborn-child/)
 - [7 Ways to Calm an Unhappy Child ...](https://parenting.allwomenstalk.com/7-ways-to-calm-an-unhappy-child/)
 - [9 Ways to Help Your Child Shine at School ...](https://parenting.allwomenstalk.com/9-ways-to-help-your-child-shine-at-school/)

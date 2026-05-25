@@ -56,16 +56,16 @@ Top Photo Credit: [Boered](https://www.flickr.com/photos/boered/243171271/)
 
 ## Related Posts
 
-- [what to pack for baby in hospital](https://parenting.allwomenstalk.com/essential-what-to-pack-for-the-hospital-when-having-a-baby/)
+- [mommy tips](https://parenting.allwomenstalk.com/7-great-tips-for-the-mommy-to-be/)
+- [tricks to get pregnant fast](https://parenting.allwomenstalk.com/tried-ways-to-get-pregnant-fast/)
+- [craving coffee meaning](https://parenting.allwomenstalk.com/strangest-pregnancy-cravings/)
+- [7 Things a Pregnant Woman Needs in Her Diet ...](https://parenting.allwomenstalk.com/things-a-pregnant-woman-needs-in-her-diet/)
+- [how to introduce avocado to baby](https://parenting.allwomenstalk.com/easy-ways-to-use-avocados-as-babys-first-food/)
+- [best books on pregnancy and parenting](https://parenting.allwomenstalk.com/8-great-books-for-pregnant-moms/)
 - [10 Newborn Essentials ...](https://parenting.allwomenstalk.com/newborn-essentials/)
+- [what to pack for baby in hospital](https://parenting.allwomenstalk.com/essential-what-to-pack-for-the-hospital-when-having-a-baby/)
 - [7 Most Popular Pregnancy Myths ...](https://parenting.allwomenstalk.com/7-most-popular-pregnancy-myths/)
 - [new mom things to know](https://parenting.allwomenstalk.com/things-every-new-mom-should-know/)
-- [craving coffee meaning](https://parenting.allwomenstalk.com/strangest-pregnancy-cravings/)
-- [best books on pregnancy and parenting](https://parenting.allwomenstalk.com/8-great-books-for-pregnant-moms/)
-- [how to introduce avocado to baby](https://parenting.allwomenstalk.com/easy-ways-to-use-avocados-as-babys-first-food/)
-- [tricks to get pregnant fast](https://parenting.allwomenstalk.com/tried-ways-to-get-pregnant-fast/)
-- [7 Things a Pregnant Woman Needs in Her Diet ...](https://parenting.allwomenstalk.com/things-a-pregnant-woman-needs-in-her-diet/)
-- [mommy tips](https://parenting.allwomenstalk.com/7-great-tips-for-the-mommy-to-be/)
 - [10 Things Pregnant Women Should Know ...](https://parenting.allwomenstalk.com/10-things-pregnant-women-should-know/)
 - [7 Facts on Breasts ...](https://health.allwomenstalk.com/7-facts-on-breasts/)
 

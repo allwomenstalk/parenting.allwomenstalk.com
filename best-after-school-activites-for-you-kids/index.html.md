@@ -48,16 +48,16 @@ Top Image Source: [weheartit.com](https://goo.gl/LV52tB)
 
 ## Related Posts
 
-- [potty training busy toddler](https://parenting.allwomenstalk.com/effective-potty-training-methods-for-busy-parents/)
-- [financial advice for kids](https://money.allwomenstalk.com/financial-tips-to-teach-your-kids/)
 - [spanking 7](https://parenting.allwomenstalk.com/effective-discipline-techniques-to-use-instead-of-spanking/)
-- [why home is better than school](https://parenting.allwomenstalk.com/reasons-to-home-school-your-children/)
-- [how to nurture a gifted child](https://parenting.allwomenstalk.com/tips-for-nurturing-gifted-children/)
-- [parenting tips funny](https://parenting.allwomenstalk.com/humorous-and-unconventional-parenting-ideas/)
-- [how to act like a child](https://lifestyle.allwomenstalk.com/delightful-advantages-of-acting-like-a-child/)
-- [how can i be obedient at school](https://parenting.allwomenstalk.com/effective-ways-to-teach-your-kids-to-be-obedient/)
 - [manners should be taught at home](https://parenting.allwomenstalk.com/important-manners-to-teach-your-children/)
+- [parenting tips funny](https://parenting.allwomenstalk.com/humorous-and-unconventional-parenting-ideas/)
+- [why home is better than school](https://parenting.allwomenstalk.com/reasons-to-home-school-your-children/)
+- [financial advice for kids](https://money.allwomenstalk.com/financial-tips-to-teach-your-kids/)
+- [how can i be obedient at school](https://parenting.allwomenstalk.com/effective-ways-to-teach-your-kids-to-be-obedient/)
+- [how to nurture a gifted child](https://parenting.allwomenstalk.com/tips-for-nurturing-gifted-children/)
 - [how to come out to your parents](https://lifestyle.allwomenstalk.com/ways-to-come-out-to-your-parents/)
+- [how to act like a child](https://lifestyle.allwomenstalk.com/delightful-advantages-of-acting-like-a-child/)
+- [potty training busy toddler](https://parenting.allwomenstalk.com/effective-potty-training-methods-for-busy-parents/)
 - [8 Games You Can Play with Your Kids ...](https://parenting.allwomenstalk.com/8-games-you-can-play-with-your-kids/)
 - [8 Fun Things to do in the Snow with Kids ...](https://parenting.allwomenstalk.com/fun-things-to-do-in-the-snow-with-kids/)
 
