@@ -3,7 +3,7 @@ title: "9 Things to Think about before Having Children ..."
 description: "Why, Exactly, do You Want to Have Kids?; Have You “sown Your Wild Oats”?; Can You Handle the Changes to Your Social Life?; Is Your Relationship Stable?; How Will It Impact Your Health?; More ..."
 url: "https://parenting.allwomenstalk.com/things-to-think-about-before-having-children/"
 category: "parenting"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 9 Things to Think about before Having Children ...
@@ -50,15 +50,15 @@ I'm sure you can think of a million more things to think about before having kid
 
 ## Related Posts
 
-- [wise mom](https://parenting.allwomenstalk.com/moms-are-wise-reasons-to-listen-to-yours/)
 - [lonely stay at home mom quotes](https://parenting.allwomenstalk.com/ways-to-beat-the-isolation-of-being-a-stay-at-home-mom/)
 - [energetic mom](https://parenting.allwomenstalk.com/ways-to-have-more-energy-as-a-mom/)
+- [disney baby announcement](https://parenting.allwomenstalk.com/cutest-pregnancy-and-birth-announcements-to-copy/)
+- [wise mom](https://parenting.allwomenstalk.com/moms-are-wise-reasons-to-listen-to-yours/)
 - [he wants a baby i dont](https://parenting.allwomenstalk.com/things-to-do-when-he-wants-a-baby-and-you-dont/)
+- [emojinal](https://lifestyle.allwomenstalk.com/ways-to-get-so-emojinal-baby/)
 - [doctor fit and fabulous](https://parenting.allwomenstalk.com/how-to-have-a-healthy-fit-fabulous-pregnancy/)
 - [mom burnout signs](https://parenting.allwomenstalk.com/signs-of-mommy-burnout-and-how-to-cope/)
-- [emojinal](https://lifestyle.allwomenstalk.com/ways-to-get-so-emojinal-baby/)
 - [new parents photoshoot](https://parenting.allwomenstalk.com/wonderful-newborn-photo-poses-you-wont-want-to-pass-up/)
-- [disney baby announcement](https://parenting.allwomenstalk.com/cutest-pregnancy-and-birth-announcements-to-copy/)
 - [talk about your shopping habit](https://money.allwomenstalk.com/ways-to-adjust-your-single-lady-shopping-habits-when-starting-a-family/)
 - [7 Things to Consider before Adopting a Child ...](https://parenting.allwomenstalk.com/7-things-to-consider-before-adopting-a-child/)
 - [7 Reasons to Have a Child ...](https://allwomenstalk.com/7-reasons-to-have-a-child/)

@@ -3,7 +3,7 @@ title: "8 Alternatives to Punishment ..."
 description: "Allow Natural Consequences; Remove Child from Situation; Give Your Child Choices; Make Allowances at Times; Teach the Golden Rule and Apply It; More ..."
 url: "https://parenting.allwomenstalk.com/alternatives-to-punishment/"
 category: "parenting"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 8 Alternatives to Punishment ...
@@ -48,16 +48,16 @@ Top Photo Credit: [doug88888](https://www.flickr.com/photos/doug88888/4725259066
 
 ## Related Posts
 
-- [7 People to Ask for Advice ...](https://lifestyle.allwomenstalk.com/people-to-ask-for-advice/)
-- [how to overcome envy](https://lifestyle.allwomenstalk.com/tips-to-overcome-envy/)
-- [dealing with bullying at school](https://lifestyle.allwomenstalk.com/ways-to-deal-with-bullying-at-school/)
 - [12 Things You Can Say to Someone Suicidal or Depre...](https://health.allwomenstalk.com/12-things-you-can-say-to-someone-suicidal-or-depressed/)
-- [difficult daughter in law problems](https://lifestyle.allwomenstalk.com/ways-to-deal-with-a-difficult-daughter-in-law/)
+- [how to overcome envy](https://lifestyle.allwomenstalk.com/tips-to-overcome-envy/)
+- [7 People to Ask for Advice ...](https://lifestyle.allwomenstalk.com/people-to-ask-for-advice/)
+- [dealing with bullying at school](https://lifestyle.allwomenstalk.com/ways-to-deal-with-bullying-at-school/)
 - [9 Easy Ways to Overcome Your Shyness ...](https://lifestyle.allwomenstalk.com/easy-ways-to-overcome-your-shyness/)
-- [how to help others](https://lifestyle.allwomenstalk.com/ways-to-help-other-people/)
-- [7 Ways to Thank Your Teacher ...](https://lifestyle.allwomenstalk.com/ways-to-thank-your-teacher/)
+- [difficult daughter in law problems](https://lifestyle.allwomenstalk.com/ways-to-deal-with-a-difficult-daughter-in-law/)
 - [how to deal with insults from friends](https://lifestyle.allwomenstalk.com/ways-to-handle-an-insult/)
+- [7 Ways to Thank Your Teacher ...](https://lifestyle.allwomenstalk.com/ways-to-thank-your-teacher/)
 - [how to avoid peer pressure](https://lifestyle.allwomenstalk.com/positive-tips-to-avoid-peer-pressure/)
+- [how to help others](https://lifestyle.allwomenstalk.com/ways-to-help-other-people/)
 - [7 Ways to Calm an Unhappy Child ...](https://parenting.allwomenstalk.com/7-ways-to-calm-an-unhappy-child/)
 - [7 Ways to Teach Your Child to Apologize ...](https://parenting.allwomenstalk.com/ways-to-teach-your-child-to-apologize/)
 

@@ -3,7 +3,7 @@ title: "7 Games Children Played before Technology Came along ..."
 description: "Hopscotch; Chinese Jump Rope; Hide and Seek; Capture the Flag; Jump Rope and Double-dutch; More ..."
 url: "https://parenting.allwomenstalk.com/games-children-used-before-technology-came-along/"
 category: "parenting"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Games Children Played before Technology Came along ...
@@ -56,16 +56,16 @@ All of the technological advancements are really not doing that much good for th
 
 ## Related Posts
 
-- [storytelling style](https://parenting.allwomenstalk.com/storytelling-styles-that-kids-enjoy/)
-- [grocery store tantrum](https://parenting.allwomenstalk.com/ways-to-avoid-toddler-tantrums-in-the-grocery-store/)
-- [maximising quality time with your child](https://parenting.allwomenstalk.com/tips-to-maximizing-time-with-your-child-as-a-working-mom/)
-- [missing grandparents](https://parenting.allwomenstalk.com/ways-to-fill-in-the-gaps-left-by-far-away-or-missing-grandparents/)
-- [babysitting kids games](https://teen.allwomenstalk.com/go-to-babysitting-games-to-entertain-the-kids/)
-- [7 Things Every Teen Should do with Her Mom ...](https://teen.allwomenstalk.com/things-every-teen-should-do-with-her-mom/)
 - [aspirations for your child](https://parenting.allwomenstalk.com/ways-to-help-your-child-achieve-their-future-goals-and-aspirations/)
-- [wearing activities](https://parenting.allwomenstalk.com/activities-that-your-kids-should-wear-a-helmet-for/)
 - [babysitting activity ideas](https://teen.allwomenstalk.com/fun-ways-to-keep-kids-occupied-when-babysitting/)
+- [wearing activities](https://parenting.allwomenstalk.com/activities-that-your-kids-should-wear-a-helmet-for/)
+- [babysitting kids games](https://teen.allwomenstalk.com/go-to-babysitting-games-to-entertain-the-kids/)
+- [storytelling style](https://parenting.allwomenstalk.com/storytelling-styles-that-kids-enjoy/)
+- [missing grandparents](https://parenting.allwomenstalk.com/ways-to-fill-in-the-gaps-left-by-far-away-or-missing-grandparents/)
+- [7 Things Every Teen Should do with Her Mom ...](https://teen.allwomenstalk.com/things-every-teen-should-do-with-her-mom/)
+- [grocery store tantrum](https://parenting.allwomenstalk.com/ways-to-avoid-toddler-tantrums-in-the-grocery-store/)
 - [teenage daughter problems](https://parenting.allwomenstalk.com/things-to-expect-when-raising-a-teenage-daughter/)
+- [maximising quality time with your child](https://parenting.allwomenstalk.com/tips-to-maximizing-time-with-your-child-as-a-working-mom/)
 - [8 Games You Can Play with Your Kids ...](https://parenting.allwomenstalk.com/8-games-you-can-play-with-your-kids/)
 - [7 Games to Keep Your Children Active ...](https://allwomenstalk.com/7-games-to-keep-your-children-active/)
 

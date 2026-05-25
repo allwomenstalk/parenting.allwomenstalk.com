@@ -3,7 +3,7 @@ title: "8 Fun Science Experiments for Kids You Can do at Home ..."
 description: "Elephant Toothpaste; Set a Soda Pop Bottle in the Middle of a Pan to Catch the Toothpaste; Mix 1/2 Cup 6% Hydrogen Peroxide, 4-5 Drops Food Coloring, and a Squirt of Dish Soap into Your Soda Pop Bottle; In a Separate Container, Mix 2 Tbsp Warm Water & 1 Tsp Yeast and Swirl Together for a Minute; Pour the Yeast Mixture into the Soda Pop Bottle... and Be Amazed!; More ..."
 url: "https://parenting.allwomenstalk.com/fun-science-experiments-for-kids-you-can-do-at-home/"
 category: "parenting"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 8 Fun Science Experiments for Kids You Can do at Home ...
@@ -112,16 +112,16 @@ Just because you're older doesn't mean you've run out of things to learn! Perfor
 
 ## Related Posts
 
-- [theme party for kids](https://lifestyle.allwomenstalk.com/fun-kids-birthday-party-themes/)
 - [how to make money weekends](https://money.allwomenstalk.com/ways-for-teenagers-to-make-extra-cash-on-the-weekends/)
-- [green items for kids](https://parenting.allwomenstalk.com/fun-green-activities-to-do-with-the-kids/)
-- [things that are spontaneous](https://lifestyle.allwomenstalk.com/fun-spontaneous-things-to-do-as-an-adult/)
-- [college coed parties](https://wedding.allwomenstalk.com/fun-ideas-for-a-co-ed-bachelorette-party/)
-- [how much does it cost to throw a house party](https://parenting.allwomenstalk.com/ways-to-throw-a-teenage-party-on-a-budget/)
-- [whats your favorite tradition](https://lifestyle.allwomenstalk.com/of-my-favorite-holiday-traditions/)
 - [doing things alone](https://lifestyle.allwomenstalk.com/enjoyable-ways-to-do-things-alone/)
+- [college coed parties](https://wedding.allwomenstalk.com/fun-ideas-for-a-co-ed-bachelorette-party/)
+- [whats your favorite tradition](https://lifestyle.allwomenstalk.com/of-my-favorite-holiday-traditions/)
 - [what can you get for 5](https://money.allwomenstalk.com/things-to-do-for-5/)
 - [ideas first date](https://love.allwomenstalk.com/fun-first-date-ideas/)
+- [how much does it cost to throw a house party](https://parenting.allwomenstalk.com/ways-to-throw-a-teenage-party-on-a-budget/)
+- [things that are spontaneous](https://lifestyle.allwomenstalk.com/fun-spontaneous-things-to-do-as-an-adult/)
+- [theme party for kids](https://lifestyle.allwomenstalk.com/fun-kids-birthday-party-themes/)
+- [green items for kids](https://parenting.allwomenstalk.com/fun-green-activities-to-do-with-the-kids/)
 - [5 Things Kids Can do in a Garden ...](https://gardening.allwomenstalk.com/5-things-kids-can-do-in-a-garden/)
 - [7 Homemade Natural Cleaners ...](https://allwomenstalk.com/7-homemade-natural-cleaners/)
 

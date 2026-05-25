@@ -3,7 +3,7 @@ title: "7 Fall-themed Crafts to Create with Preschoolers ..."
 description: "Apple Prints; Leaf Rubbings; Fall Wreath Collages; Pumpkin Seed Collage; Fingerprint Fall Tree; More ..."
 url: "https://parenting.allwomenstalk.com/fall-themed-crafts-to-create-with-preschoolers/"
 category: "parenting"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Fall\-themed Crafts to Create with Preschoolers ...

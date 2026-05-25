@@ -3,7 +3,7 @@ title: "7 Funny and Infuriating Facts about Being Pregnant That No One Tells You
 description: "Morning, Noon and Night Sickness; Mega Water Retention in Your Legs and Feet; Acne and Dry/Brittle Hair and Nails; Stretch Marks in Unexpected Places; Your Obliques Ache in the Second Trimester; More ..."
 url: "https://parenting.allwomenstalk.com/funny-and-infuriating-facts-about-being-pregnant-that-no-one-tells-you-about/"
 category: "parenting"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Funny and Infuriating Facts about Being Pregnant That No One Tells You about ...
@@ -42,16 +42,16 @@ Pregnancy is such a wonderful, miraculous experience. It's a lot smoother for so
 
 ## Related Posts
 
-- [mommy needs a break](https://parenting.allwomenstalk.com/ways-for-moms-to-get-a-break-without-a-sitter/)
-- [what is the weirdest pregnancy craving](https://parenting.allwomenstalk.com/strange-pregnancy-cravings-and-what-they-mean/)
-- [moms going back to college](https://lifestyle.allwomenstalk.com/tips-for-moms-going-back-to-school-after-a-break/)
-- [hospital labor and delivery bag](https://parenting.allwomenstalk.com/things-to-pack-for-childbirth-in-your-hospital-bag/)
-- [best things about a baby boy](https://parenting.allwomenstalk.com/good-and-bad-things-about-having-a-baby-boy/)
-- [how to make life easier with a newborn](https://parenting.allwomenstalk.com/ways-to-make-life-easier-after-bringing-your-newborn-home/)
-- [5 qualities of mother](https://parenting.allwomenstalk.com/lovable-qualities-of-a-great-mother/)
 - [dr seuss baby gifts](https://parenting.allwomenstalk.com/whimsical-ways-to-create-a-dr-seuss-baby-shower/)
+- [what is the weirdest pregnancy craving](https://parenting.allwomenstalk.com/strange-pregnancy-cravings-and-what-they-mean/)
+- [hospital labor and delivery bag](https://parenting.allwomenstalk.com/things-to-pack-for-childbirth-in-your-hospital-bag/)
+- [moms going back to college](https://lifestyle.allwomenstalk.com/tips-for-moms-going-back-to-school-after-a-break/)
+- [how to make life easier with a newborn](https://parenting.allwomenstalk.com/ways-to-make-life-easier-after-bringing-your-newborn-home/)
 - [how becoming a parent changes you](https://parenting.allwomenstalk.com/positive-and-negative-ways-life-changes-when-you-become-a-parent/)
+- [5 qualities of mother](https://parenting.allwomenstalk.com/lovable-qualities-of-a-great-mother/)
 - [baby chiropractor benefits](https://parenting.allwomenstalk.com/amazing-benefits-of-chiropractic-care-for-newborns/)
+- [best things about a baby boy](https://parenting.allwomenstalk.com/good-and-bad-things-about-having-a-baby-boy/)
+- [mommy needs a break](https://parenting.allwomenstalk.com/ways-for-moms-to-get-a-break-without-a-sitter/)
 - [10 Things Pregnant Women Should Know ...](https://parenting.allwomenstalk.com/10-things-pregnant-women-should-know/)
 - [7 Things New Moms May Not Know ...](https://parenting.allwomenstalk.com/7-things-new-moms-may-not-know/)
 
