@@ -3,7 +3,7 @@ title: "Helpful Ways to Manage an Argumentative Teen ..."
 description: "One Makes Parts, the Other Chooses; If You Are Not Contributing to Doing the Laundry, Your Clothes Will Not Be Included; Make a Decision or You’ll Abide by Mine; Determining the Severity of the Argument; Some Things May Be Resolved by a Vote; More ..."
 url: "https://parenting.allwomenstalk.com/helpful-ways-to-manage-an-argumentative-teen/"
 category: "parenting"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Helpful Ways to Manage an Argumentative Teen ...
@@ -36,16 +36,16 @@ By the way, I have veto power, and that is also non-negotiable ☺
 
 ## Related Posts
 
-- [what is a bad kisser](https://love.allwomenstalk.com/how-to-deal-with-a-bad-kisser/)
-- [turtle syndrome](https://inspiration.allwomenstalk.com/how-to-handle-turtling-syndrome/)
 - [how to stop being reserved](https://inspiration.allwomenstalk.com/how-to-stop-being-shy-and-learn-to-communicate-with-confidence/)
-- [fight fare](https://inspiration.allwomenstalk.com/how-to-fight-fair-and-win/)
-- [how do you know a fake person](https://inspiration.allwomenstalk.com/ways-to-know-if-a-nice-person-is-fake/)
+- [time to call off the engagement](https://love.allwomenstalk.com/how-to-call-off-an-engagement-with-class/)
 - [cut negativity](https://inspiration.allwomenstalk.com/how-to-cut-negative-people-from-your-life/)
+- [what to say when someone is missing a loved one](https://allwomenstalk.com/how-to-make-someone-feel-better/)
+- [turtle syndrome](https://inspiration.allwomenstalk.com/how-to-handle-turtling-syndrome/)
 - [name to call husband](https://love.allwomenstalk.com/what-to-do-when-your-husband-calls-you-names/)
 - [how to comfort a friend who got rejected](https://teen.allwomenstalk.com/how-to-comfort-a-friend-who-has-received-a-college-rejection-letter/)
-- [time to call off the engagement](https://love.allwomenstalk.com/how-to-call-off-an-engagement-with-class/)
-- [what to say when someone is missing a loved one](https://allwomenstalk.com/how-to-make-someone-feel-better/)
+- [what is a bad kisser](https://love.allwomenstalk.com/how-to-deal-with-a-bad-kisser/)
+- [fight fare](https://inspiration.allwomenstalk.com/how-to-fight-fair-and-win/)
+- [how do you know a fake person](https://inspiration.allwomenstalk.com/ways-to-know-if-a-nice-person-is-fake/)
 - [8 Tips on Resolving Fights between Your Children ....](https://parenting.allwomenstalk.com/8-tips-on-resolving-fights-between-your-children/)
 - [10 Ways to Help Your Child Deal with Peer Pressure...](https://allwomenstalk.com/10-ways-to-help-your-child-deal-with-peer-pressure/)
 

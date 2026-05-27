@@ -3,7 +3,7 @@ title: "18 Important Manners to Teach Your Children ..."
 description: "Waiting Turns; No Calling Names; Greet Your Guest; Please; Thank You; More ..."
 url: "https://parenting.allwomenstalk.com/important-manners-to-teach-your-children/"
 category: "parenting"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 18 Important Manners to Teach Your Children ...
@@ -86,16 +86,16 @@ There are plenty more manners to teach kids. These are just some of the basics. 
 
 ## Related Posts
 
-- [why home is better than school](https://parenting.allwomenstalk.com/reasons-to-home-school-your-children/)
-- [things to do with my daughter](https://parenting.allwomenstalk.com/best-things-you-can-do-for-your-children/)
-- [tolerance kids](https://parenting.allwomenstalk.com/ways-to-teach-kids-tolerance/)
-- [how to act like a child](https://lifestyle.allwomenstalk.com/delightful-advantages-of-acting-like-a-child/)
-- [choosing a babysitter](https://parenting.allwomenstalk.com/tips-on-how-to-choose-a-babysitter/)
-- [mixed kids girls](https://parenting.allwomenstalk.com/ways-to-train-your-children-for-the-future/)
-- [good values for kids](https://parenting.allwomenstalk.com/moral-values-to-teach-your-children/)
-- [potty training busy toddler](https://parenting.allwomenstalk.com/effective-potty-training-methods-for-busy-parents/)
-- [teaching kids to cook](https://parenting.allwomenstalk.com/ways-to-teach-your-kids-to-cook/)
 - [how to nurture a gifted child](https://parenting.allwomenstalk.com/tips-for-nurturing-gifted-children/)
+- [mixed kids girls](https://parenting.allwomenstalk.com/ways-to-train-your-children-for-the-future/)
+- [why home is better than school](https://parenting.allwomenstalk.com/reasons-to-home-school-your-children/)
+- [how to act like a child](https://lifestyle.allwomenstalk.com/delightful-advantages-of-acting-like-a-child/)
+- [good values for kids](https://parenting.allwomenstalk.com/moral-values-to-teach-your-children/)
+- [choosing a babysitter](https://parenting.allwomenstalk.com/tips-on-how-to-choose-a-babysitter/)
+- [things to do with my daughter](https://parenting.allwomenstalk.com/best-things-you-can-do-for-your-children/)
+- [teaching kids to cook](https://parenting.allwomenstalk.com/ways-to-teach-your-kids-to-cook/)
+- [potty training busy toddler](https://parenting.allwomenstalk.com/effective-potty-training-methods-for-busy-parents/)
+- [tolerance kids](https://parenting.allwomenstalk.com/ways-to-teach-kids-tolerance/)
 - [9 Essential Ways to Be a Good Parent ...](https://parenting.allwomenstalk.com/essential-ways-to-be-a-good-parent/)
 - [8 Ways to Become a Better Parent ...](https://allwomenstalk.com/8-ways-to-become-a-better-parent/)
 

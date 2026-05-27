@@ -3,7 +3,7 @@ title: "Magical Things to do with the Kids on Christmas Eve ..."
 description: "Leave a Santa Key; Feed the Reindeer; Read the \"night before Christmas\"; Bake Cookies; Look at the Lights; More ..."
 url: "https://parenting.allwomenstalk.com/magical-things-to-do-with-the-kids-on-christmas-eve/"
 category: "parenting"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Magical Things to do with the Kids on Christmas Eve ...
@@ -116,15 +116,15 @@ What's your Christmas Eve tradition?
 ## Related Posts
 
 - [things to do before your birthday](https://lifestyle.allwomenstalk.com/things-to-do-before-your-21st-birthday/)
-- [spring staycation ideas](https://lifestyle.allwomenstalk.com/what-to-do-if-spring-break-will-be-a-staycation/)
-- [playing in snow gif](https://lifestyle.allwomenstalk.com/ideas-for-having-a-fun-snow-day/)
+- [ideas for gatsby themed party](https://diy.allwomenstalk.com/diy-ideas-to-help-you-throw-a-great-gatsby-themed-party/)
 - [party card tricks](https://lifestyle.allwomenstalk.com/simple-card-tricks-you-can-perform-to-impress-at-parties/)
 - [boston to honalulu](https://parenting.allwomenstalk.com/places-you-must-visit-with-your-kids/)
+- [spring staycation ideas](https://lifestyle.allwomenstalk.com/what-to-do-if-spring-break-will-be-a-staycation/)
 - [funny charades ideas](https://funny.allwomenstalk.com/funny-ideas-for-charades-to-act-out-at-your-next-party/)
 - [bucket list to do with your boyfriend](https://love.allwomenstalk.com/flirty-things-to-put-on-your-bucket-list/)
 - [favorite holidays](https://lifestyle.allwomenstalk.com/infographics-thatll-teach-you-about-your-favorite-holidays/)
 - [snowed in date ideas](https://love.allwomenstalk.com/fun-date-ideas-for-snow-days/)
-- [ideas for gatsby themed party](https://diy.allwomenstalk.com/diy-ideas-to-help-you-throw-a-great-gatsby-themed-party/)
+- [playing in snow gif](https://lifestyle.allwomenstalk.com/ideas-for-having-a-fun-snow-day/)
 - [7 Fun Ways to Keep the Kids Entertained on a Holid...](https://parenting.allwomenstalk.com/fun-ways-to-keep-the-kids-entertained-on-a-holiday/)
 - [8 Fun Things to do in the Snow with Kids ...](https://parenting.allwomenstalk.com/fun-things-to-do-in-the-snow-with-kids/)
 

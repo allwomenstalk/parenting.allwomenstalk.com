@@ -3,7 +3,7 @@ title: "7 Fun-Filled Ideas for a Kids Halloween Party ..."
 description: "Bobbing for Apples; Pumpkin Roll; Pin the Hat on the Witch; Jack-O-Lantern Bean Bag Toss; Mummy Race; More ..."
 url: "https://parenting.allwomenstalk.com/fun-filled-ideas-for-a-kids-halloween-party/"
 category: "parenting"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Fun\-Filled Ideas for a Kids Halloween Party ...
@@ -56,16 +56,16 @@ These are all games I played with my students back in my teaching days, and they
 
 ## Related Posts
 
-- [halloween safety tips for adults](https://lifestyle.allwomenstalk.com/halloween-safety-tips-to-keep-in-mind-this-year/)
-- [cute girl halloween costumes](https://fashion.allwomenstalk.com/halloween-looks-that-wed-love-to-wear-year-round/)
-- [what to do with friends on halloween](https://lifestyle.allwomenstalk.com/fun-and-cheap-things-to-do-on-halloween-if-youre-broke/)
+- [tasty halloween treats](https://food.allwomenstalk.com/awesome-and-tasty-halloween-treats/)
+- [breaking bad dog costume](https://lifestyle.allwomenstalk.com/modern-halloween-costumes-youre-sure-to-see-this-year/)
 - [halloween songs for cover bands](https://music.allwomenstalk.com/best-bands-for-halloween-that-youd-love-to-get-ready-to/)
 - [halloween house diy](https://diy.allwomenstalk.com/adorable-and-super-easy-diy-halloween-decorations/)
-- [tasty halloween treats](https://food.allwomenstalk.com/awesome-and-tasty-halloween-treats/)
 - [makeup for witches](https://makeup.allwomenstalk.com/halloween-makeup-ideas-to-spook-everyone-out-this-year/)
-- [nerd day outfit ideas](https://lifestyle.allwomenstalk.com/cute-and-easy-last-minute-halloween-costume-ideas/)
+- [halloween safety tips for adults](https://lifestyle.allwomenstalk.com/halloween-safety-tips-to-keep-in-mind-this-year/)
+- [what to do with friends on halloween](https://lifestyle.allwomenstalk.com/fun-and-cheap-things-to-do-on-halloween-if-youre-broke/)
 - [halloween movie night aesthetic](https://lifestyle.allwomenstalk.com/fun-ways-to-celebrate-halloween-if-dressing-up-isnt-your-thing/)
-- [breaking bad dog costume](https://lifestyle.allwomenstalk.com/modern-halloween-costumes-youre-sure-to-see-this-year/)
+- [nerd day outfit ideas](https://lifestyle.allwomenstalk.com/cute-and-easy-last-minute-halloween-costume-ideas/)
+- [cute girl halloween costumes](https://fashion.allwomenstalk.com/halloween-looks-that-wed-love-to-wear-year-round/)
 - [7 Fun Ways to Keep the Kids Entertained on a Holid...](https://parenting.allwomenstalk.com/fun-ways-to-keep-the-kids-entertained-on-a-holiday/)
 - [7 Ideas for a Sweet 16 Birthday Party ...](https://lifestyle.allwomenstalk.com/ideas-for-a-sweet-16-birthday-party/)
 

@@ -3,7 +3,7 @@ title: "7 Things to Think about before Discussing Kids ..."
 description: "Are You Both Ready?...; Think about Complications…; Talk Roles and Responsibilities…; Money, Money, Money…; Discipline Dilemmas…; More ..."
 url: "https://parenting.allwomenstalk.com/things-to-think-about-before-discussing-kids/"
 category: "parenting"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Things to Think about before Discussing Kids ...
@@ -42,15 +42,15 @@ You need to be 100% sure that you can be good parents together before discussing
 
 ## Related Posts
 
+- [7 Ways to Make Errands Less Stressful when You Hav...](https://parenting.allwomenstalk.com/ways-to-make-errands-less-stressful-when-you-have-children/)
 - [7 Tips for when Your Teenager Talks Back to You .....](https://parenting.allwomenstalk.com/tips-for-when-your-teenager-talks-back-to-you/)
-- [7 Ways to Make Your Child More Independent ...](https://parenting.allwomenstalk.com/ways-to-make-your-child-more-independent/)
-- [7 Tips for Dealing with Your Childs Motion Sicknes...](https://parenting.allwomenstalk.com/tips-for-dealing-with-your-childs-motion-sickness/)
-- [7 Very Important Things to Look for in a Day Care ...](https://parenting.allwomenstalk.com/very-important-things-to-look-for-in-a-day-care-center/)
-- [7 Steps to Planning a Birthday Party for Your Todd...](https://parenting.allwomenstalk.com/steps-to-planning-a-birthday-party-for-your-toddler/)
-- [7 Ways to Make Time-outs Work with Your Children ....](https://parenting.allwomenstalk.com/ways-to-make-time-outs-work-with-your-children/)
 - [7 Signs Your Child is Ready for Contact Lenses ...](https://parenting.allwomenstalk.com/signs-your-child-is-ready-for-contact-lenses/)
 - [9 Tips on How to Inspire Creativity in Your Kids ....](https://parenting.allwomenstalk.com/tips-on-how-to-inspire-creativity-in-your-kids/)
-- [7 Ways to Make Errands Less Stressful when You Hav...](https://parenting.allwomenstalk.com/ways-to-make-errands-less-stressful-when-you-have-children/)
+- [7 Ways to Make Time-outs Work with Your Children ....](https://parenting.allwomenstalk.com/ways-to-make-time-outs-work-with-your-children/)
+- [7 Ways to Make Your Child More Independent ...](https://parenting.allwomenstalk.com/ways-to-make-your-child-more-independent/)
+- [7 Steps to Planning a Birthday Party for Your Todd...](https://parenting.allwomenstalk.com/steps-to-planning-a-birthday-party-for-your-toddler/)
+- [7 Tips for Dealing with Your Childs Motion Sicknes...](https://parenting.allwomenstalk.com/tips-for-dealing-with-your-childs-motion-sickness/)
+- [7 Very Important Things to Look for in a Day Care ...](https://parenting.allwomenstalk.com/very-important-things-to-look-for-in-a-day-care-center/)
 - [7 Things to do when Giving Your Kid the Sex Talk ....](https://parenting.allwomenstalk.com/things-to-do-when-giving-your-kid-the-sex-talk/)
 - [7 Tips for Parents of Kids with Special Needs ...](https://parenting.allwomenstalk.com/7-tips-for-parents-of-kids-with-special-needs/)
 - [7 Things Adoptive Parents Need to Know ...](https://parenting.allwomenstalk.com/7-things-adoptive-parents-need-to-know/)

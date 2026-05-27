@@ -3,7 +3,7 @@ title: "7 Gooey Science Experiments to do with Your Kid ..."
 description: "Glow-in-the-Dark Slime; Fake Snot; Dancing Oobleck; DIY Rubber Slime; Spaghetti Slime; More ..."
 url: "https://parenting.allwomenstalk.com/gooey-science-experiments-to-do-with-your-kid/"
 category: "parenting"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Gooey Science Experiments to do with Your Kid ...
@@ -55,15 +55,15 @@ _kidspot.com.au_
 ## Related Posts
 
 - [teach the children christmas](https://parenting.allwomenstalk.com/ways-to-teach-children-about-giving-to-others-at-christmas/)
-- [what is food production](https://food.allwomenstalk.com/ways-to-get-your-kids-interested-in-cooking/)
-- [characteristics of a little child](https://lifestyle.allwomenstalk.com/characteristics-of-a-controlling-parent/)
-- [legos to build with your boyfriend](https://parenting.allwomenstalk.com/things-to-build-with-legos-that-your-kids-will-love/)
-- [Discover How to Avoid Being an Embarrassing Parent...](https://parenting.allwomenstalk.com/ways-to-avoid-being-an-embarrassing-parent/)
-- [why am i jealous of my stepchildren](https://parenting.allwomenstalk.com/tips-for-when-your-partner-is-jealous-of-your-child/)
-- [biology doesnt make you a parent](https://parenting.allwomenstalk.com/best-parenting-infographics/)
-- [myths about parenting](https://parenting.allwomenstalk.com/popular-myths-about-parenting-that-arent-true/)
 - [parenting hacks](https://parenting.allwomenstalk.com/gentle-parenting-hacks-that-really-work/)
+- [characteristics of a little child](https://lifestyle.allwomenstalk.com/characteristics-of-a-controlling-parent/)
+- [myths about parenting](https://parenting.allwomenstalk.com/popular-myths-about-parenting-that-arent-true/)
+- [what is food production](https://food.allwomenstalk.com/ways-to-get-your-kids-interested-in-cooking/)
+- [legos to build with your boyfriend](https://parenting.allwomenstalk.com/things-to-build-with-legos-that-your-kids-will-love/)
+- [biology doesnt make you a parent](https://parenting.allwomenstalk.com/best-parenting-infographics/)
+- [Discover How to Avoid Being an Embarrassing Parent...](https://parenting.allwomenstalk.com/ways-to-avoid-being-an-embarrassing-parent/)
 - [trying not to raise](https://parenting.allwomenstalk.com/tips-if-your-parents-are-telling-you-how-to-raise-your-kids/)
+- [why am i jealous of my stepchildren](https://parenting.allwomenstalk.com/tips-for-when-your-partner-is-jealous-of-your-child/)
 - [8 Fun Things to do with Your Kids ...](https://allwomenstalk.com/8-fun-things-to-do-with-your-kids/)
 - [7 Halloween Crafts to do with Your Child ...](https://allwomenstalk.com/7-halloween-crafts-to-do-with-your-child/)
 
