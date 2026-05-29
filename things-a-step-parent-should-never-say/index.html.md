@@ -3,7 +3,7 @@ title: "7 Things a Step-Parent Should Never Say ..."
 description: "Never Put down Their Birth Parent…; Don’t Try to Discipline Them…; Don’t Be a Pushover…; Don’t Make Them Feel Left out...; Never Make Them Feel Less than...; More ..."
 url: "https://parenting.allwomenstalk.com/things-a-step-parent-should-never-say/"
 category: "parenting"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Things a Step\-Parent Should Never Say ...
@@ -42,16 +42,16 @@ What things as a step-parent have you learned to never say? Have you ever made t
 
 ## Related Posts
 
-- [cringe compliments](https://inspiration.allwomenstalk.com/things-you-shouldnt-do-when-you-receive-a-compliment/)
-- [how to impress guys](https://love.allwomenstalk.com/things-you-should-never-do-to-impress-a-guy/)
-- [flirty compliments for a girl](https://love.allwomenstalk.com/backhanded-compliments-you-should-avoid-when-flirting/)
 - [beginning a new relationship](https://love.allwomenstalk.com/things-you-shouldnt-do-in-the-beginning-of-a-new-relationship/)
-- [things your boss should never say to you](https://money.allwomenstalk.com/things-you-should-never-say-to-your-boss/)
 - [should you tell the other woman](https://love.allwomenstalk.com/lies-you-should-stop-telling-yourself-when-you-are-the-other-woman/)
-- [dangerous driving habits](https://lifestyle.allwomenstalk.com/dangerous-driving-habits-to-stop-right-now/)
-- [learning to keep my mouth shut](https://lifestyle.allwomenstalk.com/times-when-you-should-keep-your-mouth-shut/)
-- [things not to say to your boyfriend](https://love.allwomenstalk.com/things-not-to-say-to-your-boyfriend-unless-you-want-to-drive-him-crazy/)
 - [things you should never say in a job interview](https://lifestyle.allwomenstalk.com/very-important-things-you-should-never-say-at-a-job-interview/)
+- [cringe compliments](https://inspiration.allwomenstalk.com/things-you-shouldnt-do-when-you-receive-a-compliment/)
+- [flirty compliments for a girl](https://love.allwomenstalk.com/backhanded-compliments-you-should-avoid-when-flirting/)
+- [things not to say to your boyfriend](https://love.allwomenstalk.com/things-not-to-say-to-your-boyfriend-unless-you-want-to-drive-him-crazy/)
+- [how to impress guys](https://love.allwomenstalk.com/things-you-should-never-do-to-impress-a-guy/)
+- [dangerous driving habits](https://lifestyle.allwomenstalk.com/dangerous-driving-habits-to-stop-right-now/)
+- [things your boss should never say to you](https://money.allwomenstalk.com/things-you-should-never-say-to-your-boss/)
+- [learning to keep my mouth shut](https://lifestyle.allwomenstalk.com/times-when-you-should-keep-your-mouth-shut/)
 - [6 Things You Should Never Say to a Man ...](https://allwomenstalk.com/6-things-you-should-never-say-to-a-man/)
 - [Top 7 Things to Never Say to Women ...](https://allwomenstalk.com/top-7-things-to-never-say-to-women/)
 

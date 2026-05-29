@@ -3,7 +3,7 @@ title: "7 Simple and Fun Halloween Crafts for Kids"
 description: "Pumpkin Masks; Footprint Ghosts; Pumpkin Bags; More ..."
 url: "https://parenting.allwomenstalk.com/cute-halloween-craft-ideas-for-kids/"
 category: "parenting"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Simple and Fun Halloween Crafts for Kids
@@ -26,14 +26,14 @@ These are perfect for collecting treats or storing small autumn treasures. Start
 
 - [plus size ren faire ideas](https://fashion.allwomenstalk.com/incredible-ren-faire-costumes/)
 - [queen nefertiti outfit](https://fashion.allwomenstalk.com/awesome-costumes-for-you-next-costume-party/)
-- [lady sugar skull tattoo](https://lifestyle.allwomenstalk.com/downright-awesome-sugar-skulls-youre-going-to-love/)
+- [alien hemorrhage](https://food.allwomenstalk.com/terrifyingly-delicious-cocktails-for-halloween-thatll-stun-your-guests/)
+- [inflatable jelly bean costume](https://diy.allwomenstalk.com/totally-simple-diy-halloween-costumes-for-kids/)
+- [traditional dress of brazil](https://fashion.allwomenstalk.com/traditional-costumes-from-around-the-world/)
 - [best pumpkin patches in the u.s.](https://travel.allwomenstalk.com/epic-pumpkin-patches-in-the-united-states/)
 - [true blood halloween costume](https://fashion.allwomenstalk.com/common-halloween-costumes-youll-see-at-every-party/)
-- [alien hemorrhage](https://food.allwomenstalk.com/terrifyingly-delicious-cocktails-for-halloween-thatll-stun-your-guests/)
+- [lady sugar skull tattoo](https://lifestyle.allwomenstalk.com/downright-awesome-sugar-skulls-youre-going-to-love/)
 - [neil patrick harris costumes](https://celebs.allwomenstalk.com/celebrity-halloween-costumes-that-made-us-gasp-and-groan/)
-- [inflatable jelly bean costume](https://diy.allwomenstalk.com/totally-simple-diy-halloween-costumes-for-kids/)
 - [phantom of opera costume ideas](https://fashion.allwomenstalk.com/masquerade-costume-ideas/)
-- [traditional dress of brazil](https://fashion.allwomenstalk.com/traditional-costumes-from-around-the-world/)
 - [7 Great Halloween Crafts for Kids ...](https://allwomenstalk.com/7-great-halloween-crafts-for-kids/)
 - [7 Halloween Crafts to do with Your Child ...](https://allwomenstalk.com/7-halloween-crafts-to-do-with-your-child/)
 

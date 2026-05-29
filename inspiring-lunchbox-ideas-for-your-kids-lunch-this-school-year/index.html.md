@@ -3,7 +3,7 @@ title: "37 Inspiring Lunchbox Ideas for Kids This School Year ..."
 description: "Leftovers; Just the Favorites; Lots of Fruit; Little Containers; Kid Kabobs; More ..."
 url: "https://parenting.allwomenstalk.com/inspiring-lunchbox-ideas-for-your-kids-lunch-this-school-year/"
 category: "parenting"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 37 Inspiring Lunchbox Ideas for Kids This School Year ...

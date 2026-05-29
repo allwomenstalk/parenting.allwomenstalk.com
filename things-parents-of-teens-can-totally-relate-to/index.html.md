@@ -3,7 +3,7 @@ title: "5 Things Parents of Teens Can Totally Relate to ..."
 description: "They Catch Something like the Flu Called....Laziness; Their Lives Are Soooooo Dramatic; All of a Sudden You Are so Old...and Lame; They Eat Everything; They Aren’t Little Anymore; More ..."
 url: "https://parenting.allwomenstalk.com/things-parents-of-teens-can-totally-relate-to/"
 category: "parenting"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 5 Things Parents of Teens Can Totally Relate to ...
@@ -61,15 +61,15 @@ So what are some of the reasons your teens suck? There are a ton of them so tell
 ## Related Posts
 
 - [overprotective parents in your 20s](https://teen.allwomenstalk.com/how-to-gain-your-freedom-from-overprotective-parents/)
-- [potty training guide for parents](https://parenting.allwomenstalk.com/tips-for-potty-training/)
-- [still cant sleep on christmas eve](https://parenting.allwomenstalk.com/tips-to-get-your-kids-to-go-to-sleep-on-christmas-eve/)
 - [what to do with your mom at home](https://lifestyle.allwomenstalk.com/things-you-should-do-with-your-mom/)
-- [children believe](https://parenting.allwomenstalk.com/should-children-believe-in-santa-claus/)
+- [potty training japan](https://parenting.allwomenstalk.com/tips-for-potty-training-2/)
+- [home training](https://parenting.allwomenstalk.com/the-importance-of-child-training/)
 - [instill in](https://parenting.allwomenstalk.com/life-lessons-to-instill-in-your-children/)
+- [children believe](https://parenting.allwomenstalk.com/should-children-believe-in-santa-claus/)
+- [still cant sleep on christmas eve](https://parenting.allwomenstalk.com/tips-to-get-your-kids-to-go-to-sleep-on-christmas-eve/)
+- [potty training guide for parents](https://parenting.allwomenstalk.com/tips-for-potty-training/)
 - [spanking alternatives](https://parenting.allwomenstalk.com/alternatives-to-spanking-to-discipline-your-child/)
 - [taurus babies](https://parenting.allwomenstalk.com/parenting-tips-for-your-childs-zodiac-sign/)
-- [home training](https://parenting.allwomenstalk.com/the-importance-of-child-training/)
-- [potty training japan](https://parenting.allwomenstalk.com/tips-for-potty-training-2/)
 - [7 Problems Teen Moms Face ...](https://love.allwomenstalk.com/7-problems-teen-moms-face/)
 - [10 Things Every New Parent Should Know ...](https://allwomenstalk.com/10-things-every-new-parent-should-know/)
 

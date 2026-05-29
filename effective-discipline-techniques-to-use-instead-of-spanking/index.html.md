@@ -3,7 +3,7 @@ title: "7 Effective Discipline Techniques to Use Instead of Spanking ..."
 description: "Time Outs; Redirecting; Taking Away Favorite Toys; Natural Consequences; Housework; More ..."
 url: "https://parenting.allwomenstalk.com/effective-discipline-techniques-to-use-instead-of-spanking/"
 category: "parenting"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Effective Discipline Techniques to Use Instead of Spanking ...
@@ -44,15 +44,15 @@ Top Image Source: [fahg.info](https://goo.gl/eCFEuy)
 
 ## Related Posts
 
-- [how to act like a child](https://lifestyle.allwomenstalk.com/delightful-advantages-of-acting-like-a-child/)
-- [teaching kids to cook](https://parenting.allwomenstalk.com/ways-to-teach-your-kids-to-cook/)
-- [potty training busy toddler](https://parenting.allwomenstalk.com/effective-potty-training-methods-for-busy-parents/)
-- [how to nurture a gifted child](https://parenting.allwomenstalk.com/tips-for-nurturing-gifted-children/)
-- [manners should be taught at home](https://parenting.allwomenstalk.com/important-manners-to-teach-your-children/)
-- [financial advice for kids](https://money.allwomenstalk.com/financial-tips-to-teach-your-kids/)
+- [things to do with my daughter](https://parenting.allwomenstalk.com/best-things-you-can-do-for-your-children/)
 - [choosing a babysitter](https://parenting.allwomenstalk.com/tips-on-how-to-choose-a-babysitter/)
 - [mixed kids girls](https://parenting.allwomenstalk.com/ways-to-train-your-children-for-the-future/)
-- [things to do with my daughter](https://parenting.allwomenstalk.com/best-things-you-can-do-for-your-children/)
+- [financial advice for kids](https://money.allwomenstalk.com/financial-tips-to-teach-your-kids/)
+- [manners should be taught at home](https://parenting.allwomenstalk.com/important-manners-to-teach-your-children/)
+- [how to nurture a gifted child](https://parenting.allwomenstalk.com/tips-for-nurturing-gifted-children/)
+- [how to act like a child](https://lifestyle.allwomenstalk.com/delightful-advantages-of-acting-like-a-child/)
+- [potty training busy toddler](https://parenting.allwomenstalk.com/effective-potty-training-methods-for-busy-parents/)
+- [teaching kids to cook](https://parenting.allwomenstalk.com/ways-to-teach-your-kids-to-cook/)
 - [why home is better than school](https://parenting.allwomenstalk.com/reasons-to-home-school-your-children/)
 - [7 Ways to Calm an Unhappy Child ...](https://parenting.allwomenstalk.com/7-ways-to-calm-an-unhappy-child/)
 - [7 Tips on Self-Discipline ...](https://lifestyle.allwomenstalk.com/7-tips-on-self-discipline/)

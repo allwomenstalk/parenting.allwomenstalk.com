@@ -3,7 +3,7 @@ title: "7 Super Fun Things to do with a One Year Old in the Summer ..."
 description: "Play Airplane; Go for a Swim; Walks; Plant Flowers; Water Fight; More ..."
 url: "https://parenting.allwomenstalk.com/super-fun-things-to-do-with-a-one-year-old-in-the-summer/"
 category: "parenting"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Super Fun Things to do with a One Year Old in the Summer ...
@@ -56,16 +56,16 @@ Well ladies these are the fun things that I love to do with my one year old in t
 
 ## Related Posts
 
-- [pleine lune cheese](https://food.allwomenstalk.com/delicious-cheeses-for-your-summer-cheeseboard/)
-- [aspen tourist attractions](https://travel.allwomenstalk.com/attractions-of-aspen-in-the-summertime/)
 - [having a good summer](https://lifestyle.allwomenstalk.com/simple-ways-to-have-a-great-summer/)
-- [top attractions newfoundland](https://travel.allwomenstalk.com/places-to-visit-in-newfoundland-in-the-summer/)
-- [barbaque sause](https://food.allwomenstalk.com/barbecue-sauce-recipes-to-make-this-summer-totally-tasty/)
-- [cleanest lakes in georgia](https://travel.allwomenstalk.com/best-lakes-for-summer-vacation/)
-- [vacation destinations vermont](https://travel.allwomenstalk.com/best-places-to-visit-in-vermont-during-the-summer/)
 - [beach date food ideas](https://food.allwomenstalk.com/tips-for-a-beach-picnic-that-goes-with-a-bang/)
 - [high school summer jobs](https://teen.allwomenstalk.com/great-summer-jobs-for-high-school-students/)
+- [cleanest lakes in georgia](https://travel.allwomenstalk.com/best-lakes-for-summer-vacation/)
+- [barbaque sause](https://food.allwomenstalk.com/barbecue-sauce-recipes-to-make-this-summer-totally-tasty/)
+- [aspen tourist attractions](https://travel.allwomenstalk.com/attractions-of-aspen-in-the-summertime/)
 - [summer roll ideas](https://food.allwomenstalk.com/summer-roll-recipes-that-are-sure-to-satisfy-any-craving/)
+- [top attractions newfoundland](https://travel.allwomenstalk.com/places-to-visit-in-newfoundland-in-the-summer/)
+- [pleine lune cheese](https://food.allwomenstalk.com/delicious-cheeses-for-your-summer-cheeseboard/)
+- [vacation destinations vermont](https://travel.allwomenstalk.com/best-places-to-visit-in-vermont-during-the-summer/)
 - [7 Ideas to Keep Kids Occupied during Summer Break ...](https://parenting.allwomenstalk.com/7-ideas-to-keep-kids-occupied-during-summer-break/)
 - [7 Ways to Entertain Your Kids This Summer ...](https://allwomenstalk.com/7-ways-to-entertain-your-kids-this-summer/)
 

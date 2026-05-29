@@ -3,7 +3,7 @@ title: "7 Tips for when Your Child is Bullying Other Kids at School ..."
 description: "Seek Help at School; Apology Accepted; Seek Professional Help; Talk It out; Lead by Example; More ..."
 url: "https://parenting.allwomenstalk.com/tips-for-when-your-child-is-bullying-other-kids-at-school/"
 category: "parenting"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Tips for when Your Child is Bullying Other Kids at School ...
@@ -57,15 +57,15 @@ There is no perfect solution when your child is bullying others, and studies sho
 ## Related Posts
 
 - [why is my baby licking the floor](https://parenting.allwomenstalk.com/things-i-learned-from-my-1-year-old/)
-- [apps to help kids talk](https://apps.allwomenstalk.com/best-apps-to-teach-your-child-to-read/)
 - [losing a parent you werent close to quotes](https://inspiration.allwomenstalk.com/ways-to-cope-after-losing-a-parent-at-a-very-young-age/)
-- [annoying tv shows](https://parenting.allwomenstalk.com/least-annoying-kid-shows-that-will-actually-teach-your-child-something/)
-- [how can i help my community as a kid](https://parenting.allwomenstalk.com/ways-children-can-volunteer-in-their-community/)
-- [fraternal twins](https://parenting.allwomenstalk.com/tips-for-raising-fraternal-twins/)
-- [i love being an only child](https://parenting.allwomenstalk.com/amazing-things-about-being-and-having-an-only-child/)
-- [babysitting tips and tricks](https://money.allwomenstalk.com/fun-and-simple-babysitting-tips-that-will-make-you-a-pro/)
-- [mom contact](https://parenting.allwomenstalk.com/clever-and-thoughtful-ways-to-connect-with-your-mom/)
+- [apps to help kids talk](https://apps.allwomenstalk.com/best-apps-to-teach-your-child-to-read/)
 - [therapy metaphors](https://health.allwomenstalk.com/short-therapeutic-metaphors-for-the-child-within/)
+- [how can i help my community as a kid](https://parenting.allwomenstalk.com/ways-children-can-volunteer-in-their-community/)
+- [annoying tv shows](https://parenting.allwomenstalk.com/least-annoying-kid-shows-that-will-actually-teach-your-child-something/)
+- [i love being an only child](https://parenting.allwomenstalk.com/amazing-things-about-being-and-having-an-only-child/)
+- [mom contact](https://parenting.allwomenstalk.com/clever-and-thoughtful-ways-to-connect-with-your-mom/)
+- [babysitting tips and tricks](https://money.allwomenstalk.com/fun-and-simple-babysitting-tips-that-will-make-you-a-pro/)
+- [fraternal twins](https://parenting.allwomenstalk.com/tips-for-raising-fraternal-twins/)
 - [8 Ways to Help Your Child Deal with Bullies ...](https://parenting.allwomenstalk.com/ways-to-help-your-child-deal-with-bullies/)
 - [7 Tips to See if Your Child is Picked on in School...](https://allwomenstalk.com/7-tips-to-see-if-your-child-is-picked-on-in-school/)
 
