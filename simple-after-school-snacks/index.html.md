@@ -3,7 +3,7 @@ title: "7 Simple after School Snacks ..."
 description: "Mini Pizza; Home Made Popcorn; Frozen Grapes; Smoothies; Hummus and Carrots; More ..."
 url: "https://parenting.allwomenstalk.com/simple-after-school-snacks/"
 category: "parenting"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Simple after School Snacks ...
