@@ -3,7 +3,7 @@ title: "7 Things to Consider before Buying a Baby Crib ..."
 description: "Don’t Buy a Used Crib; Has It Been Recalled?; The Safety; How the Sides Drop; Wheels; More ..."
 url: "https://parenting.allwomenstalk.com/7-things-to-consider-before-buying-a-baby-crib/"
 category: "parenting"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Things to Consider before Buying a Baby Crib ...
@@ -45,15 +45,15 @@ Top Photo Credit: _tofslie_
 ## Related Posts
 
 - [how to introduce avocado to baby](https://parenting.allwomenstalk.com/easy-ways-to-use-avocados-as-babys-first-food/)
+- [what to pack for baby in hospital](https://parenting.allwomenstalk.com/essential-what-to-pack-for-the-hospital-when-having-a-baby/)
+- [best books on pregnancy and parenting](https://parenting.allwomenstalk.com/8-great-books-for-pregnant-moms/)
 - [7 Things a Pregnant Woman Needs in Her Diet ...](https://parenting.allwomenstalk.com/things-a-pregnant-woman-needs-in-her-diet/)
-- [10 facts about breastfeeding](https://parenting.allwomenstalk.com/10-facts-on-breast-feeding/)
+- [10 Newborn Essentials ...](https://parenting.allwomenstalk.com/newborn-essentials/)
 - [7 Most Popular Pregnancy Myths ...](https://parenting.allwomenstalk.com/7-most-popular-pregnancy-myths/)
 - [new mom things to know](https://parenting.allwomenstalk.com/things-every-new-mom-should-know/)
-- [tricks to get pregnant fast](https://parenting.allwomenstalk.com/tried-ways-to-get-pregnant-fast/)
-- [best books on pregnancy and parenting](https://parenting.allwomenstalk.com/8-great-books-for-pregnant-moms/)
-- [what to pack for baby in hospital](https://parenting.allwomenstalk.com/essential-what-to-pack-for-the-hospital-when-having-a-baby/)
-- [10 Newborn Essentials ...](https://parenting.allwomenstalk.com/newborn-essentials/)
+- [10 facts about breastfeeding](https://parenting.allwomenstalk.com/10-facts-on-breast-feeding/)
 - [mommy tips](https://parenting.allwomenstalk.com/7-great-tips-for-the-mommy-to-be/)
+- [tricks to get pregnant fast](https://parenting.allwomenstalk.com/tried-ways-to-get-pregnant-fast/)
 - [8 Sleep Safety Tips for Your Baby ...](https://parenting.allwomenstalk.com/sleep-safety-tips-for-your-baby/)
 - [9 Best Babyproofing Tips ...](https://parenting.allwomenstalk.com/best-babyproofing-tips/)
 

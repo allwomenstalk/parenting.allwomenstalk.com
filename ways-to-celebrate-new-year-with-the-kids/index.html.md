@@ -3,7 +3,7 @@ title: "7 Ways to Celebrate New Year with the Kids ..."
 description: "Have a Family Slumber Party; Throw a Party; Dinner and a Movie (or Two!); Try Some Fun Meals; Borrow a COLOMBIAN Tradition; More ..."
 url: "https://parenting.allwomenstalk.com/ways-to-celebrate-new-year-with-the-kids/"
 category: "parenting"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Ways to Celebrate New Year with the Kids ...
@@ -42,16 +42,16 @@ I’d have loved to experience some of these ways to celebrate the New Year when
 
 ## Related Posts
 
-- [11 Awesome Ideas to Add to Your Couples Bucket Lis...](https://love.allwomenstalk.com/awesome-ideas-to-add-to-your-couples-bucket-list/)
 - [Have an Egg-cellent Easter with These Fun Ideas fo...](https://parenting.allwomenstalk.com/have-an-egg-cellent-easter-with-these-fun-ideas-for-the-family/)
 - [what things to do on christmas eve](https://lifestyle.allwomenstalk.com/simple-cozy-things-to-do-on-christmas-eve/)
-- [7 Ways to Celebrate the Holidays with Presence Not...](https://inspiration.allwomenstalk.com/ways-to-celebrate-the-holidays-with-presence-not-presents/)
-- [funniest online games](https://funny.allwomenstalk.com/free-funny-online-games-to-play-right-away/)
-- [Exciting  Things to do in New York at Easter ...](https://travel.allwomenstalk.com/theres-nothing-like-easter-weekend-in-new-york/)
-- [nail inspro](https://inspiration.allwomenstalk.com/inspro-for-a-rainy-day-things-to-do-instead-of-bitchin-about-the-weather/)
 - [things to do with boyfriend](https://love.allwomenstalk.com/things-thatre-more-fun-when-you-do-them-with-your-boyfriend/)
-- [7 Fun Winter Break Adventures for You and Your BFF...](https://teen.allwomenstalk.com/fun-winter-break-adventures-for-you-and-your-bff/)
+- [7 Ways to Celebrate the Holidays with Presence Not...](https://inspiration.allwomenstalk.com/ways-to-celebrate-the-holidays-with-presence-not-presents/)
+- [nail inspro](https://inspiration.allwomenstalk.com/inspro-for-a-rainy-day-things-to-do-instead-of-bitchin-about-the-weather/)
 - [7 Themes for the Best Birthday Ever ...](https://lifestyle.allwomenstalk.com/themes-for-the-best-birthday-ever/)
+- [Exciting  Things to do in New York at Easter ...](https://travel.allwomenstalk.com/theres-nothing-like-easter-weekend-in-new-york/)
+- [7 Fun Winter Break Adventures for You and Your BFF...](https://teen.allwomenstalk.com/fun-winter-break-adventures-for-you-and-your-bff/)
+- [11 Awesome Ideas to Add to Your Couples Bucket Lis...](https://love.allwomenstalk.com/awesome-ideas-to-add-to-your-couples-bucket-list/)
+- [funniest online games](https://funny.allwomenstalk.com/free-funny-online-games-to-play-right-away/)
 - [7 Fun Ways to Keep the Kids Entertained on a Holid...](https://parenting.allwomenstalk.com/fun-ways-to-keep-the-kids-entertained-on-a-holiday/)
 - [7 Ways to Entertain Your Kids This Summer ...](https://allwomenstalk.com/7-ways-to-entertain-your-kids-this-summer/)
 

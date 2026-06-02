@@ -3,7 +3,7 @@ title: "7 Ways to Teach Your Son to Be a Gentleman ..."
 description: "Manners Matter; Presentation; Language; Thoughtfulness; Gifts; More ..."
 url: "https://parenting.allwomenstalk.com/ways-to-teach-your-son-to-be-a-gentleman/"
 category: "parenting"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Ways to Teach Your Son to Be a Gentleman ...
@@ -42,16 +42,16 @@ These are the few things that I suggest doing to teach your son to be a gentlema
 
 ## Related Posts
 
+- [how to teach your child to swim yourself](https://parenting.allwomenstalk.com/tips-for-teaching-your-child-how-to-swim/)
+- [moms favorite things](https://parenting.allwomenstalk.com/of-my-favorite-things-about-being-a-parent/)
 - [child wants to be vegetarian](https://parenting.allwomenstalk.com/ways-to-cope-with-a-vegetarian-child/)
+- [artificial consequences definition](https://parenting.allwomenstalk.com/techniques-to-teach-your-child-to-behave-acceptably/)
+- [how involved](https://parenting.allwomenstalk.com/ways-to-be-involved-in-your-childs-life/)
+- [send a ball](https://parenting.allwomenstalk.com/things-to-mail-to-kids/)
 - [high energy games for kids](https://parenting.allwomenstalk.com/fun-activities-for-high-energy-kids-that-will-keep-them-healthy-and-calm/)
-- [things to do with kids when babysitting](https://lifestyle.allwomenstalk.com/things-to-do-with-kids-when-babysitting/)
 - [what to do when your child is bullying others](https://parenting.allwomenstalk.com/tips-for-when-your-child-is-bullying-other-kids-at-school/)
 - [quiet kid stereotype](https://parenting.allwomenstalk.com/gender-based-stereotypes-imposed-on-kids/)
-- [how involved](https://parenting.allwomenstalk.com/ways-to-be-involved-in-your-childs-life/)
-- [how to teach your child to swim yourself](https://parenting.allwomenstalk.com/tips-for-teaching-your-child-how-to-swim/)
-- [artificial consequences definition](https://parenting.allwomenstalk.com/techniques-to-teach-your-child-to-behave-acceptably/)
-- [moms favorite things](https://parenting.allwomenstalk.com/of-my-favorite-things-about-being-a-parent/)
-- [send a ball](https://parenting.allwomenstalk.com/things-to-mail-to-kids/)
+- [things to do with kids when babysitting](https://lifestyle.allwomenstalk.com/things-to-do-with-kids-when-babysitting/)
 - [7 Daily Relationship Tips for Your Children ...](https://parenting.allwomenstalk.com/7-daily-relationship-tips-for-your-children/)
 - [7 Tips on How to Be a Lady ...](https://lifestyle.allwomenstalk.com/tips-on-how-to-be-a-lady/)
 

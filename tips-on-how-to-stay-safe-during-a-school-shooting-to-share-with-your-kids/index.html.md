@@ -3,7 +3,7 @@ title: "7 Tips on How to Stay Safe during a School Shooting to Share with Your K
 description: "Report Any Threats; Listen to Adults; Hide; Stay Quiet; Escape; More ..."
 url: "https://parenting.allwomenstalk.com/tips-on-how-to-stay-safe-during-a-school-shooting-to-share-with-your-kids/"
 category: "parenting"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Tips on How to Stay Safe during a School Shooting to Share with Your Kids ...
@@ -42,16 +42,16 @@ Do school shootings scare you? It’s enough to make me want to home school my k
 
 ## Related Posts
 
-- [things to do with your son](https://parenting.allwomenstalk.com/things-to-do-for-your-son-that-he-will-never-forget/)
-- [how to make christmas magical for 2 year old](https://parenting.allwomenstalk.com/ways-to-make-christmas-magical-for-your-kids/)
+- [communication tips for teens](https://parenting.allwomenstalk.com/tips-on-improving-communication-with-your-teenager/)
 - [nearest ballet classes](https://parenting.allwomenstalk.com/things-to-think-of-before-considering-ballet-classes-for-your-children/)
 - [seasonal holidays meaning](https://parenting.allwomenstalk.com/ways-your-kids-can-appreciate-the-true-meaning-of-the-holiday-season/)
-- [how to build a childs self esteem](https://parenting.allwomenstalk.com/tips-on-how-to-help-build-your-childs-self-esteem/)
-- [childs party](https://parenting.allwomenstalk.com/ways-to-get-through-your-childs-birthday-party-with-your-sanity-intact/)
-- [communication tips for teens](https://parenting.allwomenstalk.com/tips-on-improving-communication-with-your-teenager/)
-- [protecting your child from cyberbullying](https://parenting.allwomenstalk.com/tips-on-how-to-protect-your-kids-from-cyberbullying/)
 - [how to improve creativity in kids](https://parenting.allwomenstalk.com/ways-to-increase-creativity-in-your-kids/)
+- [how to build a childs self esteem](https://parenting.allwomenstalk.com/tips-on-how-to-help-build-your-childs-self-esteem/)
 - [is it okay to be wrong](https://parenting.allwomenstalk.com/reasons-why-its-okay-to-make-mistakes-as-a-parent/)
+- [childs party](https://parenting.allwomenstalk.com/ways-to-get-through-your-childs-birthday-party-with-your-sanity-intact/)
+- [things to do with your son](https://parenting.allwomenstalk.com/things-to-do-for-your-son-that-he-will-never-forget/)
+- [protecting your child from cyberbullying](https://parenting.allwomenstalk.com/tips-on-how-to-protect-your-kids-from-cyberbullying/)
+- [how to make christmas magical for 2 year old](https://parenting.allwomenstalk.com/ways-to-make-christmas-magical-for-your-kids/)
 - [7 Tips on Protecting Your Family ...](https://parenting.allwomenstalk.com/7-tips-on-protecting-your-family/)
 - [7 Tips to See if Your Child is Picked on in School...](https://allwomenstalk.com/7-tips-to-see-if-your-child-is-picked-on-in-school/)
 

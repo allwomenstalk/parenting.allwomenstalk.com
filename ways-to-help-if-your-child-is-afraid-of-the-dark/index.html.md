@@ -3,7 +3,7 @@ title: "7 Ways to Help if Your Child is Afraid of the Dark ..."
 description: "Get Them a Night Light; Play a Game; Leave Their Door Open; Find out What They Are Afraid of; Investigate with Them; More ..."
 url: "https://parenting.allwomenstalk.com/ways-to-help-if-your-child-is-afraid-of-the-dark/"
 category: "parenting"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Ways to Help if Your Child is Afraid of the Dark ...
@@ -42,16 +42,16 @@ What steps have you taken to help your child with their fear of the dark? What w
 
 ## Related Posts
 
-- [7 Tips to Keep Your Child Healthy This Cold and Fl...](https://parenting.allwomenstalk.com/tips-to-keep-your-child-healthy-this-cold-and-flu-season/)
-- [why do babies like crinkle sounds](https://parenting.allwomenstalk.com/engaging-baby-toys-your-little-one-will-love/)
-- [8 Evergreen Tips for Dealing with Parents ...](https://parenting.allwomenstalk.com/evergreen-tips-for-dealing-with-parents/)
-- [Are You in Danger of Spoiling Your Kids ...](https://parenting.allwomenstalk.com/warning-signs-you-may-be-spoiling-your-kids/)
-- [Is It Time to Give Your Children More Responsibili...](https://parenting.allwomenstalk.com/hints-for-knowing-when-to-give-your-children-more-responsibility/)
-- [7 Things You Should Know about Your Babysitter ...](https://parenting.allwomenstalk.com/things-you-should-know-about-your-babysitter/)
 - [7 Creative Educational Activities Your Kids Will L...](https://parenting.allwomenstalk.com/creative-educational-activities-your-kids-will-love/)
-- [Beautiful Video Where One Child Tells the Story of...](https://parenting.allwomenstalk.com/touching-short-film-thanks-moms-around-the-world/)
+- [8 Evergreen Tips for Dealing with Parents ...](https://parenting.allwomenstalk.com/evergreen-tips-for-dealing-with-parents/)
 - [7 Tips on How to Make Learning Science Fun for You...](https://parenting.allwomenstalk.com/tips-on-how-to-make-learning-science-fun-for-your-kid/)
+- [7 Things You Should Know about Your Babysitter ...](https://parenting.allwomenstalk.com/things-you-should-know-about-your-babysitter/)
 - [7 Facts of Life That You Should Teach Your Childre...](https://parenting.allwomenstalk.com/facts-of-life-that-you-should-teach-your-children/)
+- [7 Tips to Keep Your Child Healthy This Cold and Fl...](https://parenting.allwomenstalk.com/tips-to-keep-your-child-healthy-this-cold-and-flu-season/)
+- [Are You in Danger of Spoiling Your Kids ...](https://parenting.allwomenstalk.com/warning-signs-you-may-be-spoiling-your-kids/)
+- [Beautiful Video Where One Child Tells the Story of...](https://parenting.allwomenstalk.com/touching-short-film-thanks-moms-around-the-world/)
+- [why do babies like crinkle sounds](https://parenting.allwomenstalk.com/engaging-baby-toys-your-little-one-will-love/)
+- [Is It Time to Give Your Children More Responsibili...](https://parenting.allwomenstalk.com/hints-for-knowing-when-to-give-your-children-more-responsibility/)
 - [7 Ways to Get Your Child to Sleep ...](https://parenting.allwomenstalk.com/7-ways-to-get-your-child-to-sleep/)
 - [7 Ways to Calm an Unhappy Child ...](https://parenting.allwomenstalk.com/7-ways-to-calm-an-unhappy-child/)
 

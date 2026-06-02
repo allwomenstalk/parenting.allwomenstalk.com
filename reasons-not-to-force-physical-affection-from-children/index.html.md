@@ -3,7 +3,7 @@ title: "7 Reasons Not to Force Physical Affection from Children ..."
 description: "Forced Affection Isn't Genuine; It's Not Respecting Personal Space; It Pushes Them out of Their Comfort Zone; It Teaches Children to Deny Gut Feelings; It Teaches Them They Can Be Touched by Anyone; More ..."
 url: "https://parenting.allwomenstalk.com/reasons-not-to-force-physical-affection-from-children/"
 category: "parenting"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Reasons Not to Force Physical Affection from Children ...
@@ -44,16 +44,16 @@ It can be sticky when navigating how to approach the topic of affection and chil
 
 ## Related Posts
 
-- [health reasons to put down phone](https://inspiration.allwomenstalk.com/reasons-to-put-your-phone-down/)
-- [definition of friendship](https://lifestyle.allwomenstalk.com/reasons-you-need-friends-more-than-a-partner/)
 - [signs youre being taken advantage of at work](https://money.allwomenstalk.com/signs-youre-too-nice-at-work-and-why-thats-a-bad-thing/)
+- [health reasons to put down phone](https://inspiration.allwomenstalk.com/reasons-to-put-your-phone-down/)
+- [should i get a tinder](https://love.allwomenstalk.com/reasons-why-you-should-stay-away-from-tinder/)
+- [is it wrong to cheat back](https://love.allwomenstalk.com/reasons-why-you-shouldnt-take-back-a-cheater/)
+- [reasons to change last name](https://love.allwomenstalk.com/reasons-for-and-against-changing-your-name-after-marriage/)
+- [why marriage counseling fails](https://love.allwomenstalk.com/main-reasons-why-couples-therapy-fails/)
 - [its okay to be selfish](https://lifestyle.allwomenstalk.com/times-when-its-okay-to-be-selfish/)
 - [why i dont like festivals](https://music.allwomenstalk.com/reasons-to-give-music-festivals-a-miss/)
-- [is it wrong to cheat back](https://love.allwomenstalk.com/reasons-why-you-shouldnt-take-back-a-cheater/)
-- [should i get a tinder](https://love.allwomenstalk.com/reasons-why-you-should-stay-away-from-tinder/)
-- [reasons to change last name](https://love.allwomenstalk.com/reasons-for-and-against-changing-your-name-after-marriage/)
+- [definition of friendship](https://lifestyle.allwomenstalk.com/reasons-you-need-friends-more-than-a-partner/)
 - [he didnt call me back](https://love.allwomenstalk.com/reasons-he-hasnt-called-yet/)
-- [why marriage counseling fails](https://love.allwomenstalk.com/main-reasons-why-couples-therapy-fails/)
 - [7 Reasons Not to Have Sex during Your Teen Years ....](https://allwomenstalk.com/7-reasons-not-to-have-sex-during-your-teen-years/)
 - [8 Signs of Child Abuse ...](https://allwomenstalk.com/8-signs-of-child-abuse/)
 

@@ -3,7 +3,7 @@ title: "7 Chores Your 2 Year Old Can Help with ..."
 description: "Sweeping the Floor; Putting Things Away; Unloading the Dishwasher; Wiping off the Table; Putting Clothes in the Washing Machine; More ..."
 url: "https://parenting.allwomenstalk.com/chores-your-2-year-old-can-help-with/"
 category: "parenting"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Chores Your 2 Year Old Can Help with ...
@@ -43,15 +43,15 @@ Chores are not fun for adults, but they can be fun for little ones who just want
 ## Related Posts
 
 - [how to stay safe during a shooting](https://parenting.allwomenstalk.com/tips-on-how-to-stay-safe-during-a-school-shooting-to-share-with-your-kids/)
+- [things to teach](https://parenting.allwomenstalk.com/important-things-to-teach-your-teenage-son/)
+- [why do parents embarrass you in public](https://parenting.allwomenstalk.com/too-cute-ways-your-kids-will-embarrass-you-in-public/)
 - [babysitter cancelled last minute](https://parenting.allwomenstalk.com/interesting-things-your-babysitter-will-never-tell-you/)
-- [jobs that kids can do](https://lifestyle.allwomenstalk.com/real-work-from-home-jobs-you-can-do-with-kids/)
 - [most searched parenting topics](https://parenting.allwomenstalk.com/crunchy-parenting-topics-that-are-highly-debated/)
 - [sonic food ideas for birthday party](https://parenting.allwomenstalk.com/ways-to-throw-a-sonic-party-for-your-child/)
-- [why do children bite](https://parenting.allwomenstalk.com/important-reasons-why-children-bite-and-how-to-deal-with-it/)
-- [things to teach](https://parenting.allwomenstalk.com/important-things-to-teach-your-teenage-son/)
+- [jobs that kids can do](https://lifestyle.allwomenstalk.com/real-work-from-home-jobs-you-can-do-with-kids/)
 - [disciplining a 6 year old](https://parenting.allwomenstalk.com/guidelines-for-disciplining-your-child-fairly/)
-- [why do parents embarrass you in public](https://parenting.allwomenstalk.com/too-cute-ways-your-kids-will-embarrass-you-in-public/)
 - [kid pick clothes](https://parenting.allwomenstalk.com/reasons-to-let-your-kids-choose-their-own-clothes/)
+- [why do children bite](https://parenting.allwomenstalk.com/important-reasons-why-children-bite-and-how-to-deal-with-it/)
 - [7 Ways to Involve Your Kids with Everything ...](https://parenting.allwomenstalk.com/7-ways-to-involve-your-kids-with-everything/)
 - [7 Ways to Make Your Little One Smile ...](https://parenting.allwomenstalk.com/7-ways-to-make-your-little-one-smile/)
 
