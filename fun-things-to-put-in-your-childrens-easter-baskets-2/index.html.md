@@ -1,12 +1,12 @@
 ---
-title: "17 Fun Things to Put in Your Childrens Easter Baskets ..."
+title: "17 Fun Things to Put in Your Children's Easter Baskets ..."
 description: "Sidewalk Chalk; Shopkins; Bubbles; Books; Bath Drops; More ..."
 url: "https://parenting.allwomenstalk.com/fun-things-to-put-in-your-childrens-easter-baskets-2/"
 category: "parenting"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 17 Fun Things to Put in Your Childrens Easter Baskets ...
+# 17 Fun Things to Put in Your Children's Easter Baskets ...
 
 Do you need some **fun things to put in your child's Easter basket**? I'm always struggling to find alternatives to candy to stuff in the Easter Baskets that will be fun and exciting just like candy, without actually being candy. If you're like me, your kids are hyper enough without the added sugar. So here is a compiled list of **fun things to put in your child's Easter basket**.
 
@@ -133,17 +133,17 @@ Any other ideas you have to add? Are you going to try going less candy and more 
 
 ## Related Posts
 
-- [loreal paris maximalist eyeshadow neon skirt](https://lifestyle.allwomenstalk.com/things-to-do-on-sunday-for-a-more-productive-week/)
-- [fun fathers day activities](https://lifestyle.allwomenstalk.com/super-exciting-activities-to-do-with-dad-on-fathers-day/)
-- [cheap hangout ideas](https://lifestyle.allwomenstalk.com/best-ways-to-have-fun-when-youre-broke-af/)
-- [fun things for dogs to do](https://lifestyle.allwomenstalk.com/fun-things-to-do-with-your-dog/)
 - [best friend summer bucket list ideas](https://lifestyle.allwomenstalk.com/grab-your-gal-pals-and-take-on-this-ultimate-bff-bucket-list/)
-- [lounge in orange county](https://food.allwomenstalk.com/best-bars-in-orange-county/)
 - [myfundate](https://love.allwomenstalk.com/fun-date-ideas/)
+- [lounge in orange county](https://food.allwomenstalk.com/best-bars-in-orange-county/)
+- [cheap hangout ideas](https://lifestyle.allwomenstalk.com/best-ways-to-have-fun-when-youre-broke-af/)
+- [fun fathers day activities](https://lifestyle.allwomenstalk.com/super-exciting-activities-to-do-with-dad-on-fathers-day/)
+- [loreal paris maximalist eyeshadow neon skirt](https://lifestyle.allwomenstalk.com/things-to-do-on-sunday-for-a-more-productive-week/)
 - [cute couple bucket list](https://love.allwomenstalk.com/things-to-put-on-a-couples-bucket-list/)
-- [things to add to a bucket list](https://lifestyle.allwomenstalk.com/things-to-add-to-bucket-list/)
 - [fun places to go on the weekend](https://lifestyle.allwomenstalk.com/fun-things-to-do-to-have-the-best-weekend-ever/)
-- [10 Things for Your Childs Easter Basket ...](https://allwomenstalk.com/10-things-for-your-childs-easter-basket/)
+- [things to add to a bucket list](https://lifestyle.allwomenstalk.com/things-to-add-to-bucket-list/)
+- [fun things for dogs to do](https://lifestyle.allwomenstalk.com/fun-things-to-do-with-your-dog/)
+- [10 Things for Your Child's Easter Basket ...](https://allwomenstalk.com/10-things-for-your-childs-easter-basket/)
 - [5 Things to Make or Buy for Easter ...](https://allwomenstalk.com/5-things-to-make-or-buy-for-easter/)
 
 ## Site Information

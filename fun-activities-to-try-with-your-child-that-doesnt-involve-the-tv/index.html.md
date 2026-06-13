@@ -1,12 +1,12 @@
 ---
-title: "9 Fun Activities to Try with Your Child That Dont Involve the TV ..."
+title: "9 Fun Activities to Try with Your Child That Don't Involve the TV ..."
 description: "Play outside Together; Do Something Competitive; Board Games; Go to the Library; Do a Pinterest Project; More ..."
 url: "https://parenting.allwomenstalk.com/fun-activities-to-try-with-your-child-that-doesnt-involve-the-tv/"
 category: "parenting"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 9 Fun Activities to Try with Your Child That Dont Involve the TV ...
+# 9 Fun Activities to Try with Your Child That Don't Involve the TV ...
 
 Looking for some fun activities to try with your child that don’t involve watching or using a TV? There are lots of fun options for video games, movies, Wii systems, computer games, and countless others, but why not try breaking the pattern for some good old fashioned fun? Keep reading if you want some ideas for fun activities to try with your child!
 
@@ -50,16 +50,16 @@ We all know that too much TV can interfere with many things. According to kidshe
 
 ## Related Posts
 
-- [7 Great and Unexpected Things to do This Spring .....](https://lifestyle.allwomenstalk.com/great-and-unexpected-things-to-do-this-spring/)
-- [realistic bucket list](https://funny.allwomenstalk.com/cheeky-goals-to-put-on-your-realistic-bucket-list/)
+- [9 Themed Races That You'll Want to Run ...](https://running.allwomenstalk.com/themes-races-that-youll-want-to-run/)
 - [9 Things to do This Spring That Will Make You Happ...](https://inspiration.allwomenstalk.com/things-to-do-this-spring-that-will-make-you-happy/)
-- [7 Ways to Make Memories That Will Last ...](https://diy.allwomenstalk.com/ways-to-make-memories-that-will-last/)
-- [7 Things to do in Austin Texas ...](https://travel.allwomenstalk.com/things-to-do-in-austin-texas/)
+- [7 Great and Unexpected Things to do This Spring .....](https://lifestyle.allwomenstalk.com/great-and-unexpected-things-to-do-this-spring/)
+- [7 Fun Family Things to do in Berlin ...](https://travel.allwomenstalk.com/fun-family-things-to-do-in-berlin/)
+- [7 Nice Things to do for Yourself when You Are Sick...](https://health.allwomenstalk.com/nice-things-to-do-for-yourself-when-you-are-sick/)
+- [7 Things to do in Austin, Texas ...](https://travel.allwomenstalk.com/things-to-do-in-austin-texas/)
 - [children s party themes](https://parenting.allwomenstalk.com/childrens-party-theme-ideas/)
 - [funny things to do on a first date](https://love.allwomenstalk.com/fun-things-to-do-on-a-first-date/)
-- [7 Nice Things to do for Yourself when You Are Sick...](https://health.allwomenstalk.com/nice-things-to-do-for-yourself-when-you-are-sick/)
-- [9 Themed Races That Youll Want to Run ...](https://running.allwomenstalk.com/themes-races-that-youll-want-to-run/)
-- [7 Fun Family Things to do in Berlin ...](https://travel.allwomenstalk.com/fun-family-things-to-do-in-berlin/)
+- [7 Ways to Make Memories That Will Last ...](https://diy.allwomenstalk.com/ways-to-make-memories-that-will-last/)
+- [realistic bucket list](https://funny.allwomenstalk.com/cheeky-goals-to-put-on-your-realistic-bucket-list/)
 - [8 Fun Things to do with Your Kids ...](https://allwomenstalk.com/8-fun-things-to-do-with-your-kids/)
 - [7 Games to Keep Your Children Active ...](https://allwomenstalk.com/7-games-to-keep-your-children-active/)
 

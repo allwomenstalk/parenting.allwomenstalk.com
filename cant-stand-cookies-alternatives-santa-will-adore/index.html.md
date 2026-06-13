@@ -1,12 +1,12 @@
 ---
-title: "Cant Stand Cookies? 7 Alternatives Santa Will Adore ..."
+title: "Can't Stand Cookies? 7 Alternatives Santa Will Adore ..."
 description: "Brownies in Cookie Cutter Shapes; Carrots for the Reindeer; Healthy Muffins; Assorted Chocolate; Fruit; More ..."
 url: "https://parenting.allwomenstalk.com/cant-stand-cookies-alternatives-santa-will-adore/"
 category: "parenting"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Cant Stand Cookies? 7 Alternatives Santa Will Adore ...
+# Can't Stand Cookies? 7 Alternatives Santa Will Adore ...
 
 Little kids assume that Santa loves to eat cookies, because that's what they've been taught by movies and books. Of course, the "Santa" that visits your home might not be the biggest fan of cookies, so why would you encourage your children to leave that snack out for him? There are plenty of other things that they can put on a plate for old Saint Nick. Here are some alternatives that Santa might like munching on more than cookies this year:
 
@@ -48,16 +48,16 @@ If you're sick of cookies, tell your children about one of Santa's other favorit
 
 ## Related Posts
 
-- [christmas party appetizers](https://food.allwomenstalk.com/tiny-toothpick-appetizers-thatll-fit-any-occasion/)
-- [what to make with jello](https://food.allwomenstalk.com/jello-recipes-to-serve-at-your-new-years-party/)
+- [chewing gum](https://love.allwomenstalk.com/the-tastiest-flavors-of-gum-to-chew-before-kissing/)
+- [treehouse gingerbread house](https://food.allwomenstalk.com/gingerbread-houses-that-look-as-good-as-they-taste/)
 - [make ahead cookies for wedding reception](https://wedding.allwomenstalk.com/skip-the-cake-and-go-for-these-cute-wedding-desserts/)
+- [christmas party appetizers](https://food.allwomenstalk.com/tiny-toothpick-appetizers-thatll-fit-any-occasion/)
+- [easy dessert recipes from around the world](https://food.allwomenstalk.com/you-need-to-try-these-delicious-desserts-from-around-the-world/)
+- [what is the hardest thing to bake](https://food.allwomenstalk.com/romantic-desserts-to-make-with-your-bf-to-set-the-mood/)
 - [chocolate recipes christmas](https://food.allwomenstalk.com/festive-desserts-for-chocoholics/)
 - [night owl icing](https://food.allwomenstalk.com/cute-shapes-to-cut-your-christmas-cookies-into/)
-- [treehouse gingerbread house](https://food.allwomenstalk.com/gingerbread-houses-that-look-as-good-as-they-taste/)
 - [food in snow](https://food.allwomenstalk.com/desserts-you-can-make-using-freshly-fallen-snow/)
-- [what is the hardest thing to bake](https://food.allwomenstalk.com/romantic-desserts-to-make-with-your-bf-to-set-the-mood/)
-- [easy dessert recipes from around the world](https://food.allwomenstalk.com/you-need-to-try-these-delicious-desserts-from-around-the-world/)
-- [chewing gum](https://love.allwomenstalk.com/the-tastiest-flavors-of-gum-to-chew-before-kissing/)
+- [what to make with jello](https://food.allwomenstalk.com/jello-recipes-to-serve-at-your-new-years-party/)
 - [7 Great Cookie Recipes ...](https://thecrepescafe.com/great-cookie-recipes-2/)
 - [7 Types of Cookies That I Love ...](https://cooking.allwomenstalk.com/types-of-cookies-that-i-love/)
 

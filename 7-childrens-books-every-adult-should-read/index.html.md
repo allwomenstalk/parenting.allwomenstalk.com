@@ -1,12 +1,12 @@
 ---
-title: "7 Children’s Books Every Adult Should Read"
+title: "7 Children’s Books Every Adult Should Read …"
 description: "Black Beauty (Anna Sewell); One Fish Two Fish Red Fish Blue Fish (Dr Seuss); The Water Babies (Charles Kingsley); Little Women (Louisa May Alcott); The Magic Far Away Tree (Enid Blyton); More ..."
 url: "https://parenting.allwomenstalk.com/7-childrens-books-every-adult-should-read/"
 category: "parenting"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Children’s Books Every Adult Should Read
+# 7 Children’s Books Every Adult Should Read …
 
 Just the other day I was talking with a friend and likening an acquaintance to Mr Darcy. When my friend asked who Mr. Darcy was and I told her that he was the hero in Pride and Prejudice she retorted, "Oh I haven’t seen that one." As an avid book reader and a lover of classic literature this was a complete anathema and has set me on a mini crusade to re-introduce books to the generation who seem to have lost them. So girls, get down to the bookshop, pick a title or two, ignore the latest SMS, leave the glossy magazine full of fluff on the coffee table and turn off the TV reminder for the latest chick flick. Now, grab a glass (or two) of wine, a bar of chocolate and curl up on the sofa for a jolly good read.
 
@@ -46,18 +46,18 @@ Top Photo Credit: _» Zitona «_
 
 ## Related Posts
 
-- [who has the best deal on downloading audiobooks](https://lifestyle.allwomenstalk.com/best-places-to-download-audio-books-online/)
-- [19th century novelists](https://lifestyle.allwomenstalk.com/great-victorian-novelists/)
-- [7 Massive Books for Holiday Reading ...](https://lifestyle.allwomenstalk.com/massive-books-for-holiday-reading/)
-- [7 Great Books on Mental Illness ...](https://health.allwomenstalk.com/great-books-on-mental-illness/)
-- [8 Surprisingly Good Books by Celebrities ...](https://celebs.allwomenstalk.com/surprisingly-good-books-by-celebrities/)
-- [poorly written books](https://celebs.allwomenstalk.com/8-worst-books-written-by-celebs/)
 - [8 Cookbooks for You and the Kids ...](https://cooking.allwomenstalk.com/cookbooks-for-you-and-the-kids/)
 - [9 Books That Did Not Make Great Movies ...](https://movies.allwomenstalk.com/9-books-that-did-not-make-great-movies/)
-- [7 Books for Your Childs Collection ...](https://parenting.allwomenstalk.com/books-for-your-childs-collection/)
+- [8 Surprisingly Good Books by Celebrities ...](https://celebs.allwomenstalk.com/surprisingly-good-books-by-celebrities/)
+- [19th century novelists](https://lifestyle.allwomenstalk.com/great-victorian-novelists/)
+- [poorly written books](https://celebs.allwomenstalk.com/8-worst-books-written-by-celebs/)
+- [who has the best deal on downloading audiobooks](https://lifestyle.allwomenstalk.com/best-places-to-download-audio-books-online/)
+- [7 Books for Your Child's Collection ...](https://parenting.allwomenstalk.com/books-for-your-childs-collection/)
 - [book series for tweens](https://lifestyle.allwomenstalk.com/tween-series-i-read-as-a-kid/)
+- [7 Massive Books for Holiday Reading ...](https://lifestyle.allwomenstalk.com/massive-books-for-holiday-reading/)
+- [7 Great Books on Mental Illness ...](https://health.allwomenstalk.com/great-books-on-mental-illness/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
-- [7 Incredible Childrens Books ...](https://allwomenstalk.com/7-incredible-childrens-books/)
+- [7 Incredible Children's Books ...](https://allwomenstalk.com/7-incredible-childrens-books/)
 
 ## Site Information
 

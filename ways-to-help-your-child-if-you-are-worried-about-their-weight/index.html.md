@@ -3,7 +3,7 @@ title: "7 Ways to Help Your Child if You Are Worried about Their Weight ..."
 description: "Make It a Family Affair; Be Positive and Encouraging; Rethink Beverages; Set a Schedule; Keep Healthy Foods on Hand; More ..."
 url: "https://parenting.allwomenstalk.com/ways-to-help-your-child-if-you-are-worried-about-their-weight/"
 category: "parenting"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Ways to Help Your Child if You Are Worried about Their Weight ...
@@ -42,16 +42,16 @@ Childhood obesity is nothing to take lightly, and as adults, it is up to us to h
 
 ## Related Posts
 
-- [7 Habits of Healthy Families That You Should Follo...](https://parenting.allwomenstalk.com/habits-of-healthy-families-that-you-should-follow/)
-- [7 Ways to Help Your Child Make Friends ...](https://parenting.allwomenstalk.com/ways-to-help-your-child-make-friends/)
-- [7 Ways to Be a Good Mom when Your Child Plays Spor...](https://parenting.allwomenstalk.com/ways-to-be-a-good-mom-when-your-child-plays-sports/)
-- [7 Lies Its Technically Okay to Tell Your Kids ...](https://parenting.allwomenstalk.com/lies-its-technically-okay-to-tell-your-kids/)
-- [things you want from a relationship](https://teen.allwomenstalk.com/things-you-can-do-to-improve-your-relationship-with-your-parents/)
 - [7 Steps to Being a Good Stepparent ...](https://parenting.allwomenstalk.com/steps-to-being-a-good-stepparent/)
-- [7 Ways to Give Your Children a Healthy Valentines ...](https://parenting.allwomenstalk.com/ways-to-give-your-children-a-healthy-valentines-day/)
-- [7 Ways to Earn Your Parents Trust ...](https://teen.allwomenstalk.com/ways-to-earn-your-parents-trust/)
-- [my childs first day at school quotes](https://parenting.allwomenstalk.com/tips-for-coping-when-your-child-starts-school/)
+- [7 Ways to Earn Your Parents' Trust ...](https://teen.allwomenstalk.com/ways-to-earn-your-parents-trust/)
+- [my child's first day at school quotes](https://parenting.allwomenstalk.com/tips-for-coping-when-your-child-starts-school/)
+- [7 Ways to Be a Good Mom when Your Child Plays Spor...](https://parenting.allwomenstalk.com/ways-to-be-a-good-mom-when-your-child-plays-sports/)
+- [7 Ways to Help Your Child Make Friends ...](https://parenting.allwomenstalk.com/ways-to-help-your-child-make-friends/)
 - [7 Ways to Make Healthy Living a Family Affair ...](https://health.allwomenstalk.com/ways-to-make-healthy-living-a-family-affair/)
+- [7 Lies It's Technically Okay to Tell Your Kids ...](https://parenting.allwomenstalk.com/lies-its-technically-okay-to-tell-your-kids/)
+- [things you want from a relationship](https://teen.allwomenstalk.com/things-you-can-do-to-improve-your-relationship-with-your-parents/)
+- [7 Habits of Healthy Families That You Should Follo...](https://parenting.allwomenstalk.com/habits-of-healthy-families-that-you-should-follow/)
+- [7 Ways to Give Your Children a Healthy Valentine's...](https://parenting.allwomenstalk.com/ways-to-give-your-children-a-healthy-valentines-day/)
 - [7 Tips to Get Your Kids Eating Healthy ...](https://parenting.allwomenstalk.com/7-tips-to-get-your-kids-eating-healthy/)
 - [7 Tips to Encourage Healthy Living in Your Kids .....](https://health.allwomenstalk.com/7-tips-to-encourage-healthy-living-in-your-kids/)
 

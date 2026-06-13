@@ -1,12 +1,12 @@
 ---
-title: "8 Things You Didnt Know about Pregnancy ..."
+title: "8 Things You Didn't Know about Pregnancy ..."
 description: "It’s Sexy – or Isn’t It?!; Baby Names Suck; The First Trimester is Scariest; You Are Already a Mom; The Pain Starts Early; More ..."
 url: "https://parenting.allwomenstalk.com/things-you-didnt-know-about-pregnancy/"
 category: "parenting"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 8 Things You Didnt Know about Pregnancy ...
+# 8 Things You Didn't Know about Pregnancy ...
 
 There can’t be many things you didn’t know about pregnancy, right? We’ve all seen it on TV. Someone gets that "odd" feeling, pees on a stick, feels scared/stressed/happy/shocked, and then the morning sickness starts. Add in the boob growth, huge bumps, scan excitement and that labor always starts in the middle of the night, causing your husband to completely freak out, and the whole thing is almost scripted, right?! Er – it appears not. Here are the top 8 things you didn’t know about pregnancy…
 
@@ -46,16 +46,16 @@ Pregnancy is amazing, and everyone looks back with a smile. But when it’s happ
 
 ## Related Posts
 
-- [factors to consider when naming a child](https://parenting.allwomenstalk.com/things-to-consider-before-naming-your-baby/)
 - [baby diapers brands](https://parenting.allwomenstalk.com/best-diaper-brands-to-use/)
 - [can pedicure induce labor](https://parenting.allwomenstalk.com/ways-to-relax-while-pregnant/)
 - [emotionally ready for a baby](https://parenting.allwomenstalk.com/ways-to-mentally-prepare-for-a-baby/)
-- [mom need a break](https://parenting.allwomenstalk.com/things-dads-can-do-to-give-mom-a-break/)
 - [7 friends drawing](https://lifestyle.allwomenstalk.com/ways-to-stay-connected-with-your-new-mom-friends/)
-- [when to start buying maternity clothes](https://money.allwomenstalk.com/ways-to-avoid-buying-maternity-clothes/)
 - [how to prepare your body for pregnancy after misca...](https://parenting.allwomenstalk.com/tips-for-preparing-to-get-pregnant-after-miscarriage/)
-- [flying while pregnant tips](https://parenting.allwomenstalk.com/tips-for-flying-while-pregnant/)
+- [when to start buying maternity clothes](https://money.allwomenstalk.com/ways-to-avoid-buying-maternity-clothes/)
+- [factors to consider when naming a child](https://parenting.allwomenstalk.com/things-to-consider-before-naming-your-baby/)
+- [mom need a break](https://parenting.allwomenstalk.com/things-dads-can-do-to-give-mom-a-break/)
 - [how to clean newborn toys](https://parenting.allwomenstalk.com/things-to-sterilize-before-you-give-it-to-your-baby/)
+- [flying while pregnant tips](https://parenting.allwomenstalk.com/tips-for-flying-while-pregnant/)
 - [10 Things Pregnant Women Should Know ...](https://parenting.allwomenstalk.com/10-things-pregnant-women-should-know/)
 - [8 of the Worst Reasons to Get Pregnant ...](https://parenting.allwomenstalk.com/8-of-the-worst-reasons-to-get-pregnant/)
 

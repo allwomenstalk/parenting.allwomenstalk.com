@@ -3,7 +3,7 @@ title: "7 Things a Step-Parent Should Never Say ..."
 description: "Never Put down Their Birth Parent…; Don’t Try to Discipline Them…; Don’t Be a Pushover…; Don’t Make Them Feel Left out...; Never Make Them Feel Less than...; More ..."
 url: "https://parenting.allwomenstalk.com/things-a-step-parent-should-never-say/"
 category: "parenting"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Things a Step\-Parent Should Never Say ...
@@ -42,15 +42,15 @@ What things as a step-parent have you learned to never say? Have you ever made t
 
 ## Related Posts
 
-- [things your boss should never say to you](https://money.allwomenstalk.com/things-you-should-never-say-to-your-boss/)
-- [things not to say to your boyfriend](https://love.allwomenstalk.com/things-not-to-say-to-your-boyfriend-unless-you-want-to-drive-him-crazy/)
-- [beginning a new relationship](https://love.allwomenstalk.com/things-you-shouldnt-do-in-the-beginning-of-a-new-relationship/)
-- [dangerous driving habits](https://lifestyle.allwomenstalk.com/dangerous-driving-habits-to-stop-right-now/)
 - [flirty compliments for a girl](https://love.allwomenstalk.com/backhanded-compliments-you-should-avoid-when-flirting/)
-- [how to impress guys](https://love.allwomenstalk.com/things-you-should-never-do-to-impress-a-guy/)
 - [cringe compliments](https://inspiration.allwomenstalk.com/things-you-shouldnt-do-when-you-receive-a-compliment/)
-- [things you should never say in a job interview](https://lifestyle.allwomenstalk.com/very-important-things-you-should-never-say-at-a-job-interview/)
+- [beginning a new relationship](https://love.allwomenstalk.com/things-you-shouldnt-do-in-the-beginning-of-a-new-relationship/)
+- [things your boss should never say to you](https://money.allwomenstalk.com/things-you-should-never-say-to-your-boss/)
+- [dangerous driving habits](https://lifestyle.allwomenstalk.com/dangerous-driving-habits-to-stop-right-now/)
+- [how to impress guys](https://love.allwomenstalk.com/things-you-should-never-do-to-impress-a-guy/)
 - [learning to keep my mouth shut](https://lifestyle.allwomenstalk.com/times-when-you-should-keep-your-mouth-shut/)
+- [things you should never say in a job interview](https://lifestyle.allwomenstalk.com/very-important-things-you-should-never-say-at-a-job-interview/)
+- [things not to say to your boyfriend](https://love.allwomenstalk.com/things-not-to-say-to-your-boyfriend-unless-you-want-to-drive-him-crazy/)
 - [should you tell the other woman](https://love.allwomenstalk.com/lies-you-should-stop-telling-yourself-when-you-are-the-other-woman/)
 - [6 Things You Should Never Say to a Man ...](https://allwomenstalk.com/6-things-you-should-never-say-to-a-man/)
 - [Top 7 Things to Never Say to Women ...](https://allwomenstalk.com/top-7-things-to-never-say-to-women/)

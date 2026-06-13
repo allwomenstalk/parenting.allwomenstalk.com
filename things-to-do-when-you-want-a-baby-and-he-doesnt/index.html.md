@@ -1,12 +1,12 @@
 ---
-title: "7 Things to do when You Want a Baby and He Doesnt ..."
+title: "7 Things to do when You Want a Baby and He Doesn't ..."
 description: "Don't Push the Topic; Let Him Know How You Feel; Tell Him the Reasons You Want a Baby; Stop Talking at the Right Time; Consider His Feelings; More ..."
 url: "https://parenting.allwomenstalk.com/things-to-do-when-you-want-a-baby-and-he-doesnt/"
 category: "parenting"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Things to do when You Want a Baby and He Doesnt ...
+# 7 Things to do when You Want a Baby and He Doesn't ...
 
 I hope this article can help you know some things to do when you want a baby and he doesn't. This is a very difficult spot to find yourself in. It can feel heart-wrenching when you're ready for the next step in your relationship and your guy isn't. Hopefully these things to do when you want a baby and he doesn't can help you to reach a place of agreement as a couple.
 
@@ -42,15 +42,15 @@ These are 7 things to do when you're ready to have a baby and he isn't. Are you 
 
 ## Related Posts
 
-- [he wants a baby i dont](https://parenting.allwomenstalk.com/things-to-do-when-he-wants-a-baby-and-you-dont/)
-- [emojinal](https://lifestyle.allwomenstalk.com/ways-to-get-so-emojinal-baby/)
+- [he wants a baby i don't](https://parenting.allwomenstalk.com/things-to-do-when-he-wants-a-baby-and-you-dont/)
 - [things to think about before having kids](https://parenting.allwomenstalk.com/things-to-think-about-before-having-children/)
+- [emojinal](https://lifestyle.allwomenstalk.com/ways-to-get-so-emojinal-baby/)
 - [lonely stay at home mom quotes](https://parenting.allwomenstalk.com/ways-to-beat-the-isolation-of-being-a-stay-at-home-mom/)
-- [harmful ingredients in baby products](https://parenting.allwomenstalk.com/common-baby-products-that-contain-harmful-ingredients/)
 - [energetic mom](https://parenting.allwomenstalk.com/ways-to-have-more-energy-as-a-mom/)
 - [new parents photoshoot](https://parenting.allwomenstalk.com/wonderful-newborn-photo-poses-you-wont-want-to-pass-up/)
 - [talk about your shopping habit](https://money.allwomenstalk.com/ways-to-adjust-your-single-lady-shopping-habits-when-starting-a-family/)
 - [wise mom](https://parenting.allwomenstalk.com/moms-are-wise-reasons-to-listen-to-yours/)
+- [harmful ingredients in baby products](https://parenting.allwomenstalk.com/common-baby-products-that-contain-harmful-ingredients/)
 - [mom burnout signs](https://parenting.allwomenstalk.com/signs-of-mommy-burnout-and-how-to-cope/)
 - [8 Things You Should Know before You Get Pregnant ....](https://parenting.allwomenstalk.com/things-you-should-know-before-you-get-pregnant/)
 - [8 Tried Ways to Get Pregnant Fast ...](https://parenting.allwomenstalk.com/tried-ways-to-get-pregnant-fast/)

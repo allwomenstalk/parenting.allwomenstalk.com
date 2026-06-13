@@ -1,12 +1,12 @@
 ---
-title: "How Safe is Marijuana during Pregnancy ?"
+title: "How Safe 🤔 is Marijuana during Pregnancy 🤰?"
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://parenting.allwomenstalk.com/how-safe-is-marijuana-during-pregnancy/"
 category: "parenting"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# How Safe  is Marijuana during Pregnancy ?
+# How Safe 🤔 is Marijuana during Pregnancy 🤰?
 
 Have you ever asked **how safe is marijuana during pregnancy**? Look up the Facebook group "Pot Smoking Moms Who Cuss Sometimes" and you will find 2600 members consisting of mothers that partake in cannabis. From postpartum depression to morning sickness, marijuana is used as an all natural and seemingly harmless remedy. But, what are the effects? How safe is it really? The truth is, science really can’t say.
 
@@ -28,16 +28,16 @@ Marijuana may be a wonderful alternative to stronger more invasive drugs. All po
 
 ## Related Posts
 
-- [pedalstole](https://love.allwomenstalk.com/is-a-break-really-the-end-of-your-relationship/)
-- [Is Your Beauty Routine Harming the Planet](https://beauty.allwomenstalk.com/is-your-beauty-routine-harming-the-planet/)
-- [Did You Know  the Way You Use Social Media Can Hin...](https://apps.allwomenstalk.com/did-you-know-the-way-you-use-social-media-can-hint-at-depression/)
+- [Are 🤔 Women in Love Crazy?](https://love.allwomenstalk.com/are-women-in-love-crazy/)
 - [do opposites really attract](https://love.allwomenstalk.com/do-opposites-really-attract/)
-- [Where is  the Metoo Headed](https://lifestyle.allwomenstalk.com/where-is-metoo-heading/)
-- [How Long Should Your Monthly Cycle Be](https://health.allwomenstalk.com/how-long-should-your-monthly-cycle-be/)
-- [What is  Your Dieting Personality](https://weightloss.allwomenstalk.com/what-is-your-dieting-personality/)
-- [Which is the Best Type of Yoga for You](https://fitness.allwomenstalk.com/which-is-the-best-type-of-yoga-for-you/)
-- [Are  Women in Love Crazy](https://love.allwomenstalk.com/are-women-in-love-crazy/)
+- [Where is 🤔 the #Metoo Headed?](https://lifestyle.allwomenstalk.com/where-is-metoo-heading/)
+- [Is Your Beauty Routine Harming the Planet ?](https://beauty.allwomenstalk.com/is-your-beauty-routine-harming-the-planet/)
+- [Which is the Best Type of Yoga for You ?](https://fitness.allwomenstalk.com/which-is-the-best-type-of-yoga-for-you/)
+- [How Long Should Your Monthly Cycle Be?](https://health.allwomenstalk.com/how-long-should-your-monthly-cycle-be/)
 - [when not to keep a secret](https://lifestyle.allwomenstalk.com/when-is-it-okay-to-keep-a-secret/)
+- [pedalstole](https://love.allwomenstalk.com/is-a-break-really-the-end-of-your-relationship/)
+- [Did You Know 🤔 the Way You Use Social Media Can H...](https://apps.allwomenstalk.com/did-you-know-the-way-you-use-social-media-can-hint-at-depression/)
+- [What is 🤔 Your Dieting Personality?](https://weightloss.allwomenstalk.com/what-is-your-dieting-personality/)
 - [Does CBD Positively Influence Individual Performan...](https://allwomenstalk.com/does-cbd-positively-influence-individual-performance/)
 - [Can Hemp Be a Cure for Endometriosis and Other Rep...](https://allwomenstalk.com/hemp-cure-for-endometriosis/)
 

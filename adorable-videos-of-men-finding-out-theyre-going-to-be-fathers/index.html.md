@@ -1,12 +1,12 @@
 ---
-title: "7 Adorable Videos of Men Finding out Theyre Going to Be Fathers ..."
+title: "7 Adorable Videos of Men Finding out They're Going to Be Fathers ..."
 description: "Photo Booth Pregnancy Announcement; Vacation Announcement; Darth Vader Announcement; Baby Clothes Announcement; Deaf Pregnancy Announcement; More ..."
 url: "https://parenting.allwomenstalk.com/adorable-videos-of-men-finding-out-theyre-going-to-be-fathers/"
 category: "parenting"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Adorable Videos of Men Finding out Theyre Going to Be Fathers ...
+# 7 Adorable Videos of Men Finding out They're Going to Be Fathers ...
 
 You've probably seen some cute proposal videos where the woman is shocked by how sweet her boyfriend is. Well, now it's time to watch some videos where the man is the one getting surprised. I mean, what's more shocking than finding out your whole life is going to change? Nothing. That's why these adorable videos of men finding out they're going to be fathers might just make you cry:
 
@@ -42,16 +42,16 @@ These videos are just as adorable as any proposal video out there! Does it make 
 
 ## Related Posts
 
-- [friendzone doesnt exist](https://love.allwomenstalk.com/proof-that-the-friend-zone-doesnt-actually-exist/)
-- [what type of boys do you attract](https://love.allwomenstalk.com/how-to-attract-the-right-kind-of-guy/)
-- [funny relationship tweets](https://love.allwomenstalk.com/these-hilarious-tweets-describe-dating-perfectly/)
-- [why am i attracted to introverts](https://love.allwomenstalk.com/reasons-why-women-are-so-attracted-to-introverts/)
-- [hot undercut hairstyle](https://hair.allwomenstalk.com/every-woman-wants-a-man-with-these-sexy-undercuts/)
-- [find a woman quotes](https://love.allwomenstalk.com/quotes-about-what-men-really-love-in-women/)
-- [pervy](https://love.allwomenstalk.com/types-of-pervy-guys-you-really-need-to-stay-away-from/)
-- [How to Explain What a Fuckboy Really is ...](https://love.allwomenstalk.com/how-to-explain-what-a-fuckboy-really-is/)
-- [types of dudes](https://love.allwomenstalk.com/the-types-of-men-you-meet-on-online-dating-sites/)
 - [good dads](https://parenting.allwomenstalk.com/good-dads-will-tell-their-daughters-these-things/)
+- [what type of boys do you attract](https://love.allwomenstalk.com/how-to-attract-the-right-kind-of-guy/)
+- [hot undercut hairstyle](https://hair.allwomenstalk.com/every-woman-wants-a-man-with-these-sexy-undercuts/)
+- [pervy](https://love.allwomenstalk.com/types-of-pervy-guys-you-really-need-to-stay-away-from/)
+- [why am i attracted to introverts](https://love.allwomenstalk.com/reasons-why-women-are-so-attracted-to-introverts/)
+- [find a woman quotes](https://love.allwomenstalk.com/quotes-about-what-men-really-love-in-women/)
+- [types of dudes](https://love.allwomenstalk.com/the-types-of-men-you-meet-on-online-dating-sites/)
+- [friendzone doesn't exist](https://love.allwomenstalk.com/proof-that-the-friend-zone-doesnt-actually-exist/)
+- [How to Explain What a F*uckboy Really is ...](https://love.allwomenstalk.com/how-to-explain-what-a-fuckboy-really-is/)
+- [funny relationship tweets](https://love.allwomenstalk.com/these-hilarious-tweets-describe-dating-perfectly/)
 - [7 Funny Proposals-Went-Wrong Videos ...](https://wedding.allwomenstalk.com/funny-proposals-went-wrong-videos/)
 - [17 Pictures of the Cutest Little Baby Bear ... wit...](https://allwomenstalk.com/pictures-cute-little-bear/)
 

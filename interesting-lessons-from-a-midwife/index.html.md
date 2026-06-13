@@ -3,7 +3,7 @@ title: "7 Interesting Lessons from a Midwife ..."
 description: "Certified Professional Midwives (CPM); Certified Nurse Midwives (CNM); Doulas; Tension between Midwives and Physicians; Midwives versus Physicians; More ..."
 url: "https://parenting.allwomenstalk.com/interesting-lessons-from-a-midwife/"
 category: "parenting"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Interesting Lessons from a Midwife ...
@@ -42,16 +42,16 @@ These lessons that I learned from a midwife were truly fascinating. I knew nothi
 
 ## Related Posts
 
-- [7 Steps to Battle Postpartum Depression ...](https://parenting.allwomenstalk.com/steps-to-battle-postpartum-depression/)
-- [7 Things Mothers Can do in 60 Minutes ...](https://parenting.allwomenstalk.com/things-mothers-can-do-in-60-minutes/)
-- [7 Tips for Running in Your First Trimester of Preg...](https://running.allwomenstalk.com/tips-for-running-in-your-first-trimester-of-pregnancy/)
-- [7 Helpful Hints for when You Have Two under Two .....](https://parenting.allwomenstalk.com/helpful-hints-for-when-you-have-two-under-two/)
-- [7 Hints to Help You Survive Pregnancy in Warm Weat...](https://parenting.allwomenstalk.com/hints-to-help-you-survive-pregnancy-in-warm-weather/)
-- [7 Tips for New Moms on How to Look Good after Slee...](https://parenting.allwomenstalk.com/tips-for-new-moms-on-how-to-look-good-after-sleepless-nights/)
 - [7 Super Encouraging Mentalities to Have While Preg...](https://parenting.allwomenstalk.com/super-encouraging-mentalities-to-have-while-pregnant/)
-- [7 Awesome Tips for Pregnant Runners ...](https://running.allwomenstalk.com/awesome-tips-for-pregnant-runners/)
-- [7 Things You Need to Know about Working out during...](https://parenting.allwomenstalk.com/things-you-need-to-know-about-working-out-during-pregnancy/)
+- [7 Hints to Help You Survive Pregnancy in Warm Weat...](https://parenting.allwomenstalk.com/hints-to-help-you-survive-pregnancy-in-warm-weather/)
+- [7 Helpful Hints for when You Have Two under Two .....](https://parenting.allwomenstalk.com/helpful-hints-for-when-you-have-two-under-two/)
+- [7 Things Mothers Can do in 60 Minutes ...](https://parenting.allwomenstalk.com/things-mothers-can-do-in-60-minutes/)
 - [7 Common Reasons Women Bleed in Pregnancy ...](https://parenting.allwomenstalk.com/common-reasons-women-bleed-in-pregnancy/)
+- [7 Tips for Running in Your First Trimester of Preg...](https://running.allwomenstalk.com/tips-for-running-in-your-first-trimester-of-pregnancy/)
+- [7 Things You Need to Know about Working out during...](https://parenting.allwomenstalk.com/things-you-need-to-know-about-working-out-during-pregnancy/)
+- [7 Tips for New Moms on How to Look Good after Slee...](https://parenting.allwomenstalk.com/tips-for-new-moms-on-how-to-look-good-after-sleepless-nights/)
+- [7 Steps to Battle Postpartum Depression ...](https://parenting.allwomenstalk.com/steps-to-battle-postpartum-depression/)
+- [7 Awesome Tips for Pregnant Runners ...](https://running.allwomenstalk.com/awesome-tips-for-pregnant-runners/)
 - [10 Things Pregnant Women Should Know ...](https://parenting.allwomenstalk.com/10-things-pregnant-women-should-know/)
 - [7 Things New Moms May Not Know ...](https://parenting.allwomenstalk.com/7-things-new-moms-may-not-know/)
 

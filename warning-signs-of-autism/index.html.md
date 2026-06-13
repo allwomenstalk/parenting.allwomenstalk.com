@@ -3,7 +3,7 @@ title: "7 Warning Signs of Autism ..."
 description: "Avoids Eye Contact; Less Developed Motor Control; Doesn't Respond to Loud Sounds; Delayed Speech Development; Doesn't Respond to Name; More ..."
 url: "https://parenting.allwomenstalk.com/warning-signs-of-autism/"
 category: "parenting"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Warning Signs of Autism ...
@@ -42,16 +42,16 @@ As far as we know, autism has no cause or cure and it affects around 2 million p
 
 ## Related Posts
 
-- [7 Tell-Tale Signs You May Be Working Too Hard ...](https://health.allwomenstalk.com/tell-tale-signs-you-may-be-working-too-hard/)
-- [9 Signs You May Be Gluten Intolerant ...](https://health.allwomenstalk.com/signs-you-may-be-gluten-intolerant/)
-- [when to get a new couch](https://lifestyle.allwomenstalk.com/signs-its-time-for-a-new-couch-and-a-few-lovely-affordable-options/)
-- [7 Key Signs That You Are Headed for Burn out ...](https://lifestyle.allwomenstalk.com/key-signs-that-you-are-headed-for-burn-out/)
-- [7 Body Signals That Give You Away ...](https://lifestyle.allwomenstalk.com/body-signals-that-give-you-away/)
-- [7 Signs Its Time to Visit the Dentist ...](https://health.allwomenstalk.com/signs-its-time-to-visit-the-dentist/)
 - [7 Signs That Tell You That You May Have to See a P...](https://health.allwomenstalk.com/signs-that-tell-you-that-you-may-have-to-see-a-podiatrist/)
+- [9 Signs You May Be Gluten Intolerant ...](https://health.allwomenstalk.com/signs-you-may-be-gluten-intolerant/)
 - [7 Sure Signs Your Job is Stressing You out ...](https://lifestyle.allwomenstalk.com/sure-signs-your-job-is-stressing-you-out/)
-- [7 Dangerous Signs That Someone You Know Has an Eat...](https://health.allwomenstalk.com/dangerous-signs-that-someone-you-know-has-an-eating-disorder/)
+- [7 Signs It's Time to Visit the Dentist ...](https://health.allwomenstalk.com/signs-its-time-to-visit-the-dentist/)
 - [11 Signs That You May Have an Internet Addiction ....](https://health.allwomenstalk.com/signs-that-you-may-have-an-internet-addiction/)
+- [when to get a new couch](https://lifestyle.allwomenstalk.com/signs-its-time-for-a-new-couch-and-a-few-lovely-affordable-options/)
+- [7 Dangerous Signs That Someone You Know Has an Eat...](https://health.allwomenstalk.com/dangerous-signs-that-someone-you-know-has-an-eating-disorder/)
+- [7 Body Signals That Give You Away ...](https://lifestyle.allwomenstalk.com/body-signals-that-give-you-away/)
+- [7 Key Signs That You Are Headed for Burn out ...](https://lifestyle.allwomenstalk.com/key-signs-that-you-are-headed-for-burn-out/)
+- [7 Tell-Tale Signs You May Be Working Too Hard ...](https://health.allwomenstalk.com/tell-tale-signs-you-may-be-working-too-hard/)
 - [7 Red Alert Signs That Your Child is Aggressive .....](https://parenting.allwomenstalk.com/7-red-alert-signs-that-your-child-is-aggressive/)
 - [7 Warning Signs of School Bullying ...](https://parenting.allwomenstalk.com/7-warning-signs-of-school-bullying/)
 

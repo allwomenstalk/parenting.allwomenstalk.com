@@ -1,12 +1,12 @@
 ---
-title: "7 Reasons Its Not Selfish to Choose Not to Have Children ..."
+title: "7 Reasons It's Not Selfish to Choose Not to Have Children ..."
 description: "Personal Decision; Unselfish; Children Should Be Wanted; Sensible; Commitment; More ..."
 url: "https://parenting.allwomenstalk.com/reasons-its-not-selfish-to-choose-not-to-have-children/"
 category: "parenting"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Reasons Its Not Selfish to Choose Not to Have Children ...
+# 7 Reasons It's Not Selfish to Choose Not to Have Children ...
 
 Children can be lovely, but being a parent is not for everyone. Happily we live in a time when the decision to remain child-free has become more accepted. Yet those who choose not to have children may still be accused of selfishness, when if anything wanting to have children is a 'selfish' decision (you do it because you want them, not to please other people!). Here are some reasons why it's not selfish to choose not to have children …
 
@@ -42,16 +42,16 @@ You shouldn't have to defend your choice to remain child-free, but these are som
 
 ## Related Posts
 
-- [does age matters in a relationship](https://love.allwomenstalk.com/reasons-an-age-gap-relationship-may-be-right-for-you/)
-- [pros and cons of wearing your heart on your sleeve](https://love.allwomenstalk.com/why-a-woman-actually-shouldnt-wear-her-heart-on-her-sleeve/)
-- [causes of sadness](https://inspiration.allwomenstalk.com/feeling-sad-heres-whats-making-you-feel-that-way/)
-- [childhood friends are the best](https://lifestyle.allwomenstalk.com/reasons-why-you-should-never-lose-your-childhood-best-friends/)
 - [no off day](https://inspiration.allwomenstalk.com/having-an-off-day-theres-probably-a-good-reason/)
 - [husband leaving for work](https://love.allwomenstalk.com/perks-of-having-a-husband-who-leaves-town-for-work/)
-- [stay persistent](https://inspiration.allwomenstalk.com/reasons-to-be-persistent-and-not-give-up/)
-- [how to leave the past in the past](https://inspiration.allwomenstalk.com/reasons-the-past-should-stay-in-the-past/)
+- [causes of sadness](https://inspiration.allwomenstalk.com/feeling-sad-heres-whats-making-you-feel-that-way/)
+- [childhood friends are the best](https://lifestyle.allwomenstalk.com/reasons-why-you-should-never-lose-your-childhood-best-friends/)
 - [friend stole my boyfriend](https://love.allwomenstalk.com/why-it-is-seriously-not-cool-to-steal-your-friends-boyfriend/)
-- [cant be explained](https://love.allwomenstalk.com/here-is-why-love-is-impossible-to-explain/)
+- [pros and cons of wearing your heart on your sleeve](https://love.allwomenstalk.com/why-a-woman-actually-shouldnt-wear-her-heart-on-her-sleeve/)
+- [can't be explained](https://love.allwomenstalk.com/here-is-why-love-is-impossible-to-explain/)
+- [how to leave the past in the past](https://inspiration.allwomenstalk.com/reasons-the-past-should-stay-in-the-past/)
+- [does age matters in a relationship](https://love.allwomenstalk.com/reasons-an-age-gap-relationship-may-be-right-for-you/)
+- [stay persistent](https://inspiration.allwomenstalk.com/reasons-to-be-persistent-and-not-give-up/)
 - [7 Reasons to Not Get Married ...](https://love.allwomenstalk.com/reasons-to-not-get-married/)
 - [7 Reasons to Not Be Married ...](https://allwomenstalk.com/7-reasons-to-not-be-married/)
 

@@ -1,12 +1,12 @@
 ---
-title: "7 Things We Really Dont Need for a Baby That Were Tricked into Thinking We do ..."
+title: "7 Things We Really Don't Need for a Baby That We're Tricked into Thinking We do ..."
 description: "Changing Table; Video Baby Monitors; Bottle Warmers; Diaper Pails; White Noise Machines; More ..."
 url: "https://parenting.allwomenstalk.com/things-we-really-dont-need-for-a-baby-that-were-tricked-into-thinking-we-do/"
 category: "parenting"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Things We Really Dont Need for a Baby That Were Tricked into Thinking We do ...
+# 7 Things We Really Don't Need for a Baby That We're Tricked into Thinking We do ...
 
 When I was pregnant I, like most of you, was tricked into buying things we don't really need for a baby. I walked into Babies R Us and was dazzled by full nursery sets, bright singing toys, and other things we don't really need for a baby but are somehow tricked into believing that we do. These are the 7 things that I bought for my son's birth that I never really needed.
 
@@ -42,15 +42,15 @@ Well ladies, these are the things that I don't think new parents actually need. 
 
 ## Related Posts
 
-- [dr seuss baby gifts](https://parenting.allwomenstalk.com/whimsical-ways-to-create-a-dr-seuss-baby-shower/)
-- [funny pregnancy facts](https://parenting.allwomenstalk.com/funny-and-infuriating-facts-about-being-pregnant-that-no-one-tells-you-about/)
-- [like to play](https://parenting.allwomenstalk.com/things-that-all-babies-love-to-play-with-that-arent-toys/)
+- [best things about a baby boy](https://parenting.allwomenstalk.com/good-and-bad-things-about-having-a-baby-boy/)
 - [hospital labor and delivery bag](https://parenting.allwomenstalk.com/things-to-pack-for-childbirth-in-your-hospital-bag/)
 - [moms going back to college](https://lifestyle.allwomenstalk.com/tips-for-moms-going-back-to-school-after-a-break/)
-- [should i be a stay at home mom quiz](https://parenting.allwomenstalk.com/best-and-worst-things-about-being-a-stay-at-home-mom/)
-- [scared to be a parent](https://parenting.allwomenstalk.com/ways-to-deal-with-fears-about-parenthood/)
-- [best things about a baby boy](https://parenting.allwomenstalk.com/good-and-bad-things-about-having-a-baby-boy/)
 - [what is the weirdest pregnancy craving](https://parenting.allwomenstalk.com/strange-pregnancy-cravings-and-what-they-mean/)
+- [scared to be a parent](https://parenting.allwomenstalk.com/ways-to-deal-with-fears-about-parenthood/)
+- [funny pregnancy facts](https://parenting.allwomenstalk.com/funny-and-infuriating-facts-about-being-pregnant-that-no-one-tells-you-about/)
+- [should i be a stay at home mom quiz](https://parenting.allwomenstalk.com/best-and-worst-things-about-being-a-stay-at-home-mom/)
+- [dr seuss baby gifts](https://parenting.allwomenstalk.com/whimsical-ways-to-create-a-dr-seuss-baby-shower/)
+- [like to play](https://parenting.allwomenstalk.com/things-that-all-babies-love-to-play-with-that-arent-toys/)
 - [how to make life easier with a newborn](https://parenting.allwomenstalk.com/ways-to-make-life-easier-after-bringing-your-newborn-home/)
 - [7 Things New Moms May Not Know ...](https://parenting.allwomenstalk.com/7-things-new-moms-may-not-know/)
 - [7 Things to Consider before Adopting a Child ...](https://parenting.allwomenstalk.com/7-things-to-consider-before-adopting-a-child/)

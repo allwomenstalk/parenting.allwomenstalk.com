@@ -3,7 +3,7 @@ title: "7 Creepy Myths That Might Be Scaring Your Kids ..."
 description: "Bloody Mary; Under the Bed; La Mala Hora; White Lady; Cuco the Child Eater; More ..."
 url: "https://parenting.allwomenstalk.com/creepy-myths-that-might-be-scaring-your-kids/"
 category: "parenting"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Creepy Myths That Might Be Scaring Your Kids ...
@@ -42,16 +42,16 @@ What creepy myth scared you most as a kid? Does it still scare you today?
 
 ## Related Posts
 
-- [are parents responsible for their childrens behavi...](https://parenting.allwomenstalk.com/reasons-to-stop-blaming-parents-for-a-childs-misbehavior/)
-- [how to discipline a child with oppositional defian...](https://parenting.allwomenstalk.com/ways-to-manage-oppositional-defiant-disorder-in-children/)
-- [computers games for toddlers](https://parenting.allwomenstalk.com/games-children-used-before-technology-came-along/)
-- [kids playing in the playground](https://fitness.allwomenstalk.com/exercises-you-can-do-at-the-playground-while-your-kids-play/)
-- [7 ways to build good relationship with my family](https://teen.allwomenstalk.com/ways-to-bond-with-your-parents/)
-- [missing grandparents](https://parenting.allwomenstalk.com/ways-to-fill-in-the-gaps-left-by-far-away-or-missing-grandparents/)
-- [anger management skills for kids](https://parenting.allwomenstalk.com/ways-to-teach-your-child-anger-management-skills/)
-- [wearing activities](https://parenting.allwomenstalk.com/activities-that-your-kids-should-wear-a-helmet-for/)
 - [signs toddlers are ready for potty training](https://parenting.allwomenstalk.com/easy-to-recognize-signs-that-your-toddler-is-ready-to-potty-train/)
-- [hows your relationship with your parents](https://teen.allwomenstalk.com/ways-to-improve-your-relationship-with-your-parents/)
+- [how to discipline a child with oppositional defian...](https://parenting.allwomenstalk.com/ways-to-manage-oppositional-defiant-disorder-in-children/)
+- [missing grandparents](https://parenting.allwomenstalk.com/ways-to-fill-in-the-gaps-left-by-far-away-or-missing-grandparents/)
+- [7 ways to build good relationship with my family](https://teen.allwomenstalk.com/ways-to-bond-with-your-parents/)
+- [are parents responsible for their children's behav...](https://parenting.allwomenstalk.com/reasons-to-stop-blaming-parents-for-a-childs-misbehavior/)
+- [kids playing in the playground](https://fitness.allwomenstalk.com/exercises-you-can-do-at-the-playground-while-your-kids-play/)
+- [anger management skills for kids](https://parenting.allwomenstalk.com/ways-to-teach-your-child-anger-management-skills/)
+- [computers games for toddlers](https://parenting.allwomenstalk.com/games-children-used-before-technology-came-along/)
+- [wearing activities](https://parenting.allwomenstalk.com/activities-that-your-kids-should-wear-a-helmet-for/)
+- [how's your relationship with your parents](https://teen.allwomenstalk.com/ways-to-improve-your-relationship-with-your-parents/)
 - [5 Vampire Myths ...](https://twilight.allwomenstalk.com/5-vampire-myths/)
 - [7 Things Parents Should Know ...](https://parenting.allwomenstalk.com/7-things-parents-should-know/)
 
