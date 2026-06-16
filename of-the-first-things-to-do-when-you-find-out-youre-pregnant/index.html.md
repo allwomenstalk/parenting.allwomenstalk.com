@@ -3,7 +3,7 @@ title: "7 of the First Things to do when You Find out You're Pregnant ..."
 description: "Make a Doctor’s Appointment; Decide when to Tell; Start Prenatal Vitamins; Look into Maternity Leave; Stop These Habits; More ..."
 url: "https://parenting.allwomenstalk.com/of-the-first-things-to-do-when-you-find-out-youre-pregnant/"
 category: "parenting"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 7 of the First Things to do when You Find out You're Pregnant ...
@@ -42,16 +42,16 @@ Finding out you are pregnant can feel a bit surprising even if you were trying t
 
 ## Related Posts
 
-- [7 Ways to Ease Pregnancy Backaches ...](https://parenting.allwomenstalk.com/ways-to-ease-pregnancy-backaches/)
 - [7 Tips for Coping with a Summer Pregnancy ...](https://parenting.allwomenstalk.com/tips-for-coping-with-a-summer-pregnancy/)
+- [7 Tips on Having a Great Pregnancy ...](https://parenting.allwomenstalk.com/tips-on-having-a-great-pregnancy/)
+- [7 Tips for Working While Pregnant ...](https://parenting.allwomenstalk.com/tips-for-working-while-pregnant/)
 - [7 Reasons Not to Judge Women for How They Feed The...](https://parenting.allwomenstalk.com/reasons-not-to-judge-women-for-how-they-feed-their-babies/)
-- [7 Things Not to Worry about when You're Pregnant ....](https://parenting.allwomenstalk.com/things-not-to-worry-about-when-youre-pregnant/)
+- [7 Ways to Ease Pregnancy Backaches ...](https://parenting.allwomenstalk.com/ways-to-ease-pregnancy-backaches/)
+- [7 Ways to Prepare for a New Baby's Arrival ...](https://parenting.allwomenstalk.com/ways-to-prepare-for-a-new-babys-arrival/)
+- [7 Tips That Will Help You Feel Better for Women wi...](https://parenting.allwomenstalk.com/tips-for-coping-with-postnatal-depression/)
 - [7 Inspiring Reasons to Work out during Pregnancy ....](https://parenting.allwomenstalk.com/inspiring-reasons-to-work-out-during-pregnancy/)
 - [7 Ways Stay at Home Moms Can Make Money ...](https://money.allwomenstalk.com/ways-stay-at-home-moms-can-make-money/)
-- [7 Tips That Will Help You Feel Better for Women wi...](https://parenting.allwomenstalk.com/tips-for-coping-with-postnatal-depression/)
-- [7 Tips for Working While Pregnant ...](https://parenting.allwomenstalk.com/tips-for-working-while-pregnant/)
-- [7 Tips on Having a Great Pregnancy ...](https://parenting.allwomenstalk.com/tips-on-having-a-great-pregnancy/)
-- [7 Ways to Prepare for a New Baby's Arrival ...](https://parenting.allwomenstalk.com/ways-to-prepare-for-a-new-babys-arrival/)
+- [7 Things Not to Worry about when You're Pregnant ....](https://parenting.allwomenstalk.com/things-not-to-worry-about-when-youre-pregnant/)
 - [7 Great Tips for the Mommy-to-Be ...](https://parenting.allwomenstalk.com/7-great-tips-for-the-mommy-to-be/)
 - [7 Pregnancy Facts You Should Know ...](https://parenting.allwomenstalk.com/pregnancy-facts-you-should-know/)
 

@@ -3,7 +3,7 @@ title: "How to Help Children and Their Parents Cope with ADHD ..."
 description: "Treat It like a Health Problem; Make It an Open Subject; Don’t Allow It to Be Their Crutch; Help Them with Organization; Watch Their Self-Esteem; More ..."
 url: "https://parenting.allwomenstalk.com/tips-to-help-your-child-deal-with-their-adhd/"
 category: "parenting"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # How to Help Children and Their Parents Cope with ADHD ...
@@ -42,16 +42,16 @@ How do you help your child deal with their ADHD? I would love your feedback. We 
 
 ## Related Posts
 
-- [Surprising Perks Provided by Protective Parents .....](https://teen.allwomenstalk.com/perks-of-protective-parents/)
+- [Surprising Things Toddlers Can Teach Us All ...](https://parenting.allwomenstalk.com/things-we-can-learn-from-toddlers/)
+- [7 Ways to Prepare for Your Daughter's High School ...](https://parenting.allwomenstalk.com/ways-to-prepare-for-your-daughters-high-school-years/)
+- [9 Just-so Stories to Share with Your Children ...](https://books.allwomenstalk.com/just-so-stories-to-share-with-your-children/)
 - [how to develop social skills in a child](https://parenting.allwomenstalk.com/tips-on-how-to-develop-social-skills-in-a-child/)
 - [7 Questions to Ask Your Kids about Their Day at Sc...](https://parenting.allwomenstalk.com/questions-to-ask-your-kids-about-their-day-at-school/)
-- [7 Tips That Make Parenting Teenagers Easier ...](https://parenting.allwomenstalk.com/tips-that-make-parenting-teenagers-easier/)
-- [9 Just-so Stories to Share with Your Children ...](https://books.allwomenstalk.com/just-so-stories-to-share-with-your-children/)
-- [Surprising Things Toddlers Can Teach Us All ...](https://parenting.allwomenstalk.com/things-we-can-learn-from-toddlers/)
-- [7 Steps to Help Your Child Adjust to Middle School...](https://parenting.allwomenstalk.com/steps-to-help-your-child-adjust-to-middle-school/)
 - [connecting with your teenager](https://parenting.allwomenstalk.com/ways-to-connect-with-your-teenager/)
+- [7 Steps to Help Your Child Adjust to Middle School...](https://parenting.allwomenstalk.com/steps-to-help-your-child-adjust-to-middle-school/)
+- [Surprising Perks Provided by Protective Parents .....](https://teen.allwomenstalk.com/perks-of-protective-parents/)
+- [7 Tips That Make Parenting Teenagers Easier ...](https://parenting.allwomenstalk.com/tips-that-make-parenting-teenagers-easier/)
 - [7 Businesses That Your Kids Can Help with ...](https://money.allwomenstalk.com/businesses-that-your-kids-can-help-with/)
-- [7 Ways to Prepare for Your Daughter's High School ...](https://parenting.allwomenstalk.com/ways-to-prepare-for-your-daughters-high-school-years/)
 - [7 Easy Ways to Boost Your Child's Education ...](https://parenting.allwomenstalk.com/7-easy-ways-to-boost-your-childs-education/)
 - [7 Tips for Parents of Kids with Special Needs ...](https://parenting.allwomenstalk.com/7-tips-for-parents-of-kids-with-special-needs/)
 

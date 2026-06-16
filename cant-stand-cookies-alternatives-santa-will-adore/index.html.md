@@ -3,7 +3,7 @@ title: "Can't Stand Cookies? 7 Alternatives Santa Will Adore ..."
 description: "Brownies in Cookie Cutter Shapes; Carrots for the Reindeer; Healthy Muffins; Assorted Chocolate; Fruit; More ..."
 url: "https://parenting.allwomenstalk.com/cant-stand-cookies-alternatives-santa-will-adore/"
 category: "parenting"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # Can't Stand Cookies? 7 Alternatives Santa Will Adore ...
@@ -48,16 +48,16 @@ If you're sick of cookies, tell your children about one of Santa's other favorit
 
 ## Related Posts
 
-- [chewing gum](https://love.allwomenstalk.com/the-tastiest-flavors-of-gum-to-chew-before-kissing/)
-- [treehouse gingerbread house](https://food.allwomenstalk.com/gingerbread-houses-that-look-as-good-as-they-taste/)
 - [make ahead cookies for wedding reception](https://wedding.allwomenstalk.com/skip-the-cake-and-go-for-these-cute-wedding-desserts/)
-- [christmas party appetizers](https://food.allwomenstalk.com/tiny-toothpick-appetizers-thatll-fit-any-occasion/)
-- [easy dessert recipes from around the world](https://food.allwomenstalk.com/you-need-to-try-these-delicious-desserts-from-around-the-world/)
-- [what is the hardest thing to bake](https://food.allwomenstalk.com/romantic-desserts-to-make-with-your-bf-to-set-the-mood/)
 - [chocolate recipes christmas](https://food.allwomenstalk.com/festive-desserts-for-chocoholics/)
+- [what to make with jello](https://food.allwomenstalk.com/jello-recipes-to-serve-at-your-new-years-party/)
+- [chewing gum](https://love.allwomenstalk.com/the-tastiest-flavors-of-gum-to-chew-before-kissing/)
+- [easy dessert recipes from around the world](https://food.allwomenstalk.com/you-need-to-try-these-delicious-desserts-from-around-the-world/)
+- [christmas party appetizers](https://food.allwomenstalk.com/tiny-toothpick-appetizers-thatll-fit-any-occasion/)
 - [night owl icing](https://food.allwomenstalk.com/cute-shapes-to-cut-your-christmas-cookies-into/)
 - [food in snow](https://food.allwomenstalk.com/desserts-you-can-make-using-freshly-fallen-snow/)
-- [what to make with jello](https://food.allwomenstalk.com/jello-recipes-to-serve-at-your-new-years-party/)
+- [treehouse gingerbread house](https://food.allwomenstalk.com/gingerbread-houses-that-look-as-good-as-they-taste/)
+- [what is the hardest thing to bake](https://food.allwomenstalk.com/romantic-desserts-to-make-with-your-bf-to-set-the-mood/)
 - [7 Great Cookie Recipes ...](https://thecrepescafe.com/great-cookie-recipes-2/)
 - [7 Types of Cookies That I Love ...](https://cooking.allwomenstalk.com/types-of-cookies-that-i-love/)
 

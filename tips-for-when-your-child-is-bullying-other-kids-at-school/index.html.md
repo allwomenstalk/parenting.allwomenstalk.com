@@ -3,7 +3,7 @@ title: "7 Tips for when Your Child is Bullying Other Kids at School ..."
 description: "Seek Help at School; Apology Accepted; Seek Professional Help; Talk It out; Lead by Example; More ..."
 url: "https://parenting.allwomenstalk.com/tips-for-when-your-child-is-bullying-other-kids-at-school/"
 category: "parenting"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 7 Tips for when Your Child is Bullying Other Kids at School ...
@@ -56,16 +56,16 @@ There is no perfect solution when your child is bullying others, and studies sho
 
 ## Related Posts
 
-- [therapy metaphors](https://health.allwomenstalk.com/short-therapeutic-metaphors-for-the-child-within/)
-- [i love being an only child](https://parenting.allwomenstalk.com/amazing-things-about-being-and-having-an-only-child/)
-- [fraternal twins](https://parenting.allwomenstalk.com/tips-for-raising-fraternal-twins/)
-- [apps to help kids talk](https://apps.allwomenstalk.com/best-apps-to-teach-your-child-to-read/)
-- [mom contact](https://parenting.allwomenstalk.com/clever-and-thoughtful-ways-to-connect-with-your-mom/)
-- [why is my baby licking the floor](https://parenting.allwomenstalk.com/things-i-learned-from-my-1-year-old/)
-- [babysitting tips and tricks](https://money.allwomenstalk.com/fun-and-simple-babysitting-tips-that-will-make-you-a-pro/)
 - [how can i help my community as a kid](https://parenting.allwomenstalk.com/ways-children-can-volunteer-in-their-community/)
+- [therapy metaphors](https://health.allwomenstalk.com/short-therapeutic-metaphors-for-the-child-within/)
 - [losing a parent you weren't close to quotes](https://inspiration.allwomenstalk.com/ways-to-cope-after-losing-a-parent-at-a-very-young-age/)
+- [i love being an only child](https://parenting.allwomenstalk.com/amazing-things-about-being-and-having-an-only-child/)
+- [babysitting tips and tricks](https://money.allwomenstalk.com/fun-and-simple-babysitting-tips-that-will-make-you-a-pro/)
+- [apps to help kids talk](https://apps.allwomenstalk.com/best-apps-to-teach-your-child-to-read/)
+- [fraternal twins](https://parenting.allwomenstalk.com/tips-for-raising-fraternal-twins/)
 - [annoying tv shows](https://parenting.allwomenstalk.com/least-annoying-kid-shows-that-will-actually-teach-your-child-something/)
+- [why is my baby licking the floor](https://parenting.allwomenstalk.com/things-i-learned-from-my-1-year-old/)
+- [mom contact](https://parenting.allwomenstalk.com/clever-and-thoughtful-ways-to-connect-with-your-mom/)
 - [8 Ways to Help Your Child Deal with Bullies ...](https://parenting.allwomenstalk.com/ways-to-help-your-child-deal-with-bullies/)
 - [7 Tips to See if Your Child is Picked on in School...](https://allwomenstalk.com/7-tips-to-see-if-your-child-is-picked-on-in-school/)
 

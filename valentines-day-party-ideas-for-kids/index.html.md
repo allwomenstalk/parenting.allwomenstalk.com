@@ -3,7 +3,7 @@ title: "7 Valentine's Day Party Ideas for Kids ..."
 description: "Pin the Heart on Cupid; Heart Scavenger Hunt; Candy Taste Test; Counting the Ways I Love You; Sweet Hearts; More ..."
 url: "https://parenting.allwomenstalk.com/valentines-day-party-ideas-for-kids/"
 category: "parenting"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 7 Valentine's Day Party Ideas for Kids ...
@@ -42,16 +42,16 @@ Are you throwing your kids a Valentine’s Day party? What types of ideas do you
 
 ## Related Posts
 
-- [7 New Ideas for a First Date ...](https://love.allwomenstalk.com/new-ideas-for-a-first-date/)
-- [10 Romantic Views PERFECT for Valentine's Day ...](https://travel.allwomenstalk.com/romantic-views-perfect-for-valentines-day/)
-- [13 Little Ways to Say "I Love You" to Your Signifi...](https://love.allwomenstalk.com/little-ways-to-say-i-love-you-to-your-significant-other/)
-- [10 Valentine's Day Dinner Ideas ...](https://eatial.com/valentines-day-dinner-ideas/)
 - [8 Cool Ways to Propose to Your Partner ...](https://wedding.allwomenstalk.com/cool-ways-to-propose-to-your-partner/)
-- [7 Anniversary Ideas ...](https://love.allwomenstalk.com/anniversary-ideas/)
+- [10 Romantic Views PERFECT for Valentine's Day ...](https://travel.allwomenstalk.com/romantic-views-perfect-for-valentines-day/)
+- [10 Valentine's Day Dinner Ideas ...](https://eatial.com/valentines-day-dinner-ideas/)
+- [13 Little Ways to Say "I Love You" to Your Signifi...](https://love.allwomenstalk.com/little-ways-to-say-i-love-you-to-your-significant-other/)
 - [I Love You Mom, Ways to Show Her How Much ...](https://love.allwomenstalk.com/loving-ways-to-show-your-mom-you-love-her/)
 - [romance on a budget](https://money.allwomenstalk.com/ways-to-romance-your-husband-on-a-budget/)
 - [13 Valentine's Day Decoration Ideas That Are Prett...](https://love.allwomenstalk.com/valentines-day-decoration-ideas/)
+- [7 New Ideas for a First Date ...](https://love.allwomenstalk.com/new-ideas-for-a-first-date/)
 - [stargazing date essentials](https://love.allwomenstalk.com/romantic-dates-that-dont-cost-a-dime/)
+- [7 Anniversary Ideas ...](https://love.allwomenstalk.com/anniversary-ideas/)
 - [7 Ideas for a Sweet 16 Birthday Party ...](https://lifestyle.allwomenstalk.com/ideas-for-a-sweet-16-birthday-party/)
 - [7 Great Party Games for Kids ...](https://allwomenstalk.com/7-great-party-games-for-kids/)
 

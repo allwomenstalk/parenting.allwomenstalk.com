@@ -3,7 +3,7 @@ title: "7 Things to do when Giving Your Kid the Sex Talk ..."
 description: "Start Early; Be Straightforward; Answer Every Question; Involve Both Parents; Ask What They Know; More ..."
 url: "https://parenting.allwomenstalk.com/things-to-do-when-giving-your-kid-the-sex-talk/"
 category: "parenting"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 7 Things to do when Giving Your Kid the Sex Talk ...
@@ -42,16 +42,16 @@ The sex talk is probably the most awkward conversation that you can have with so
 
 ## Related Posts
 
-- [10 Ways to Survive Your Child's Teen Years ...](https://parenting.allwomenstalk.com/ways-to-survive-your-childs-teen-years/)
-- [7 Ways of Helping Your Child Understand What Your ...](https://parenting.allwomenstalk.com/ways-of-helping-your-child-understand-what-your-divorce-means-for-them/)
-- [7 Ways to Make the Most of Your Child's Naptime .....](https://parenting.allwomenstalk.com/ways-to-make-the-most-of-your-childs-naptime/)
-- [7 Things Every Parent Should Know about CyberBully...](https://parenting.allwomenstalk.com/things-every-parent-should-know-about-cyber-bullying/)
-- [7 Ways to Stop Having Bedtime Battles with Your Ch...](https://parenting.allwomenstalk.com/ways-to-stop-having-bedtime-battles-with-your-children/)
 - [7 Ways to Keep Your Kids Safe Anywhere ...](https://parenting.allwomenstalk.com/ways-to-keep-your-kids-safe-anywhere/)
-- [7 Ways You Can Make Deployment Easier for Little O...](https://parenting.allwomenstalk.com/ways-you-can-make-deployment-easier-for-little-ones/)
-- [7 Symptoms of Autism That Pediatricians Look for ....](https://parenting.allwomenstalk.com/symptoms-of-autism-that-pediatricians-look-for/)
-- [7 Tips on How Not to Yell at Your Child ...](https://parenting.allwomenstalk.com/tips-on-how-not-to-yell-at-your-child/)
+- [7 Ways to Make the Most of Your Child's Naptime .....](https://parenting.allwomenstalk.com/ways-to-make-the-most-of-your-childs-naptime/)
 - [7 Things You Must Know about Motivating Your Child...](https://parenting.allwomenstalk.com/things-you-must-know-about-motivating-your-child-at-school/)
+- [7 Tips on How Not to Yell at Your Child ...](https://parenting.allwomenstalk.com/tips-on-how-not-to-yell-at-your-child/)
+- [7 Ways of Helping Your Child Understand What Your ...](https://parenting.allwomenstalk.com/ways-of-helping-your-child-understand-what-your-divorce-means-for-them/)
+- [7 Ways You Can Make Deployment Easier for Little O...](https://parenting.allwomenstalk.com/ways-you-can-make-deployment-easier-for-little-ones/)
+- [7 Things Every Parent Should Know about CyberBully...](https://parenting.allwomenstalk.com/things-every-parent-should-know-about-cyber-bullying/)
+- [10 Ways to Survive Your Child's Teen Years ...](https://parenting.allwomenstalk.com/ways-to-survive-your-childs-teen-years/)
+- [7 Ways to Stop Having Bedtime Battles with Your Ch...](https://parenting.allwomenstalk.com/ways-to-stop-having-bedtime-battles-with-your-children/)
+- [7 Symptoms of Autism That Pediatricians Look for ....](https://parenting.allwomenstalk.com/symptoms-of-autism-that-pediatricians-look-for/)
 - [7 Ways to Raise a Confident Kid ...](https://parenting.allwomenstalk.com/7-ways-to-raise-a-confident-kid/)
 - [7 Ways You Can Encourage Kids to Give ...](https://parenting.allwomenstalk.com/7-ways-you-can-encourage-kids-to-give/)
 

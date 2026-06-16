@@ -3,7 +3,7 @@ title: "7 Reasons It's Not Selfish to Choose Not to Have Children ..."
 description: "Personal Decision; Unselfish; Children Should Be Wanted; Sensible; Commitment; More ..."
 url: "https://parenting.allwomenstalk.com/reasons-its-not-selfish-to-choose-not-to-have-children/"
 category: "parenting"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 7 Reasons It's Not Selfish to Choose Not to Have Children ...
@@ -44,14 +44,14 @@ You shouldn't have to defend your choice to remain child-free, but these are som
 
 - [no off day](https://inspiration.allwomenstalk.com/having-an-off-day-theres-probably-a-good-reason/)
 - [husband leaving for work](https://love.allwomenstalk.com/perks-of-having-a-husband-who-leaves-town-for-work/)
-- [causes of sadness](https://inspiration.allwomenstalk.com/feeling-sad-heres-whats-making-you-feel-that-way/)
-- [childhood friends are the best](https://lifestyle.allwomenstalk.com/reasons-why-you-should-never-lose-your-childhood-best-friends/)
-- [friend stole my boyfriend](https://love.allwomenstalk.com/why-it-is-seriously-not-cool-to-steal-your-friends-boyfriend/)
-- [pros and cons of wearing your heart on your sleeve](https://love.allwomenstalk.com/why-a-woman-actually-shouldnt-wear-her-heart-on-her-sleeve/)
-- [can't be explained](https://love.allwomenstalk.com/here-is-why-love-is-impossible-to-explain/)
-- [how to leave the past in the past](https://inspiration.allwomenstalk.com/reasons-the-past-should-stay-in-the-past/)
-- [does age matters in a relationship](https://love.allwomenstalk.com/reasons-an-age-gap-relationship-may-be-right-for-you/)
 - [stay persistent](https://inspiration.allwomenstalk.com/reasons-to-be-persistent-and-not-give-up/)
+- [how to leave the past in the past](https://inspiration.allwomenstalk.com/reasons-the-past-should-stay-in-the-past/)
+- [childhood friends are the best](https://lifestyle.allwomenstalk.com/reasons-why-you-should-never-lose-your-childhood-best-friends/)
+- [does age matters in a relationship](https://love.allwomenstalk.com/reasons-an-age-gap-relationship-may-be-right-for-you/)
+- [can't be explained](https://love.allwomenstalk.com/here-is-why-love-is-impossible-to-explain/)
+- [pros and cons of wearing your heart on your sleeve](https://love.allwomenstalk.com/why-a-woman-actually-shouldnt-wear-her-heart-on-her-sleeve/)
+- [friend stole my boyfriend](https://love.allwomenstalk.com/why-it-is-seriously-not-cool-to-steal-your-friends-boyfriend/)
+- [causes of sadness](https://inspiration.allwomenstalk.com/feeling-sad-heres-whats-making-you-feel-that-way/)
 - [7 Reasons to Not Get Married ...](https://love.allwomenstalk.com/reasons-to-not-get-married/)
 - [7 Reasons to Not Be Married ...](https://allwomenstalk.com/7-reasons-to-not-be-married/)
 

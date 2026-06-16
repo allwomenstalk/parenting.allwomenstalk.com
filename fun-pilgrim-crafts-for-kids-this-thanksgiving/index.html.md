@@ -3,7 +3,7 @@ title: "20 Fun Pilgrim Crafts for Kids This Thanksgiving ..."
 description: "Paper Boat; Pilgrim Hats; Paper Bag Tepees; Toilet Paper Rolls; Pilgrim Hat Crayon Cup Holders; More ..."
 url: "https://parenting.allwomenstalk.com/fun-pilgrim-crafts-for-kids-this-thanksgiving/"
 category: "parenting"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 20 Fun Pilgrim Crafts for Kids This Thanksgiving ...
@@ -152,14 +152,14 @@ Do you see a craft you want to try? Don't you just love making things with your 
 
 ## Related Posts
 
-- [initial ideas](https://diy.allwomenstalk.com/initial-crafts-to-make-your-mark-with/)
-- [popsicle stick turkey craft](https://diy.allwomenstalk.com/festive-thanksgiving-crafts-for-your-family/)
-- [itty bitty advent calendar](https://diy.allwomenstalk.com/ideas-for-your-advent-calendar-this-year/)
-- [soapstone coasters](https://diy.allwomenstalk.com/awesome-sets-of-coasters-you-can-make-at-home/)
-- [how to decorate wooden snowflakes](https://diy.allwomenstalk.com/snowflake-crafts-to-make-this-winter-something-to-remember/)
-- [ideas for decorating pine cones](https://diy.allwomenstalk.com/pine-cone-crafts-to-add-a-seasonal-touch-to-your-home/)
-- [making table runners](https://diy.allwomenstalk.com/table-runners-you-can-make-yourself/)
 - [cute diy decorations](https://diy.allwomenstalk.com/cute-diy-christmas-decorations-you-can-make-at-home/)
+- [initial ideas](https://diy.allwomenstalk.com/initial-crafts-to-make-your-mark-with/)
+- [itty bitty advent calendar](https://diy.allwomenstalk.com/ideas-for-your-advent-calendar-this-year/)
+- [popsicle stick turkey craft](https://diy.allwomenstalk.com/festive-thanksgiving-crafts-for-your-family/)
+- [making table runners](https://diy.allwomenstalk.com/table-runners-you-can-make-yourself/)
+- [soapstone coasters](https://diy.allwomenstalk.com/awesome-sets-of-coasters-you-can-make-at-home/)
+- [ideas for decorating pine cones](https://diy.allwomenstalk.com/pine-cone-crafts-to-add-a-seasonal-touch-to-your-home/)
+- [how to decorate wooden snowflakes](https://diy.allwomenstalk.com/snowflake-crafts-to-make-this-winter-something-to-remember/)
 - [really cool legos](https://parenting.allwomenstalk.com/awesome-lego-creations-to-build-with-your-kids/)
 - [folding paper napkin](https://food.allwomenstalk.com/tutorials-for-how-to-fold-napkins/)
 - [8 Free Craft Items for Kids ...](https://parenting.allwomenstalk.com/8-free-craft-items-for-kids/)

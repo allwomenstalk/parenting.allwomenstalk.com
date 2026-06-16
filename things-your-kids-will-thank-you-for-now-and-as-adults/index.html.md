@@ -3,7 +3,7 @@ title: "7 Things Your Kids Will Thank You for Now and as Adults ..."
 description: "Time; Breaking the Rules; Limit Activities; Teach Life Skills; Listen; More ..."
 url: "https://parenting.allwomenstalk.com/things-your-kids-will-thank-you-for-now-and-as-adults/"
 category: "parenting"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 7 Things Your Kids Will Thank You for Now and as Adults ...
@@ -42,16 +42,16 @@ I hope my kids have more than seven things to thank me for when they grow up. Ho
 
 ## Related Posts
 
+- [7 Easy Ways to Get Your Kids to Eat Anything ...](https://parenting.allwomenstalk.com/easy-ways-to-get-your-kids-to-eat-anything/)
+- [9 Ways to Keep Your Toddler Occupied While You Are...](https://parenting.allwomenstalk.com/ways-to-keep-your-toddler-occupied-while-you-are-sick/)
+- [morals for children](https://parenting.allwomenstalk.com/morals-for-kids-that-are-absolutely-essential/)
 - [making chores fun](https://parenting.allwomenstalk.com/ways-to-make-household-chores-fun-for-kids/)
+- [how to get my daughter to like science](https://parenting.allwomenstalk.com/ways-to-get-children-interested-in-science/)
+- [help kids have more friends](https://parenting.allwomenstalk.com/fun-ways-to-help-your-child-make-more-friends/)
+- [living with someone with ocpd](https://health.allwomenstalk.com/tips-for-family-of-someone-with-obsessive-compulsive-personality-disorder/)
 - [7 Uncommon Signs Your Child Might Be Depressed and...](https://mindfulness.allwomenstalk.com/uncommon-signs-your-child-might-be-depressed-and-what-to-do/)
 - [how to study nicely with my family](https://parenting.allwomenstalk.com/essential-tips-for-studying-when-you-are-a-parent/)
-- [7 Easy Ways to Get Your Kids to Eat Anything ...](https://parenting.allwomenstalk.com/easy-ways-to-get-your-kids-to-eat-anything/)
-- [how to get my daughter to like science](https://parenting.allwomenstalk.com/ways-to-get-children-interested-in-science/)
-- [living with someone with ocpd](https://health.allwomenstalk.com/tips-for-family-of-someone-with-obsessive-compulsive-personality-disorder/)
 - [how to get kids to listen](https://parenting.allwomenstalk.com/tips-on-how-to-get-your-kids-to-listen/)
-- [9 Ways to Keep Your Toddler Occupied While You Are...](https://parenting.allwomenstalk.com/ways-to-keep-your-toddler-occupied-while-you-are-sick/)
-- [help kids have more friends](https://parenting.allwomenstalk.com/fun-ways-to-help-your-child-make-more-friends/)
-- [morals for children](https://parenting.allwomenstalk.com/morals-for-kids-that-are-absolutely-essential/)
 - [7 Ways to Involve Your Kids with Everything ...](https://parenting.allwomenstalk.com/7-ways-to-involve-your-kids-with-everything/)
 - [Top 7 Things to Teach Your Children ...](https://parenting.allwomenstalk.com/top-7-things-to-teach-your-children/)
 
