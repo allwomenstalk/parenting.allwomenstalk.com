@@ -3,7 +3,7 @@ title: "8 Engaging Activities to Do With Kids at Home or Outdoors"
 description: "Put on a Show; Teach Them Something New; Go on a Scavenger Hunt; Re-purpose Something Old; Bake a Unique Masterpiece; More ..."
 url: "https://parenting.allwomenstalk.com/awesome-activities-to-do-with-kids/"
 category: "parenting"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 8 Engaging Activities to Do With Kids at Home or Outdoors
@@ -58,16 +58,16 @@ This will likely be the most rewarding **activity you do with your kids**, as no
 
 ## Related Posts
 
-- [8 Great Ways to Entertain Children Indoors ...](https://parenting.allwomenstalk.com/great-ways-to-entertain-children-indoors/)
-- [8 Fun and Memorable Things to do in Las Vegas besi...](https://travel.allwomenstalk.com/fun-and-memorable-things-to-do-in-las-vegas-besides-gambling/)
-- [5 Things to do or Make for Thanksgiving…](https://allwomenstalk.com/5-things-to-do-or-make-for-thanksgiving/)
-- [travel games for kids](https://travel.allwomenstalk.com/travel-games-to-keep-the-kids-occupied/)
 - [8 Jazzy Things to do in New Orleans ...](https://travel.allwomenstalk.com/jazzy-things-to-do-in-new-orleans/)
 - [most fun board game](https://allwomenstalk.com/board-games-that-are-actually-fun/)
-- [paris riche le stylo golden emerald](https://lifestyle.allwomenstalk.com/great-philanthropies-to-get-involved-with/)
-- [8 Wicked Ways to Get the Most out of Your Weekend ...](https://lifestyle.allwomenstalk.com/wicked-ways-to-get-the-most-out-of-your-weekend/)
-- [what can you do in the fall](https://lifestyle.allwomenstalk.com/things-to-do-in-your-city-for-fall/)
 - [10 Fun Things We Did as a Kid That We Should do No...](https://health.allwomenstalk.com/fun-things-we-did-as-a-kid-that-we-should-do-now/)
+- [what can you do in the fall](https://lifestyle.allwomenstalk.com/things-to-do-in-your-city-for-fall/)
+- [8 Great Ways to Entertain Children Indoors ...](https://parenting.allwomenstalk.com/great-ways-to-entertain-children-indoors/)
+- [5 Things to do or Make for Thanksgiving…](https://allwomenstalk.com/5-things-to-do-or-make-for-thanksgiving/)
+- [paris riche le stylo golden emerald](https://lifestyle.allwomenstalk.com/great-philanthropies-to-get-involved-with/)
+- [travel games for kids](https://travel.allwomenstalk.com/travel-games-to-keep-the-kids-occupied/)
+- [8 Wicked Ways to Get the Most out of Your Weekend ...](https://lifestyle.allwomenstalk.com/wicked-ways-to-get-the-most-out-of-your-weekend/)
+- [8 Fun and Memorable Things to do in Las Vegas besi...](https://travel.allwomenstalk.com/fun-and-memorable-things-to-do-in-las-vegas-besides-gambling/)
 - [8 Games You Can Play with Your Kids ...](https://parenting.allwomenstalk.com/8-games-you-can-play-with-your-kids/)
 - [8 Fun Things to do in the Snow with Kids ...](https://parenting.allwomenstalk.com/fun-things-to-do-in-the-snow-with-kids/)
 

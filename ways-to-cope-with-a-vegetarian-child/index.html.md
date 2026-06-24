@@ -3,7 +3,7 @@ title: "8 Ways to Cope with a Vegetarian Child ..."
 description: "Support Their Choice; Get Them Involved in Cooking; Websites; Stop Worrying; Substitution; More ..."
 url: "https://parenting.allwomenstalk.com/ways-to-cope-with-a-vegetarian-child/"
 category: "parenting"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 8 Ways to Cope with a Vegetarian Child ...
@@ -46,14 +46,14 @@ When your child announces that they want to turn vegetarian, you may be annoyed 
 
 ## Related Posts
 
+- [babysitting tips and tricks](https://money.allwomenstalk.com/fun-and-simple-babysitting-tips-that-will-make-you-a-pro/)
+- [how can i help my community as a kid](https://parenting.allwomenstalk.com/ways-children-can-volunteer-in-their-community/)
+- [losing a parent you weren't close to quotes](https://inspiration.allwomenstalk.com/ways-to-cope-after-losing-a-parent-at-a-very-young-age/)
+- [annoying tv shows](https://parenting.allwomenstalk.com/least-annoying-kid-shows-that-will-actually-teach-your-child-something/)
 - [why is my baby licking the floor](https://parenting.allwomenstalk.com/things-i-learned-from-my-1-year-old/)
+- [apps to help kids talk](https://apps.allwomenstalk.com/best-apps-to-teach-your-child-to-read/)
 - [fraternal twins](https://parenting.allwomenstalk.com/tips-for-raising-fraternal-twins/)
 - [i love being an only child](https://parenting.allwomenstalk.com/amazing-things-about-being-and-having-an-only-child/)
-- [babysitting tips and tricks](https://money.allwomenstalk.com/fun-and-simple-babysitting-tips-that-will-make-you-a-pro/)
-- [annoying tv shows](https://parenting.allwomenstalk.com/least-annoying-kid-shows-that-will-actually-teach-your-child-something/)
-- [how can i help my community as a kid](https://parenting.allwomenstalk.com/ways-children-can-volunteer-in-their-community/)
-- [apps to help kids talk](https://apps.allwomenstalk.com/best-apps-to-teach-your-child-to-read/)
-- [losing a parent you weren't close to quotes](https://inspiration.allwomenstalk.com/ways-to-cope-after-losing-a-parent-at-a-very-young-age/)
 - [therapy metaphors](https://health.allwomenstalk.com/short-therapeutic-metaphors-for-the-child-within/)
 - [what to do when your child is bullying others](https://parenting.allwomenstalk.com/tips-for-when-your-child-is-bullying-other-kids-at-school/)
 - [7 Ways to Help Your Child through Your Divorce ...](https://parenting.allwomenstalk.com/7-ways-to-help-your-child-through-your-divorce/)

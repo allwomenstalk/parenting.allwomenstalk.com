@@ -3,7 +3,7 @@ title: "Spanking Alternatives for Child Discipline ..."
 description: "Get Calm; Take Time for Yourself; Be Kind but Firm; Give Choices; Use Logical Consequences; More ..."
 url: "https://parenting.allwomenstalk.com/alternatives-to-spanking-to-discipline-your-child/"
 category: "parenting"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # Spanking Alternatives for Child Discipline ...
@@ -75,15 +75,15 @@ Sources
 ## Related Posts
 
 - [potty training japan](https://parenting.allwomenstalk.com/tips-for-potty-training-2/)
-- [qk kids fashion](https://parenting.allwomenstalk.com/how-to-style-your-childs-look-for-an-important-event/)
-- [instill in](https://parenting.allwomenstalk.com/life-lessons-to-instill-in-your-children/)
 - [3-Step Method to Protecting Your Kids Online ...](https://parenting.allwomenstalk.com/3-step-method-to-protecting-your-kids-online/)
-- [what to do with your mom at home](https://lifestyle.allwomenstalk.com/things-you-should-do-with-your-mom/)
-- [kids go green](https://allwomenstalk.com/kids-can-go-green-too/)
-- [responsible online behaviour](https://allwomenstalk.com/childrens-responsible-behavior-online-parental-guide/)
-- [What do You do when Your Public School Can't Teach...](https://allwomenstalk.com/what-do-you-do-when-your-public-school-cant-teach-your-child/)
-- [kid cudio](https://parenting.allwomenstalk.com/very-important-skills-every-child-should-learn/)
+- [qk kids fashion](https://parenting.allwomenstalk.com/how-to-style-your-childs-look-for-an-important-event/)
 - [overprotective parents in your 20s](https://teen.allwomenstalk.com/how-to-gain-your-freedom-from-overprotective-parents/)
+- [what to do with your mom at home](https://lifestyle.allwomenstalk.com/things-you-should-do-with-your-mom/)
+- [responsible online behaviour](https://allwomenstalk.com/childrens-responsible-behavior-online-parental-guide/)
+- [kid cudio](https://parenting.allwomenstalk.com/very-important-skills-every-child-should-learn/)
+- [What do You do when Your Public School Can't Teach...](https://allwomenstalk.com/what-do-you-do-when-your-public-school-cant-teach-your-child/)
+- [kids go green](https://allwomenstalk.com/kids-can-go-green-too/)
+- [instill in](https://parenting.allwomenstalk.com/life-lessons-to-instill-in-your-children/)
 - [7 Healthy Habits to Teach Your Children ...](https://parenting.allwomenstalk.com/7-healthy-habits-to-teach-your-children/)
 - [7 Ways to Exercise with Your Kids ...](https://allwomenstalk.com/7-ways-to-exercise-with-your-kids/)
 

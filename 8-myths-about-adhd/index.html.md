@@ -3,7 +3,7 @@ title: "8 Myths about ADHD ..."
 description: "Kids Outgrow It; Only Hyper Kids Have It; It’s a Discipline Issue, That’s All; It’s Caused by a Poor Diet; Ritalin (or Another Pill) Can Cure It; More ..."
 url: "https://parenting.allwomenstalk.com/8-myths-about-adhd/"
 category: "parenting"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 8 Myths about ADHD ...
@@ -48,16 +48,16 @@ Top Photo Credit: [Christopher Futcher](https://www.flickr.com/photos/chrisfutch
 
 ## Related Posts
 
-- [5 Herbs to Take Caution with ...](https://gardening.allwomenstalk.com/5-herbs-to-take-caution-with/)
-- [7 Scariest Invasive Surgeries ...](https://health.allwomenstalk.com/7-scariest-invasive-surgeries/)
-- [most important women's vitamins](https://health.allwomenstalk.com/highly-important-vitamins-for-women/)
-- [7 Pertinent Laser Eye Surgery Points to Consider ....](https://health.allwomenstalk.com/pertinent-laser-eye-surgery-points-to-consider/)
-- [6 Incredibly Important Health Issues You Must Know...](https://health.allwomenstalk.com/incredibly-important-health-issues-you-must-know-about/)
-- [7 Tips for Coping with Long-Term Health Conditions...](https://health.allwomenstalk.com/7-tips-for-coping-with-long-term-health-conditions/)
-- [7 Horrible Diseases ...](https://health.allwomenstalk.com/7-horrible-diseases/)
 - [7 Prescription Drugs with Strange Side Effects ...](https://health.allwomenstalk.com/prescription-drugs-with-strange-side-effects/)
-- [8 Things to Know about Antioxidants ...](https://health.allwomenstalk.com/8-things-to-know-about-antioxidants/)
+- [most important women's vitamins](https://health.allwomenstalk.com/highly-important-vitamins-for-women/)
+- [7 Horrible Diseases ...](https://health.allwomenstalk.com/7-horrible-diseases/)
+- [7 Tips for Coping with Long-Term Health Conditions...](https://health.allwomenstalk.com/7-tips-for-coping-with-long-term-health-conditions/)
 - [10 Reasons to Get Regular Checkups ...](https://health.allwomenstalk.com/10-reasons-to-get-regular-checkups/)
+- [7 Pertinent Laser Eye Surgery Points to Consider ....](https://health.allwomenstalk.com/pertinent-laser-eye-surgery-points-to-consider/)
+- [8 Things to Know about Antioxidants ...](https://health.allwomenstalk.com/8-things-to-know-about-antioxidants/)
+- [7 Scariest Invasive Surgeries ...](https://health.allwomenstalk.com/7-scariest-invasive-surgeries/)
+- [6 Incredibly Important Health Issues You Must Know...](https://health.allwomenstalk.com/incredibly-important-health-issues-you-must-know-about/)
+- [5 Herbs to Take Caution with ...](https://gardening.allwomenstalk.com/5-herbs-to-take-caution-with/)
 - [8 Harmful Heart Habits ...](https://health.allwomenstalk.com/8-harmful-heart-habits/)
 - [10 Text Habits That Drive People Mad ...](https://allwomenstalk.com/10-text-habits-that-drive-people-mad/)
 

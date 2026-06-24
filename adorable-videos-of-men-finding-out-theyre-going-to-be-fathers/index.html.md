@@ -3,7 +3,7 @@ title: "7 Adorable Videos of Men Finding out They're Going to Be Fathers ..."
 description: "Photo Booth Pregnancy Announcement; Vacation Announcement; Darth Vader Announcement; Baby Clothes Announcement; Deaf Pregnancy Announcement; More ..."
 url: "https://parenting.allwomenstalk.com/adorable-videos-of-men-finding-out-theyre-going-to-be-fathers/"
 category: "parenting"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 7 Adorable Videos of Men Finding out They're Going to Be Fathers ...
@@ -42,16 +42,16 @@ These videos are just as adorable as any proposal video out there! Does it make 
 
 ## Related Posts
 
-- [find a woman quotes](https://love.allwomenstalk.com/quotes-about-what-men-really-love-in-women/)
-- [funny relationship tweets](https://love.allwomenstalk.com/these-hilarious-tweets-describe-dating-perfectly/)
-- [How to Explain What a F*uckboy Really is ...](https://love.allwomenstalk.com/how-to-explain-what-a-fuckboy-really-is/)
 - [what type of boys do you attract](https://love.allwomenstalk.com/how-to-attract-the-right-kind-of-guy/)
+- [types of dudes](https://love.allwomenstalk.com/the-types-of-men-you-meet-on-online-dating-sites/)
+- [pervy](https://love.allwomenstalk.com/types-of-pervy-guys-you-really-need-to-stay-away-from/)
+- [hot undercut hairstyle](https://hair.allwomenstalk.com/every-woman-wants-a-man-with-these-sexy-undercuts/)
+- [funny relationship tweets](https://love.allwomenstalk.com/these-hilarious-tweets-describe-dating-perfectly/)
 - [why am i attracted to introverts](https://love.allwomenstalk.com/reasons-why-women-are-so-attracted-to-introverts/)
 - [good dads](https://parenting.allwomenstalk.com/good-dads-will-tell-their-daughters-these-things/)
-- [hot undercut hairstyle](https://hair.allwomenstalk.com/every-woman-wants-a-man-with-these-sexy-undercuts/)
-- [pervy](https://love.allwomenstalk.com/types-of-pervy-guys-you-really-need-to-stay-away-from/)
 - [friendzone doesn't exist](https://love.allwomenstalk.com/proof-that-the-friend-zone-doesnt-actually-exist/)
-- [types of dudes](https://love.allwomenstalk.com/the-types-of-men-you-meet-on-online-dating-sites/)
+- [How to Explain What a F*uckboy Really is ...](https://love.allwomenstalk.com/how-to-explain-what-a-fuckboy-really-is/)
+- [find a woman quotes](https://love.allwomenstalk.com/quotes-about-what-men-really-love-in-women/)
 - [7 Funny Proposals-Went-Wrong Videos ...](https://wedding.allwomenstalk.com/funny-proposals-went-wrong-videos/)
 - [17 Pictures of the Cutest Little Baby Bear ... wit...](https://allwomenstalk.com/pictures-cute-little-bear/)
 

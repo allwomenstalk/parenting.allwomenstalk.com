@@ -3,7 +3,7 @@ title: "7 Tips for What to do if Your Child is Being Bullied ..."
 description: "Listen to Your Child; Talk to the School; Reassure Your Child; Role Play; Stay Persistent; More ..."
 url: "https://parenting.allwomenstalk.com/tips-for-what-to-do-if-your-child-is-being-bullied/"
 category: "parenting"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 7 Tips for What to do if Your Child is Being Bullied ...
@@ -45,15 +45,15 @@ Has your child ever been bullied? I’m lucky enough to say, “no,” but I fee
 ## Related Posts
 
 - [7 Ways to Help Your Child if You Are Worried about...](https://parenting.allwomenstalk.com/ways-to-help-your-child-if-you-are-worried-about-their-weight/)
-- [7 Lies It's Technically Okay to Tell Your Kids ...](https://parenting.allwomenstalk.com/lies-its-technically-okay-to-tell-your-kids/)
 - [7 Ways to Be a Good Mom when Your Child Plays Spor...](https://parenting.allwomenstalk.com/ways-to-be-a-good-mom-when-your-child-plays-sports/)
-- [7 Ways to Give Your Children a Healthy Valentine's...](https://parenting.allwomenstalk.com/ways-to-give-your-children-a-healthy-valentines-day/)
-- [7 Ways to Earn Your Parents' Trust ...](https://teen.allwomenstalk.com/ways-to-earn-your-parents-trust/)
 - [7 Ways to Make Healthy Living a Family Affair ...](https://health.allwomenstalk.com/ways-to-make-healthy-living-a-family-affair/)
-- [7 Ways to Help Your Child Make Friends ...](https://parenting.allwomenstalk.com/ways-to-help-your-child-make-friends/)
 - [my child's first day at school quotes](https://parenting.allwomenstalk.com/tips-for-coping-when-your-child-starts-school/)
+- [7 Ways to Earn Your Parents' Trust ...](https://teen.allwomenstalk.com/ways-to-earn-your-parents-trust/)
+- [7 Lies It's Technically Okay to Tell Your Kids ...](https://parenting.allwomenstalk.com/lies-its-technically-okay-to-tell-your-kids/)
 - [7 Habits of Healthy Families That You Should Follo...](https://parenting.allwomenstalk.com/habits-of-healthy-families-that-you-should-follow/)
 - [7 Steps to Being a Good Stepparent ...](https://parenting.allwomenstalk.com/steps-to-being-a-good-stepparent/)
+- [7 Ways to Give Your Children a Healthy Valentine's...](https://parenting.allwomenstalk.com/ways-to-give-your-children-a-healthy-valentines-day/)
+- [7 Ways to Help Your Child Make Friends ...](https://parenting.allwomenstalk.com/ways-to-help-your-child-make-friends/)
 - [8 Ways to Help Your Child Deal with Bullies ...](https://parenting.allwomenstalk.com/ways-to-help-your-child-deal-with-bullies/)
 - [7 Tips to See if Your Child is Picked on in School...](https://allwomenstalk.com/7-tips-to-see-if-your-child-is-picked-on-in-school/)
 

@@ -3,7 +3,7 @@ title: "7 Things to do when He Wants a Baby and You Don't ..."
 description: "Do Some Deep Thinking; Talk about It; Agree to Think about It; Point out the Benefits of Not Having Children; Work toward a Common Goal; More ..."
 url: "https://parenting.allwomenstalk.com/things-to-do-when-he-wants-a-baby-and-you-dont/"
 category: "parenting"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 7 Things to do when He Wants a Baby and You Don't ...
@@ -43,14 +43,14 @@ These are 7 things you can do when he wants a baby and you don’t. I hope some 
 ## Related Posts
 
 - [disney baby announcement](https://parenting.allwomenstalk.com/cutest-pregnancy-and-birth-announcements-to-copy/)
-- [energetic mom](https://parenting.allwomenstalk.com/ways-to-have-more-energy-as-a-mom/)
 - [lonely stay at home mom quotes](https://parenting.allwomenstalk.com/ways-to-beat-the-isolation-of-being-a-stay-at-home-mom/)
 - [talk about your shopping habit](https://money.allwomenstalk.com/ways-to-adjust-your-single-lady-shopping-habits-when-starting-a-family/)
-- [emojinal](https://lifestyle.allwomenstalk.com/ways-to-get-so-emojinal-baby/)
-- [an amazing mother](https://parenting.allwomenstalk.com/signs-youre-going-to-be-an-amazing-mom/)
+- [foods you cant eat when pregnant](https://parenting.allwomenstalk.com/foods-pregnant-women-should-avoid-at-all-costs/)
 - [new parents photoshoot](https://parenting.allwomenstalk.com/wonderful-newborn-photo-poses-you-wont-want-to-pass-up/)
 - [wise mom](https://parenting.allwomenstalk.com/moms-are-wise-reasons-to-listen-to-yours/)
-- [foods you cant eat when pregnant](https://parenting.allwomenstalk.com/foods-pregnant-women-should-avoid-at-all-costs/)
+- [energetic mom](https://parenting.allwomenstalk.com/ways-to-have-more-energy-as-a-mom/)
+- [an amazing mother](https://parenting.allwomenstalk.com/signs-youre-going-to-be-an-amazing-mom/)
+- [emojinal](https://lifestyle.allwomenstalk.com/ways-to-get-so-emojinal-baby/)
 - [doctor fit and fabulous](https://parenting.allwomenstalk.com/how-to-have-a-healthy-fit-fabulous-pregnancy/)
 - [8 Things You Should Know before You Get Pregnant ....](https://parenting.allwomenstalk.com/things-you-should-know-before-you-get-pregnant/)
 - [8 Tried Ways to Get Pregnant Fast ...](https://parenting.allwomenstalk.com/tried-ways-to-get-pregnant-fast/)
