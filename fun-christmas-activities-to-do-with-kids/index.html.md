@@ -3,7 +3,7 @@ title: "7 Fun Christmas Activities to do with Kids ..."
 description: "Christmas Movie Night; Christmas Lights; Christmas Cookies; Decorate the Tree; Christmas Crafts; More ..."
 url: "https://parenting.allwomenstalk.com/fun-christmas-activities-to-do-with-kids/"
 category: "parenting"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Fun Christmas Activities to do with Kids ...
@@ -43,15 +43,15 @@ Children will remember the activities that you do with them for their many years
 ## Related Posts
 
 - [bucket list couples ideas](https://love.allwomenstalk.com/things-you-and-your-significant-other-should-put-on-your-couples-bucket-list/)
+- [out of the box date night ideas at home](https://love.allwomenstalk.com/out-of-the-box-date-ideas-that-make-the-evening-pop/)
+- [what are some fun things to do in london during ch...](https://travel.allwomenstalk.com/essential-things-to-do-in-london-at-christmas/)
+- [have fun with your friends](https://lifestyle.allwomenstalk.com/awesome-ways-to-have-fun-with-your-friends-when-youre-totally-broke/)
+- [christmas day ideas](https://lifestyle.allwomenstalk.com/fun-and-festive-christmas-activities/)
+- [hobbies to find friends](https://lifestyle.allwomenstalk.com/hobbies-for-making-new-friends/)
+- [winter family activities](https://parenting.allwomenstalk.com/fun-family-winter-activities-to-do-together/)
 - [fun classes for couples](https://love.allwomenstalk.com/fun-classes-couples-should-take-together/)
 - [fun things to do at night with a friend](https://lifestyle.allwomenstalk.com/ideas-for-a-fun-night-in-with-friends/)
-- [hobbies to find friends](https://lifestyle.allwomenstalk.com/hobbies-for-making-new-friends/)
 - [holiday theme party](https://lifestyle.allwomenstalk.com/absolutely-adorable-holiday-party-themes-to-try/)
-- [have fun with your friends](https://lifestyle.allwomenstalk.com/awesome-ways-to-have-fun-with-your-friends-when-youre-totally-broke/)
-- [what are some fun things to do in london during ch...](https://travel.allwomenstalk.com/essential-things-to-do-in-london-at-christmas/)
-- [christmas day ideas](https://lifestyle.allwomenstalk.com/fun-and-festive-christmas-activities/)
-- [winter family activities](https://parenting.allwomenstalk.com/fun-family-winter-activities-to-do-together/)
-- [out of the box date night ideas at home](https://love.allwomenstalk.com/out-of-the-box-date-ideas-that-make-the-evening-pop/)
 - [7 Fun Ways to Keep the Kids Entertained on a Holid...](https://parenting.allwomenstalk.com/fun-ways-to-keep-the-kids-entertained-on-a-holiday/)
 - [7 Ridiculously Fun Ideas for Kids ...](https://allwomenstalk.com/7-ridiculously-fun-ideas-for-kids/)
 

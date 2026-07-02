@@ -3,7 +3,7 @@ title: "7 Fun Experiments to do with Your Kids Today ..."
 description: "Baking Soda Bombs; Wiggly Worms; Milk and Soap Fireworks; Canister Rocket; Clean a Penny; More ..."
 url: "https://parenting.allwomenstalk.com/fun-experiments-to-do-with-your-kids-today/"
 category: "parenting"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Fun Experiments to do with Your Kids Today ...
@@ -56,16 +56,16 @@ What’s your favorite science experiment from childhood? I love the ones that p
 
 ## Related Posts
 
-- [7 Interesting Things Your Kid's Teacher Won't Tell...](https://parenting.allwomenstalk.com/interesting-things-your-kids-teacher-wont-tell-you/)
-- [how to study nicely with my family](https://parenting.allwomenstalk.com/essential-tips-for-studying-when-you-are-a-parent/)
-- [10 Toddler Approved Fall Activities That You've Go...](https://parenting.allwomenstalk.com/toddler-approved-fall-activities-that-youve-got-to-try/)
-- [morals for children](https://parenting.allwomenstalk.com/morals-for-kids-that-are-absolutely-essential/)
-- [9 Ways to Keep Your Toddler Occupied While You Are...](https://parenting.allwomenstalk.com/ways-to-keep-your-toddler-occupied-while-you-are-sick/)
 - [7 Ways to Deal with Sibling Rivalry between Your C...](https://parenting.allwomenstalk.com/ways-to-deal-with-sibling-rivalry-between-your-children/)
-- [how to get my daughter to like science](https://parenting.allwomenstalk.com/ways-to-get-children-interested-in-science/)
+- [7 Interesting Things Your Kid's Teacher Won't Tell...](https://parenting.allwomenstalk.com/interesting-things-your-kids-teacher-wont-tell-you/)
 - [7 Easy Ways to Get Your Kids to Eat Anything ...](https://parenting.allwomenstalk.com/easy-ways-to-get-your-kids-to-eat-anything/)
+- [morals for children](https://parenting.allwomenstalk.com/morals-for-kids-that-are-absolutely-essential/)
+- [10 Toddler Approved Fall Activities That You've Go...](https://parenting.allwomenstalk.com/toddler-approved-fall-activities-that-youve-got-to-try/)
 - [7 Things Your Kids Will Thank You for Now and as A...](https://parenting.allwomenstalk.com/things-your-kids-will-thank-you-for-now-and-as-adults/)
 - [7 Uncommon Signs Your Child Might Be Depressed and...](https://mindfulness.allwomenstalk.com/uncommon-signs-your-child-might-be-depressed-and-what-to-do/)
+- [9 Ways to Keep Your Toddler Occupied While You Are...](https://parenting.allwomenstalk.com/ways-to-keep-your-toddler-occupied-while-you-are-sick/)
+- [how to get my daughter to like science](https://parenting.allwomenstalk.com/ways-to-get-children-interested-in-science/)
+- [how to study nicely with my family](https://parenting.allwomenstalk.com/essential-tips-for-studying-when-you-are-a-parent/)
 - [8 Fun Things to do with Your Kids ...](https://allwomenstalk.com/8-fun-things-to-do-with-your-kids/)
 - [7 Ridiculously Fun Ideas for Kids ...](https://allwomenstalk.com/7-ridiculously-fun-ideas-for-kids/)
 

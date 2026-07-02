@@ -3,7 +3,7 @@ title: "7 Classic Just so Stories to Read to Your Children ..."
 description: "How the Whale Got His Throat; How the Camel Got His Hump; How the Rhinoceros Got His Skin; How the Leopard Got His Spots; The Elephant’s Child; More ..."
 url: "https://parenting.allwomenstalk.com/classic-just-so-stories-to-read-to-your-children/"
 category: "parenting"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Classic Just so Stories to Read to Your Children ...
@@ -56,16 +56,16 @@ The Just So Stories are clever stories that kids of all ages will enjoy. They ar
 
 ## Related Posts
 
-- [7 Books That Should Be Turned into Movies ...](https://books.allwomenstalk.com/books-that-should-be-turned-into-movies/)
-- [7 Amazing Memoirs I Need to Get My Hands on ...](https://books.allwomenstalk.com/amazing-memoirs-i-need-to-get-my-hands-on/)
-- [7 Top Book Releases for the Summer ...](https://books.allwomenstalk.com/top-book-releases-for-the-summer/)
 - [9 Amazing Short Books Anyone Can Find the Time to ...](https://books.allwomenstalk.com/amazing-short-books-anyone-can-find-the-time-to-read/)
-- [essential oils for writer's block](https://funny.allwomenstalk.com/story-prompts-to-use-when-you-have-writers-block/)
-- [best health books to read](https://books.allwomenstalk.com/health-books-you-just-have-to-read/)
-- [8 Places to Score Free Books ...](https://books.allwomenstalk.com/places-to-score-free-books/)
-- [charles dickens books turned into movies](https://movies.allwomenstalk.com/awesome-adaptations-of-charles-dickens-novels/)
-- [7 Books to Put on Your 2014 Summer Reading List .....](https://books.allwomenstalk.com/books-you-must-have-on-your-summer-reading-list/)
 - [7 of the Best Books of 2014 so Far ...](https://books.allwomenstalk.com/of-the-best-books-of-so-far/)
+- [charles dickens books turned into movies](https://movies.allwomenstalk.com/awesome-adaptations-of-charles-dickens-novels/)
+- [7 Amazing Memoirs I Need to Get My Hands on ...](https://books.allwomenstalk.com/amazing-memoirs-i-need-to-get-my-hands-on/)
+- [7 Books to Put on Your 2014 Summer Reading List .....](https://books.allwomenstalk.com/books-you-must-have-on-your-summer-reading-list/)
+- [7 Books That Should Be Turned into Movies ...](https://books.allwomenstalk.com/books-that-should-be-turned-into-movies/)
+- [7 Top Book Releases for the Summer ...](https://books.allwomenstalk.com/top-book-releases-for-the-summer/)
+- [8 Places to Score Free Books ...](https://books.allwomenstalk.com/places-to-score-free-books/)
+- [best health books to read](https://books.allwomenstalk.com/health-books-you-just-have-to-read/)
+- [essential oils for writer's block](https://funny.allwomenstalk.com/story-prompts-to-use-when-you-have-writers-block/)
 - [7 Fairytales That Your Daughter Should Know ...](https://parenting.allwomenstalk.com/7-fairytales-that-your-daughter-should-know/)
 - [7 Children’s Books Every Adult Should Read …](https://parenting.allwomenstalk.com/7-childrens-books-every-adult-should-read/)
 

@@ -3,7 +3,7 @@ title: "9 Practical Ways to Keep Your Toddler Occupied When You Are Unwell"
 description: "Let Them Write a Letter; Have a Talent Show; Pretend Camping; Allow Extra Screen Time; Use Educational Apps; More ..."
 url: "https://parenting.allwomenstalk.com/ways-to-keep-your-toddler-occupied-while-you-are-sick/"
 category: "parenting"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 9 Practical Ways to Keep Your Toddler Occupied When You Are Unwell
@@ -48,16 +48,16 @@ Pull out some stickers, washable markers, and construction paper. Let them decor
 
 ## Related Posts
 
-- [how to get my daughter to like science](https://parenting.allwomenstalk.com/ways-to-get-children-interested-in-science/)
-- [morals for children](https://parenting.allwomenstalk.com/morals-for-kids-that-are-absolutely-essential/)
-- [7 Vitally Important Steps to Keep Your Kids Safe i...](https://parenting.allwomenstalk.com/vitally-important-steps-to-keep-your-kids-safe-in-the-car/)
+- [living with someone with ocpd](https://health.allwomenstalk.com/tips-for-family-of-someone-with-obsessive-compulsive-personality-disorder/)
 - [7 Easy Ways to Get Your Kids to Eat Anything ...](https://parenting.allwomenstalk.com/easy-ways-to-get-your-kids-to-eat-anything/)
+- [morals for children](https://parenting.allwomenstalk.com/morals-for-kids-that-are-absolutely-essential/)
 - [making chores fun](https://parenting.allwomenstalk.com/ways-to-make-household-chores-fun-for-kids/)
 - [20 Tips for Discussing Race with Kids ...](https://parenting.allwomenstalk.com/tips-for-discussing-race-with-kids/)
-- [living with someone with ocpd](https://health.allwomenstalk.com/tips-for-family-of-someone-with-obsessive-compulsive-personality-disorder/)
-- [how to get kids to listen](https://parenting.allwomenstalk.com/tips-on-how-to-get-your-kids-to-listen/)
 - [how to study nicely with my family](https://parenting.allwomenstalk.com/essential-tips-for-studying-when-you-are-a-parent/)
 - [help kids have more friends](https://parenting.allwomenstalk.com/fun-ways-to-help-your-child-make-more-friends/)
+- [7 Vitally Important Steps to Keep Your Kids Safe i...](https://parenting.allwomenstalk.com/vitally-important-steps-to-keep-your-kids-safe-in-the-car/)
+- [how to get kids to listen](https://parenting.allwomenstalk.com/tips-on-how-to-get-your-kids-to-listen/)
+- [how to get my daughter to like science](https://parenting.allwomenstalk.com/ways-to-get-children-interested-in-science/)
 - [7 Ways to Get Your Child to Sleep ...](https://parenting.allwomenstalk.com/7-ways-to-get-your-child-to-sleep/)
 - [7 Ways to Help a Sick Child Feel Better ...](https://parenting.allwomenstalk.com/7-ways-to-help-a-sick-child-feel-better/)
 

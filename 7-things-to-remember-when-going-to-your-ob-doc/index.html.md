@@ -3,7 +3,7 @@ title: "7 Things to Remember when Going to Your OB Doc ..."
 description: "You're Going to Have to Pee; There's Going to Be Blood Drawn; You'll Get to See Baby!; Remember to Ask; You Need to Know Family Medical History; More ..."
 url: "https://parenting.allwomenstalk.com/7-things-to-remember-when-going-to-your-ob-doc/"
 category: "parenting"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Things to Remember when Going to Your OB Doc ...
@@ -44,16 +44,16 @@ Top Photo Credit: _newsusacontent_
 
 ## Related Posts
 
-- [8 Myths about ADHD ...](https://parenting.allwomenstalk.com/8-myths-about-adhd/)
-- [7 Misconceptions about Birth Control ...](https://parenting.allwomenstalk.com/misconceptions-about-birth-control/)
+- [10 Methods of Birth Control ...](https://parenting.allwomenstalk.com/methods-of-birth-control/)
 - [7 Prescription Drugs with Strange Side Effects ...](https://health.allwomenstalk.com/prescription-drugs-with-strange-side-effects/)
+- [7 Pertinent Laser Eye Surgery Points to Consider ....](https://health.allwomenstalk.com/pertinent-laser-eye-surgery-points-to-consider/)
 - [8 Things to Know about Antioxidants ...](https://health.allwomenstalk.com/8-things-to-know-about-antioxidants/)
+- [8 Myths about ADHD ...](https://parenting.allwomenstalk.com/8-myths-about-adhd/)
 - [5 Herbs to Take Caution with ...](https://gardening.allwomenstalk.com/5-herbs-to-take-caution-with/)
 - [7 Consequences of Fetal Alcohol Syndrome ...](https://parenting.allwomenstalk.com/7-consequences-of-fetal-alcohol-syndrome/)
-- [10 Methods of Birth Control ...](https://parenting.allwomenstalk.com/methods-of-birth-control/)
 - [7 Horrible Diseases ...](https://health.allwomenstalk.com/7-horrible-diseases/)
-- [7 Pertinent Laser Eye Surgery Points to Consider ....](https://health.allwomenstalk.com/pertinent-laser-eye-surgery-points-to-consider/)
 - [7 Scariest Invasive Surgeries ...](https://health.allwomenstalk.com/7-scariest-invasive-surgeries/)
+- [7 Misconceptions about Birth Control ...](https://parenting.allwomenstalk.com/misconceptions-about-birth-control/)
 - [7 Great Tips for the Mommy-to-Be ...](https://parenting.allwomenstalk.com/7-great-tips-for-the-mommy-to-be/)
 - [8 Things to do before You Head to the Labor Room ....](https://health.allwomenstalk.com/8-things-to-do-before-you-head-to-the-labor-room/)
 

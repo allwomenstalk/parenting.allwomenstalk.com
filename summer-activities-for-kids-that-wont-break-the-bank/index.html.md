@@ -3,7 +3,7 @@ title: "7 Fabulous Summer Activities That Won't Break the Bank ..."
 description: "Create a Treasure Map, an Obstacle Course, or a Waterpark in the Backyard; Watch a Movie; Free Workshops, Classes and Day Camps; Free or Discounted Zoo, Museum or Bowling Tickets; Take a Tour; More ..."
 url: "https://parenting.allwomenstalk.com/summer-activities-for-kids-that-wont-break-the-bank/"
 category: "parenting"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Fabulous Summer Activities That Won't Break the Bank ...

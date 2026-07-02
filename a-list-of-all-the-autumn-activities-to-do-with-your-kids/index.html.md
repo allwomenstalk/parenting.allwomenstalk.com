@@ -3,7 +3,7 @@ title: "A List of All the Autumn Activities to do with Your Kids ..."
 description: "Make Leaf Rubbings; Go to the Pumpkin Patch; Bake a Batch of Pumpkin Cookies; Go on a Nature Hike; Go on a Leaf Watch; More ..."
 url: "https://parenting.allwomenstalk.com/a-list-of-all-the-autumn-activities-to-do-with-your-kids/"
 category: "parenting"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # A List of All the Autumn Activities to do with Your Kids ...
@@ -116,16 +116,16 @@ What’s your favorite fall activity? Will you be trying any of these this year?
 
 ## Related Posts
 
-- [7 Tips for Throwing a Spa Party Right in Your Home...](https://beauty.allwomenstalk.com/tips-for-throwing-a-spa-party-right-in-your-home/)
-- [qwirkle target](https://love.allwomenstalk.com/the-best-board-games-to-play-with-your-bf/)
-- [7 Things to do if You Don't Have a Date This Valen...](https://love.allwomenstalk.com/things-to-do-on-valentines-day-if-you-dont-have-a-date/)
-- [11 Fun 🤗 Things to Look Forward to in 2017 ...](https://lifestyle.allwomenstalk.com/things-to-look-forward-to-in/)
-- [You Don't Need a BF to do These 17 Fun Fall Activi...](https://love.allwomenstalk.com/you-dont-need-a-bf-to-do-these-fun-fall-activities/)
-- [9 Places to Visit to Get in Touch with Your Inner ...](https://travel.allwomenstalk.com/places-to-visit-to-get-in-touch-with-your-inner-child/)
-- [games to play on holidays](https://lifestyle.allwomenstalk.com/the-best-party-games-to-play-during-the-holidays/)
-- [Fun Things to do with the Kids in Fall That Keep Y...](https://parenting.allwomenstalk.com/fun-things-to-do-with-the-kids-in-fall-that-keep-you-fit/)
-- [how to celebrate mother's day](https://lifestyle.allwomenstalk.com/how-to-celebrate-mothers-day-if-your-moms-your-bff/)
 - [17 Things You Can't Forget to do during Spring Bre...](https://lifestyle.allwomenstalk.com/dont-forget-to-do-these-things-during-spring-break/)
+- [7 Things to do if You Don't Have a Date This Valen...](https://love.allwomenstalk.com/things-to-do-on-valentines-day-if-you-dont-have-a-date/)
+- [7 Tips for Throwing a Spa Party Right in Your Home...](https://beauty.allwomenstalk.com/tips-for-throwing-a-spa-party-right-in-your-home/)
+- [games to play on holidays](https://lifestyle.allwomenstalk.com/the-best-party-games-to-play-during-the-holidays/)
+- [9 Places to Visit to Get in Touch with Your Inner ...](https://travel.allwomenstalk.com/places-to-visit-to-get-in-touch-with-your-inner-child/)
+- [qwirkle target](https://love.allwomenstalk.com/the-best-board-games-to-play-with-your-bf/)
+- [You Don't Need a BF to do These 17 Fun Fall Activi...](https://love.allwomenstalk.com/you-dont-need-a-bf-to-do-these-fun-fall-activities/)
+- [11 Fun 🤗 Things to Look Forward to in 2017 ...](https://lifestyle.allwomenstalk.com/things-to-look-forward-to-in/)
+- [how to celebrate mother's day](https://lifestyle.allwomenstalk.com/how-to-celebrate-mothers-day-if-your-moms-your-bff/)
+- [Fun Things to do with the Kids in Fall That Keep Y...](https://parenting.allwomenstalk.com/fun-things-to-do-with-the-kids-in-fall-that-keep-you-fit/)
 - [10 Fun Things to do with Kids in Winter ...](https://allwomenstalk.com/10-fun-things-to-do-with-kids-in-winter/)
 - [8 Fun Things to do with Your Kids ...](https://allwomenstalk.com/8-fun-things-to-do-with-your-kids/)
 

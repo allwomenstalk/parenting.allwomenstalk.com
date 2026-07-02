@@ -3,7 +3,7 @@ title: "Dealer's Choice: Fantastically Fun Card Games to Play with the Kids ..."
 description: "Uno; Go Fish; War; Memory; My Ship Sails; More ..."
 url: "https://parenting.allwomenstalk.com/really-fun-card-games-to-play-with-your-kids-today/"
 category: "parenting"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # Dealer's Choice: Fantastically Fun Card Games to Play with the Kids ...
@@ -42,16 +42,16 @@ Do you play card games with your kids? It’s a great way to kill some time, mak
 
 ## Related Posts
 
+- [playroom layouts](https://parenting.allwomenstalk.com/epic-playroom-ideas-your-kids-are-going-to-go-crazy-for/)
 - [budget party](https://money.allwomenstalk.com/ways-to-host-a-low-budget-party-with-friends/)
+- [most boring things to do](https://inspiration.allwomenstalk.com/ways-for-making-boring-tasks-fun/)
+- [ideas for festival activities](https://diy.allwomenstalk.com/diy-carnival-games-for-a-rockin-party/)
+- [soxy scrabble](https://funny.allwomenstalk.com/funny-creative-games-to-play-with-your-boyfriend/)
 - [fruit tips](https://food.allwomenstalk.com/fabulous-things-to-do-with-fruit/)
 - [host a game night](https://lifestyle.allwomenstalk.com/reasons-to-host-a-game-night-with-your-friends/)
-- [most boring things to do](https://inspiration.allwomenstalk.com/ways-for-making-boring-tasks-fun/)
 - [connect with nature activities](https://fitness.allwomenstalk.com/activities-that-help-you-become-more-connected-to-nature/)
-- [activities that don't involve food](https://lifestyle.allwomenstalk.com/fun-fall-activities-that-dont-involve-food/)
-- [playroom layouts](https://parenting.allwomenstalk.com/epic-playroom-ideas-your-kids-are-going-to-go-crazy-for/)
-- [ideas for festival activities](https://diy.allwomenstalk.com/diy-carnival-games-for-a-rockin-party/)
 - [fun and enjoyable](https://travel.allwomenstalk.com/fun-ways-to-make-your-commute-more-enjoyable/)
-- [soxy scrabble](https://funny.allwomenstalk.com/funny-creative-games-to-play-with-your-boyfriend/)
+- [activities that don't involve food](https://lifestyle.allwomenstalk.com/fun-fall-activities-that-dont-involve-food/)
 - [7 Tips on Choosing Video Games for Kids ...](https://parenting.allwomenstalk.com/7-tips-on-choosing-video-games-for-kids/)
 - [8 Games You Can Play with Your Kids ...](https://parenting.allwomenstalk.com/8-games-you-can-play-with-your-kids/)
 
