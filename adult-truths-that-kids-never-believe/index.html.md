@@ -3,7 +3,7 @@ title: "7 Adult Truths That Kids Never Believe ..."
 description: "Time Flies as You Get Older; Adulthood Does Not Start at 18; Naps Really Are Awesome; You'll Want It Less when You Pay for It; Eating in Front of the TV is Bad; More ..."
 url: "https://parenting.allwomenstalk.com/adult-truths-that-kids-never-believe/"
 category: "parenting"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 7 Adult Truths That Kids Never Believe ...
@@ -42,16 +42,16 @@ The grass is always greener, right? Some days I'd give anything to go back to be
 
 ## Related Posts
 
-- [don't judge a book by its cover movie cast](https://lifestyle.allwomenstalk.com/disney-life-lessons-we-should-all-learn/)
-- [what was the moral of the great gatsby](https://lifestyle.allwomenstalk.com/life-lessons-you-can-learn-from-the-great-gatsby/)
-- [identify possible problems that may be encountered...](https://lifestyle.allwomenstalk.com/ways-facebook-causes-problems-for-users-that-you-cant-ignore/)
 - [why do i find my mom attractive](https://lifestyle.allwomenstalk.com/best-and-worst-things-about-having-an-attractive-mother/)
-- [lessons](https://movies.allwomenstalk.com/lessons-i-learned-from-buffy-the-vampire-slayer/)
-- [my 16 years old self](https://inspiration.allwomenstalk.com/things-id-tell-my-16-year-old-self/)
-- [what are the main causes of prejudice](https://inspiration.allwomenstalk.com/important-causes-of-prejudice-you-should-know-about/)
 - [advantages and disadvantages of being kind](https://inspiration.allwomenstalk.com/advantages-of-being-nice-to-other-people-that-you-must-always-consider/)
 - [my child and other mistakes](https://inspiration.allwomenstalk.com/things-to-learn-from-your-parents-mistakes-that-can-make-you-stronger/)
+- [lessons](https://movies.allwomenstalk.com/lessons-i-learned-from-buffy-the-vampire-slayer/)
 - [about your favorite teacher](https://parenting.allwomenstalk.com/characteristics-of-an-amazing-teacher/)
+- [don't judge a book by its cover movie cast](https://lifestyle.allwomenstalk.com/disney-life-lessons-we-should-all-learn/)
+- [identify possible problems that may be encountered...](https://lifestyle.allwomenstalk.com/ways-facebook-causes-problems-for-users-that-you-cant-ignore/)
+- [what are the main causes of prejudice](https://inspiration.allwomenstalk.com/important-causes-of-prejudice-you-should-know-about/)
+- [what was the moral of the great gatsby](https://lifestyle.allwomenstalk.com/life-lessons-you-can-learn-from-the-great-gatsby/)
+- [my 16 years old self](https://inspiration.allwomenstalk.com/things-id-tell-my-16-year-old-self/)
 - [7 Reasons Never to Lie to Your Teen ...](https://parenting.allwomenstalk.com/7-reasons-never-to-lie-to-your-teen/)
 - [7 Things Parents Should Know ...](https://parenting.allwomenstalk.com/7-things-parents-should-know/)
 

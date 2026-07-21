@@ -3,7 +3,7 @@ title: "5 Things Parents of Teens Can Totally Relate to ..."
 description: "They Catch Something like the Flu Called....Laziness; Their Lives Are Soooooo Dramatic; All of a Sudden You Are so Old...and Lame; They Eat Everything; They Aren’t Little Anymore; More ..."
 url: "https://parenting.allwomenstalk.com/things-parents-of-teens-can-totally-relate-to/"
 category: "parenting"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 5 Things Parents of Teens Can Totally Relate to ...
@@ -60,16 +60,16 @@ So what are some of the reasons your teens suck? There are a ton of them so tell
 
 ## Related Posts
 
-- [home training](https://parenting.allwomenstalk.com/the-importance-of-child-training/)
-- [spanking alternatives](https://parenting.allwomenstalk.com/alternatives-to-spanking-to-discipline-your-child/)
 - [potty training guide for parents](https://parenting.allwomenstalk.com/tips-for-potty-training/)
+- [potty training japan](https://parenting.allwomenstalk.com/tips-for-potty-training-2/)
+- [children believe](https://parenting.allwomenstalk.com/should-children-believe-in-santa-claus/)
+- [spanking alternatives](https://parenting.allwomenstalk.com/alternatives-to-spanking-to-discipline-your-child/)
 - [taurus babies](https://parenting.allwomenstalk.com/parenting-tips-for-your-childs-zodiac-sign/)
+- [overprotective parents in your 20s](https://teen.allwomenstalk.com/how-to-gain-your-freedom-from-overprotective-parents/)
+- [home training](https://parenting.allwomenstalk.com/the-importance-of-child-training/)
 - [still can't sleep on christmas eve](https://parenting.allwomenstalk.com/tips-to-get-your-kids-to-go-to-sleep-on-christmas-eve/)
 - [what to do with your mom at home](https://lifestyle.allwomenstalk.com/things-you-should-do-with-your-mom/)
-- [children believe](https://parenting.allwomenstalk.com/should-children-believe-in-santa-claus/)
 - [instill in](https://parenting.allwomenstalk.com/life-lessons-to-instill-in-your-children/)
-- [potty training japan](https://parenting.allwomenstalk.com/tips-for-potty-training-2/)
-- [overprotective parents in your 20s](https://teen.allwomenstalk.com/how-to-gain-your-freedom-from-overprotective-parents/)
 - [7 Problems Teen Moms Face ...](https://love.allwomenstalk.com/7-problems-teen-moms-face/)
 - [10 Things Every New Parent Should Know ...](https://allwomenstalk.com/10-things-every-new-parent-should-know/)
 

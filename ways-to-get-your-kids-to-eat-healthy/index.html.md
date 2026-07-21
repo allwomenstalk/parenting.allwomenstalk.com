@@ -3,7 +3,7 @@ title: "9 Ways to Get Your Kids to Eat Healthy ..."
 description: "Be Consistent; Set a Good Example; Take Your Children Grocery Shopping; Make Breakfast Every Morning; Avoid Foods That Cater to Kids; More ..."
 url: "https://parenting.allwomenstalk.com/ways-to-get-your-kids-to-eat-healthy/"
 category: "parenting"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 9 Ways to Get Your Kids to Eat Healthy ...

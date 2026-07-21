@@ -3,7 +3,7 @@ title: "Do You Have a Narcissistic Parent? Here Are 7 Ways to Deal ..."
 description: "They Have a Problem; Support Elsewhere; Don't Overcompensate; Recognise Their Tactics; Not Always Right; More ..."
 url: "https://parenting.allwomenstalk.com/do-you-have-a-narcissistic-parent-here-are-ways-to-deal/"
 category: "parenting"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # Do You Have a Narcissistic Parent? Here Are 7 Ways to Deal ...
@@ -42,16 +42,16 @@ Narcissistic parents can do a lot of damage to their children. They may also tar
 
 ## Related Posts
 
-- [Here Are the 7 Politest Ways to Break up with Some...](https://love.allwomenstalk.com/here-are-the-politest-ways-to-break-up-with-someone/)
-- [Here's How to Deal with Annoying Co-workers ...](https://money.allwomenstalk.com/heres-how-to-deal-with-annoying-co-workers/)
-- [10 Worst Ways to Resolve a Fight with Your Girlfri...](https://funny.allwomenstalk.com/worst-ways-to-resolve-a-fight-with-your-girlfriend/)
-- [coworker passive aggressive](https://money.allwomenstalk.com/ways-to-deal-with-passive-aggressive-co-workers/)
-- [What to do when You're Body Shamed ...](https://inspiration.allwomenstalk.com/what-to-do-when-youre-body-shamed/)
 - [How to Make Friends if You're Not the "Popular" Ty...](https://inspiration.allwomenstalk.com/readerknows-how-to-make-friends-if-youre-not-the-popular-type/)
-- [Dealing with Passive, Aggressive Family, Friends a...](https://inspiration.allwomenstalk.com/dealing-with-passive-aggressive-family-friends-and-others/)
+- [Here's How to Deal with Annoying Co-workers ...](https://money.allwomenstalk.com/heres-how-to-deal-with-annoying-co-workers/)
 - [7 Ways to Handle Competitive Co-Workers ...](https://money.allwomenstalk.com/ways-to-handle-competitive-co-workers/)
 - [7 Ways to Deal with the Chronic Complainer in Your...](https://inspiration.allwomenstalk.com/ways-to-deal-with-the-chronic-complainer-in-your-life/)
+- [Dealing with Passive, Aggressive Family, Friends a...](https://inspiration.allwomenstalk.com/dealing-with-passive-aggressive-family-friends-and-others/)
+- [Here Are the 7 Politest Ways to Break up with Some...](https://love.allwomenstalk.com/here-are-the-politest-ways-to-break-up-with-someone/)
 - [How to Make Peace with the Mean Girls in Your Work...](https://money.allwomenstalk.com/how-to-make-peace-with-the-mean-girls-in-your-workplace/)
+- [What to do when You're Body Shamed ...](https://inspiration.allwomenstalk.com/what-to-do-when-youre-body-shamed/)
+- [coworker passive aggressive](https://money.allwomenstalk.com/ways-to-deal-with-passive-aggressive-co-workers/)
+- [10 Worst Ways to Resolve a Fight with Your Girlfri...](https://funny.allwomenstalk.com/worst-ways-to-resolve-a-fight-with-your-girlfriend/)
 - [7 Tips on Dealing with Controlling Parents ...](https://allwomenstalk.com/7-tips-on-dealing-with-controlling-parents/)
 - [7 Ways to Cope when You Can't Get along with Someo...](https://allwomenstalk.com/7-ways-to-cope-when-you-cant-get-along-with-someone/)
 

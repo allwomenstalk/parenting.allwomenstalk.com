@@ -3,7 +3,7 @@ title: "7 Valentine-Themed Animal Crafts for Kids ..."
 description: "Heart Bunny; Love Bug; Heart Fish; Heart Elephant; A Heart Mouse; More ..."
 url: "https://parenting.allwomenstalk.com/valentine-themed-animal-crafts-for-kids/"
 category: "parenting"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 7 Valentine\-Themed Animal Crafts for Kids ...
@@ -30,7 +30,7 @@ Make a super sweet and super lovey elephant craft out of hearts. For this craft,
 
 Nobody will be jumping on the table and screeching when they see this sweet little heart-shaped mouse craft. This one is super simple. You just need to cut out a medium- to large-sized heart and glue some googly eyes to the center. Draw a nose with a pink marker or crayon on the tip of the heart and then cut out some whiskers from black yarn and glue them onto either side of the nose. Easy peasy!
 
-## 6. **Valentine Giraffe**
+## 6. Valentine Giraffe
 
 Make a giraffe that looks like it got bit by a love bug. Print out a blackline picture of a giraffe and let kids put the spots on it. Instead of spots, however, have them draw hearts or use heart-shaped stickers as the spots.
 
@@ -42,16 +42,16 @@ You can use these heart-shaped animals as decorations for your house, or your ki
 
 ## Related Posts
 
+- [crafts with thread](https://diy.allwomenstalk.com/beautifully-creative-thread-spool-craft-projects/)
+- [wedding drink stirrers](https://diy.allwomenstalk.com/charming-ways-to-make-diy-cocktail-stirrers/)
 - [game of thrones pumpkin carving](https://diy.allwomenstalk.com/amazing-game-of-thrones-craft-projects/)
-- [plates diy](https://diy.allwomenstalk.com/lovely-diy-decorative-plates/)
-- [paper mobile diy](https://diy.allwomenstalk.com/cute-diy-rain-cloud-mobiles/)
-- [easter decorations ideas](https://diy.allwomenstalk.com/easter-decoration-ideas/)
 - [diy wire spool holder](https://diy.allwomenstalk.com/cool-and-clever-cable-spool-diy-projects/)
 - [easy penny drawing](https://diy.allwomenstalk.com/amazingly-cool-penny-crafts/)
+- [paper mobile diy](https://diy.allwomenstalk.com/cute-diy-rain-cloud-mobiles/)
+- [plates diy](https://diy.allwomenstalk.com/lovely-diy-decorative-plates/)
 - [cool crafts for teen](https://diy.allwomenstalk.com/fashion-crafts-for-teens/)
-- [crafts with thread](https://diy.allwomenstalk.com/beautifully-creative-thread-spool-craft-projects/)
 - [craft with plastic spoons](https://diy.allwomenstalk.com/sensational-plastic-spoon-craft-projects/)
-- [wedding drink stirrers](https://diy.allwomenstalk.com/charming-ways-to-make-diy-cocktail-stirrers/)
+- [easter decorations ideas](https://diy.allwomenstalk.com/easter-decoration-ideas/)
 - [7 Great Halloween Crafts for Kids ...](https://allwomenstalk.com/7-great-halloween-crafts-for-kids/)
 - [7 Halloween Crafts to do with Your Child ...](https://allwomenstalk.com/7-halloween-crafts-to-do-with-your-child/)
 

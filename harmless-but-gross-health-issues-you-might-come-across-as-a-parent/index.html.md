@@ -3,7 +3,7 @@ title: "7 Harmless, but Gross, Health Issues You Might Come across as a Parent .
 description: "Pinkeye; Warts; Lice; Pinworms; Ringworm; More ..."
 url: "https://parenting.allwomenstalk.com/harmless-but-gross-health-issues-you-might-come-across-as-a-parent/"
 category: "parenting"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 7 Harmless, but Gross, Health Issues You Might Come across as a Parent ...
@@ -43,12 +43,12 @@ Are you grossed out yet? No one ever said that having kids was going to be all r
 ## Related Posts
 
 - [7 Lessons to Teach Your Daughter about Childhood F...](https://parenting.allwomenstalk.com/lessons-to-teach-your-daughter-about-childhood-friendships/)
-- [7 Fun Ways to Teach Your Child to Read ...](https://parenting.allwomenstalk.com/fun-ways-to-teach-your-child-to-read/)
 - [7 Steps to Get Your Child Organized ...](https://parenting.allwomenstalk.com/steps-to-get-your-child-organized/)
-- [7 Creative Ways to Get Your Child to Love Reading ...](https://parenting.allwomenstalk.com/creative-ways-to-get-your-child-to-love-reading/)
 - [11 Fun Ways to Introduce Your Child to New Culture...](https://parenting.allwomenstalk.com/fun-ways-to-introduce-your-child-to-new-cultures/)
+- [7 Creative Ways to Get Your Child to Love Reading ...](https://parenting.allwomenstalk.com/creative-ways-to-get-your-child-to-love-reading/)
 - [7 Ways Parents Can Prevent Eating Disorders ...](https://parenting.allwomenstalk.com/ways-parents-can-prevent-eating-disorders/)
 - [7 Way to Get Your Child to Exercise and like It .....](https://parenting.allwomenstalk.com/way-to-get-your-child-to-exercise-and-like-it/)
+- [7 Fun Ways to Teach Your Child to Read ...](https://parenting.allwomenstalk.com/fun-ways-to-teach-your-child-to-read/)
 - [7 Things to Know about Montessori Schools if You A...](https://parenting.allwomenstalk.com/things-to-know-about-montessori-schools-if-you-are-considering-one/)
 - [7 Hilarious Ways to Shock Your Kids ...](https://funny.allwomenstalk.com/hilarious-ways-to-shock-your-kids/)
 - [7 Tips to Help Your Child Overcome Fear of Dentist...](https://parenting.allwomenstalk.com/tips-to-help-your-child-overcome-fear-of-dentists/)
