@@ -3,7 +3,7 @@ title: "7 Questions to Ask Your Child's Teacher at Open House ..."
 description: "“is Their Year off to a Good Start?”; “do You See Any Areas of Concern?”; “How Can We Best Support Them at Home?”; “What Are Their Strong Points?”; “Are They Making Friends?”; More ..."
 url: "https://parenting.allwomenstalk.com/questions-to-ask-your-childs-teacher-at-open-house/"
 category: "parenting"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # 7 Questions to Ask Your Child's Teacher at Open House ...
@@ -42,16 +42,16 @@ Open house is very important to give you insight on how your child's school year
 
 ## Related Posts
 
-- [weird name spellings](https://parenting.allwomenstalk.com/reasons-to-be-cautious-about-giving-your-child-an-unusual-name/)
-- [my kids are lazy](https://parenting.allwomenstalk.com/ways-to-deal-when-your-child-is-lazy/)
-- [plane carseat](https://travel.allwomenstalk.com/important-reasons-to-take-your-childs-car-seat-on-a-plane/)
-- [7 identical twins](https://parenting.allwomenstalk.com/tips-for-encouraging-individuality-in-twins/)
-- [teenage attitudes](https://parenting.allwomenstalk.com/creative-and-successful-ways-of-dealing-with-teenage-attitude/)
 - [spanking at work](https://parenting.allwomenstalk.com/alternatives-to-spanking-that-work/)
+- [my kids are lazy](https://parenting.allwomenstalk.com/ways-to-deal-when-your-child-is-lazy/)
 - [why do i hate studying so much](https://parenting.allwomenstalk.com/ways-to-encourage-a-child-who-hates-studying/)
-- [woman with multiple baby fathers](https://parenting.allwomenstalk.com/reasons-not-to-be-ashamed-if-your-children-have-different-fathers/)
+- [plane carseat](https://travel.allwomenstalk.com/important-reasons-to-take-your-childs-car-seat-on-a-plane/)
+- [teenage attitudes](https://parenting.allwomenstalk.com/creative-and-successful-ways-of-dealing-with-teenage-attitude/)
 - [how to start a babysitting service](https://money.allwomenstalk.com/simple-ways-to-start-your-own-babysitting-business/)
+- [7 identical twins](https://parenting.allwomenstalk.com/tips-for-encouraging-individuality-in-twins/)
 - [spend time with grandparents quotes](https://parenting.allwomenstalk.com/reasons-your-kids-should-spend-time-with-their-grandparents/)
+- [woman with multiple baby fathers](https://parenting.allwomenstalk.com/reasons-not-to-be-ashamed-if-your-children-have-different-fathers/)
+- [weird name spellings](https://parenting.allwomenstalk.com/reasons-to-be-cautious-about-giving-your-child-an-unusual-name/)
 - [Top 7 Things to Teach Your Children ...](https://parenting.allwomenstalk.com/top-7-things-to-teach-your-children/)
 - [7 Tips to Improve Your Kid's Grades ...](https://parenting.allwomenstalk.com/tips-to-improve-your-kids-grades/)
 
