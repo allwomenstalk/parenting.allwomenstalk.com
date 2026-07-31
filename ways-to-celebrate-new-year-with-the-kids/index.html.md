@@ -42,16 +42,16 @@ I’d have loved to experience some of these ways to celebrate the New Year when
 
 ## Related Posts
 
-- [7 Themes for the Best Birthday Ever ...](https://lifestyle.allwomenstalk.com/themes-for-the-best-birthday-ever/)
-- [7 Fun Winter Break Adventures for You and Your BFF...](https://teen.allwomenstalk.com/fun-winter-break-adventures-for-you-and-your-bff/)
-- [Exciting 🤗 Things to do in New York at Easter ...](https://travel.allwomenstalk.com/theres-nothing-like-easter-weekend-in-new-york/)
-- [funniest online games](https://funny.allwomenstalk.com/free-funny-online-games-to-play-right-away/)
-- [nail inspro](https://inspiration.allwomenstalk.com/inspro-for-a-rainy-day-things-to-do-instead-of-bitchin-about-the-weather/)
-- [7 Ways to Celebrate the Holidays with Presence Not...](https://inspiration.allwomenstalk.com/ways-to-celebrate-the-holidays-with-presence-not-presents/)
-- [things to do with boyfriend](https://love.allwomenstalk.com/things-thatre-more-fun-when-you-do-them-with-your-boyfriend/)
-- [Have an Egg-cellent Easter with These Fun Ideas fo...](https://parenting.allwomenstalk.com/have-an-egg-cellent-easter-with-these-fun-ideas-for-the-family/)
-- [what things to do on christmas eve](https://lifestyle.allwomenstalk.com/simple-cozy-things-to-do-on-christmas-eve/)
 - [11 Awesome Ideas to Add to Your Couple's Bucket Li...](https://love.allwomenstalk.com/awesome-ideas-to-add-to-your-couples-bucket-list/)
+- [what things to do on christmas eve](https://lifestyle.allwomenstalk.com/simple-cozy-things-to-do-on-christmas-eve/)
+- [Have an Egg-cellent Easter with These Fun Ideas fo...](https://parenting.allwomenstalk.com/have-an-egg-cellent-easter-with-these-fun-ideas-for-the-family/)
+- [7 Themes for the Best Birthday Ever ...](https://lifestyle.allwomenstalk.com/themes-for-the-best-birthday-ever/)
+- [nail inspro](https://inspiration.allwomenstalk.com/inspro-for-a-rainy-day-things-to-do-instead-of-bitchin-about-the-weather/)
+- [things to do with boyfriend](https://love.allwomenstalk.com/things-thatre-more-fun-when-you-do-them-with-your-boyfriend/)
+- [Exciting 🤗 Things to do in New York at Easter ...](https://travel.allwomenstalk.com/theres-nothing-like-easter-weekend-in-new-york/)
+- [7 Ways to Celebrate the Holidays with Presence Not...](https://inspiration.allwomenstalk.com/ways-to-celebrate-the-holidays-with-presence-not-presents/)
+- [funniest online games](https://funny.allwomenstalk.com/free-funny-online-games-to-play-right-away/)
+- [7 Fun Winter Break Adventures for You and Your BFF...](https://teen.allwomenstalk.com/fun-winter-break-adventures-for-you-and-your-bff/)
 - [7 Fun Ways to Keep the Kids Entertained on a Holid...](https://parenting.allwomenstalk.com/fun-ways-to-keep-the-kids-entertained-on-a-holiday/)
 - [7 Ways to Entertain Your Kids This Summer ...](https://allwomenstalk.com/7-ways-to-entertain-your-kids-this-summer/)
 

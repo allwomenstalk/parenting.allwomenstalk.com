@@ -44,15 +44,15 @@ I think Ms. Sandler lets us know that it’s okay to have an only child and in s
 
 ## Related Posts
 
-- [how can i help my community as a kid](https://parenting.allwomenstalk.com/ways-children-can-volunteer-in-their-community/)
+- [apps to help kids talk](https://apps.allwomenstalk.com/best-apps-to-teach-your-child-to-read/)
 - [babysitting tips and tricks](https://money.allwomenstalk.com/fun-and-simple-babysitting-tips-that-will-make-you-a-pro/)
 - [2 year old chores](https://parenting.allwomenstalk.com/chores-your-2-year-old-can-help-with/)
+- [annoying tv shows](https://parenting.allwomenstalk.com/least-annoying-kid-shows-that-will-actually-teach-your-child-something/)
+- [mom contact](https://parenting.allwomenstalk.com/clever-and-thoughtful-ways-to-connect-with-your-mom/)
+- [how can i help my community as a kid](https://parenting.allwomenstalk.com/ways-children-can-volunteer-in-their-community/)
 - [fraternal twins](https://parenting.allwomenstalk.com/tips-for-raising-fraternal-twins/)
 - [losing a parent you weren't close to quotes](https://inspiration.allwomenstalk.com/ways-to-cope-after-losing-a-parent-at-a-very-young-age/)
 - [why is my baby licking the floor](https://parenting.allwomenstalk.com/things-i-learned-from-my-1-year-old/)
-- [mom contact](https://parenting.allwomenstalk.com/clever-and-thoughtful-ways-to-connect-with-your-mom/)
-- [annoying tv shows](https://parenting.allwomenstalk.com/least-annoying-kid-shows-that-will-actually-teach-your-child-something/)
-- [apps to help kids talk](https://apps.allwomenstalk.com/best-apps-to-teach-your-child-to-read/)
 - [babysitter cancelled last minute](https://parenting.allwomenstalk.com/interesting-things-your-babysitter-will-never-tell-you/)
 - [8 Reasons Why I Love Being a Mom ...](https://parenting.allwomenstalk.com/8-reasons-why-i-love-being-a-mom/)
 - [7 Advantages of Having Twins ...](https://parenting.allwomenstalk.com/7-advantages-of-having-twins/)

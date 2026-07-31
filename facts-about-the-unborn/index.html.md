@@ -45,15 +45,15 @@ Top Photo Credit: [sparky05](https://www.flickr.com/photos/sparkys_joint/2233203
 ## Related Posts
 
 - [is salvia the same as sage](https://gardening.allwomenstalk.com/5-facts-on-salvia/)
-- [theories about ghosts](https://paranormal.allwomenstalk.com/8-interesting-theories-about-ghosts/)
-- [7 Weird Pregnancy Facts ...](https://parenting.allwomenstalk.com/7-weird-pregnancy-facts/)
-- [midwife facts](https://parenting.allwomenstalk.com/facts-about-midwifery/)
-- [7 Facts about Cats ...](https://paranormal.allwomenstalk.com/7-facts-about-cats/)
+- [10 Interesting Fruit Facts to Know ...](https://diet.allwomenstalk.com/interesting-fruit-facts-to-know/)
 - [adrienne frantz](https://celebs.allwomenstalk.com/7-facts-on-adrienne-frantz/)
 - [5 Paranormal Definitions You Should Know …](https://paranormal.allwomenstalk.com/5-paranormal-definitions-you-should-know/)
-- [anole marriage](https://gardening.allwomenstalk.com/5-cool-facts-on-anoles/)
+- [theories about ghosts](https://paranormal.allwomenstalk.com/8-interesting-theories-about-ghosts/)
+- [7 Facts about Cats ...](https://paranormal.allwomenstalk.com/7-facts-about-cats/)
+- [7 Weird Pregnancy Facts ...](https://parenting.allwomenstalk.com/7-weird-pregnancy-facts/)
+- [midwife facts](https://parenting.allwomenstalk.com/facts-about-midwifery/)
 - [interesting facts about christmas trees](https://gardening.allwomenstalk.com/5-facts-on-the-christmas-tree/)
-- [10 Interesting Fruit Facts to Know ...](https://diet.allwomenstalk.com/interesting-fruit-facts-to-know/)
+- [anole marriage](https://gardening.allwomenstalk.com/5-cool-facts-on-anoles/)
 - [5 Facts on Vampires ...](https://twilight.allwomenstalk.com/5-facts-on-vampires/)
 - [7 Facts on the United States ...](https://travel.allwomenstalk.com/7-facts-on-the-united-states/)
 

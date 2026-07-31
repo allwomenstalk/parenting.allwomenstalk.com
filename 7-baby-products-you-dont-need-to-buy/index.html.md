@@ -44,16 +44,16 @@ Top Photo Credit: _Ashlee Butanis_
 
 ## Related Posts
 
-- [pregnancy nine months](https://parenting.allwomenstalk.com/facts-for-the-nine-months-youre-pregnant/)
-- [being a teenage mom](https://parenting.allwomenstalk.com/9-tips-for-real-teen-moms/)
-- [how to prepare for baby arrival](https://parenting.allwomenstalk.com/ways-to-get-ready-for-your-babys-arrival/)
-- [when to buy a crib](https://parenting.allwomenstalk.com/7-things-to-consider-before-buying-a-baby-crib/)
 - [best books on pregnancy and parenting](https://parenting.allwomenstalk.com/8-great-books-for-pregnant-moms/)
-- [advice for stay at home moms](https://parenting.allwomenstalk.com/8-great-tips-for-stay-at-home-moms/)
-- [the best exercises for pregnant women](https://parenting.allwomenstalk.com/best-exercises-for-pregnant-women/)
 - [7 Most Popular Pregnancy Myths ...](https://parenting.allwomenstalk.com/7-most-popular-pregnancy-myths/)
-- [7 Pregnancy Facts You Should Know ...](https://parenting.allwomenstalk.com/pregnancy-facts-you-should-know/)
+- [advice for stay at home moms](https://parenting.allwomenstalk.com/8-great-tips-for-stay-at-home-moms/)
+- [how to prepare for baby arrival](https://parenting.allwomenstalk.com/ways-to-get-ready-for-your-babys-arrival/)
+- [the best exercises for pregnant women](https://parenting.allwomenstalk.com/best-exercises-for-pregnant-women/)
+- [pregnancy nine months](https://parenting.allwomenstalk.com/facts-for-the-nine-months-youre-pregnant/)
 - [10 facts about breastfeeding](https://parenting.allwomenstalk.com/10-facts-on-breast-feeding/)
+- [7 Pregnancy Facts You Should Know ...](https://parenting.allwomenstalk.com/pregnancy-facts-you-should-know/)
+- [being a teenage mom](https://parenting.allwomenstalk.com/9-tips-for-real-teen-moms/)
+- [when to buy a crib](https://parenting.allwomenstalk.com/7-things-to-consider-before-buying-a-baby-crib/)
 - [7 Toys Every Child Should Have ...](https://allwomenstalk.com/7-toys-every-child-should-have/)
 - [7 Items You Shouldn't Buy at the Grocery Store ...](https://allwomenstalk.com/7-items-you-shouldnt-buy-at-the-grocery-store/)
 

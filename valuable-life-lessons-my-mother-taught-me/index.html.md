@@ -42,16 +42,16 @@ So many different people can provide us with both inspiration and valuable life 
 
 ## Related Posts
 
-- [life changing experiences](https://inspiration.allwomenstalk.com/life-changing-experiences-you-should-be-open-to-trying/)
-- [kelly and jane mcgonigal](https://lifestyle.allwomenstalk.com/ted-talks-you-should-definitely-check-out/)
-- [you don't have to be ashamed](https://lifestyle.allwomenstalk.com/things-you-should-not-be-ashamed-of/)
-- [sister wives merchandise](https://movies.allwomenstalk.com/thought-provoking-lessons-learned-from-sister-wives/)
-- [people with glasses on](https://lifestyle.allwomenstalk.com/things-only-people-with-glasses-can-relate-to/)
-- [what would i tell my 15 years old self](https://teen.allwomenstalk.com/things-i-wish-i-could-tell-my-15-year-old-self/)
-- [paris color riche le stylo eye unforgettable lilac](https://movies.allwomenstalk.com/things-breaking-bad-has-taught-us/)
-- [toughest life lessons](https://inspiration.allwomenstalk.com/difficult-life-lessons-im-glad-to-have-learned/)
-- [henry ford when everything seems](https://inspiration.allwomenstalk.com/things-to-remember-when-everything-seems-to-be-going-wrong/)
 - [how to join the real world](https://lifestyle.allwomenstalk.com/important-things-that-you-only-learn-in-the-real-world/)
+- [sister wives merchandise](https://movies.allwomenstalk.com/thought-provoking-lessons-learned-from-sister-wives/)
+- [life changing experiences](https://inspiration.allwomenstalk.com/life-changing-experiences-you-should-be-open-to-trying/)
+- [henry ford when everything seems](https://inspiration.allwomenstalk.com/things-to-remember-when-everything-seems-to-be-going-wrong/)
+- [what would i tell my 15 years old self](https://teen.allwomenstalk.com/things-i-wish-i-could-tell-my-15-year-old-self/)
+- [kelly and jane mcgonigal](https://lifestyle.allwomenstalk.com/ted-talks-you-should-definitely-check-out/)
+- [toughest life lessons](https://inspiration.allwomenstalk.com/difficult-life-lessons-im-glad-to-have-learned/)
+- [people with glasses on](https://lifestyle.allwomenstalk.com/things-only-people-with-glasses-can-relate-to/)
+- [you don't have to be ashamed](https://lifestyle.allwomenstalk.com/things-you-should-not-be-ashamed-of/)
+- [paris color riche le stylo eye unforgettable lilac](https://movies.allwomenstalk.com/things-breaking-bad-has-taught-us/)
 - [Top 7 Things to Teach Your Children ...](https://parenting.allwomenstalk.com/top-7-things-to-teach-your-children/)
 - [7 Life Lessons to Teach Your Son ...](https://parenting.allwomenstalk.com/7-life-lessons-to-teach-your-son/)
 

@@ -42,16 +42,16 @@ Do you have a fish tank? Are these reasons enough to make you want one? I promis
 
 ## Related Posts
 
+- [homework meltdown](https://parenting.allwomenstalk.com/tips-to-get-through-homework-time-without-a-meltdown-from-you-or-your-kid/)
+- [stay connected to family](https://lifestyle.allwomenstalk.com/ways-to-stay-connected-with-your-family/)
+- [negotiate with parents](https://teen.allwomenstalk.com/helpful-tips-for-negotiating-with-your-parents/)
 - [how to love studying everyday](https://parenting.allwomenstalk.com/ways-to-help-your-kids-to-love-studying/)
 - [don't fence me in dance moms](https://parenting.allwomenstalk.com/things-to-think-about-before-enrolling-your-daughter-in-ballet/)
-- [childhood myths told by parents](https://parenting.allwomenstalk.com/creepy-myths-that-might-be-scaring-your-kids/)
-- [negotiate with parents](https://teen.allwomenstalk.com/helpful-tips-for-negotiating-with-your-parents/)
-- [make difference in the world](https://teen.allwomenstalk.com/ways-teens-can-make-a-difference-in-the-world/)
 - [tween tumblr](https://parenting.allwomenstalk.com/ways-to-tell-that-your-child-has-entered-the-terrible-tweens/)
-- [good habits model](https://parenting.allwomenstalk.com/good-habits-for-your-children-that-you-should-model-every-day/)
+- [make difference in the world](https://teen.allwomenstalk.com/ways-teens-can-make-a-difference-in-the-world/)
 - [signs of poor parenting](https://parenting.allwomenstalk.com/sure-ways-to-spot-bad-parenting/)
-- [stay connected to family](https://lifestyle.allwomenstalk.com/ways-to-stay-connected-with-your-family/)
-- [homework meltdown](https://parenting.allwomenstalk.com/tips-to-get-through-homework-time-without-a-meltdown-from-you-or-your-kid/)
+- [childhood myths told by parents](https://parenting.allwomenstalk.com/creepy-myths-that-might-be-scaring-your-kids/)
+- [good habits model](https://parenting.allwomenstalk.com/good-habits-for-your-children-that-you-should-model-every-day/)
 - [7 Reasons to Volunteer for Your Kids School ...](https://allwomenstalk.com/7-reasons-to-volunteer-for-your-kids-school/)
 - [7 Reasons to Have a Child ...](https://allwomenstalk.com/7-reasons-to-have-a-child/)
 

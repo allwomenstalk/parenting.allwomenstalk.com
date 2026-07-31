@@ -42,16 +42,16 @@ How will you celebrate Valentine’s Day this year?
 
 ## Related Posts
 
-- [deserve love quotes](https://love.allwomenstalk.com/yes-you-deserve-love/)
-- [Love Stories to Make You Say "Awww" This Valentine...](https://books.allwomenstalk.com/love-stories-to-fawn-over-on-valentines-day/)
 - [funny ikea instructions](https://funny.allwomenstalk.com/you-have-to-see-ikeas-silly-but-sweet-love-manual/)
-- [Short Story: the Perfect Proposal ...](https://love.allwomenstalk.com/short-story-the-perfect-proposal/)
-- [Short Story: Love Alert (Part 4) ...](https://love.allwomenstalk.com/short-story-love-alert-part-4/)
-- [Check out the Special Valentine's Menu at Starbuck...](https://food.allwomenstalk.com/the-secret-valentines-menu-at-starbucks/)
-- [Short Story: Love Alert (Part 3) ...](https://love.allwomenstalk.com/short-story-love-alert-part-3/)
-- [YA Short Story : Love Alert (Part 1) ...](https://love.allwomenstalk.com/ya-short-story-love-alert-part-1/)
 - [make out sessions](https://love.allwomenstalk.com/kisses-that-will-fire-up-your-makeout-session/)
+- [Short Story: Love Alert (Part 3) ...](https://love.allwomenstalk.com/short-story-love-alert-part-3/)
+- [deserve love quotes](https://love.allwomenstalk.com/yes-you-deserve-love/)
+- [Check out the Special Valentine's Menu at Starbuck...](https://food.allwomenstalk.com/the-secret-valentines-menu-at-starbucks/)
+- [Short Story: the Perfect Proposal ...](https://love.allwomenstalk.com/short-story-the-perfect-proposal/)
+- [YA Short Story : Love Alert (Part 1) ...](https://love.allwomenstalk.com/ya-short-story-love-alert-part-1/)
 - [The Best Places to Say I Love You ...](https://travel.allwomenstalk.com/the-best-places-to-say-i-love-you/)
+- [Short Story: Love Alert (Part 4) ...](https://love.allwomenstalk.com/short-story-love-alert-part-4/)
+- [Love Stories to Make You Say "Awww" This Valentine...](https://books.allwomenstalk.com/love-stories-to-fawn-over-on-valentines-day/)
 - [19 Creative Ways to Celebrate Valentine's Day ...](https://love.allwomenstalk.com/creative-ways-to-celebrate-valentines-day/)
 - [Special Things for Valentines Day ...](https://allwomenstalk.com/special-things-for-valentines-day/)
 

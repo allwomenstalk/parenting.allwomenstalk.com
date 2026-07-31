@@ -40,16 +40,16 @@ It seems that kids are not as active as they once were, but keeping active is im
 
 ## Related Posts
 
+- [beach reads 2018](https://books.allwomenstalk.com/best-beach-reads-for-summer/)
+- [when summer ends book](https://lifestyle.allwomenstalk.com/things-to-do-before-summer-ends/)
+- [fun things to do in summer with friends](https://lifestyle.allwomenstalk.com/fun-things-to-do-with-friends/)
+- [8 glasses water](https://food.allwomenstalk.com/infused-water-recipes-for-summer/)
+- [green pea pizza](https://food.allwomenstalk.com/green-pizza-recipes-perfect-for-summer/)
 - [best summer jams](https://music.allwomenstalk.com/best-summer-songs/)
 - [unusual things to visit in london](https://travel.allwomenstalk.com/unusual-things-to-do-in-london/)
-- [green pea pizza](https://food.allwomenstalk.com/green-pizza-recipes-perfect-for-summer/)
-- [8 glasses water](https://food.allwomenstalk.com/infused-water-recipes-for-summer/)
-- [how to cool off quickly](https://health.allwomenstalk.com/ways-to-cool-off-on-hot-days/)
 - [site:food.allwomenstalk.com](https://food.allwomenstalk.com/vegan-recipes-for-summer/)
-- [when summer ends book](https://lifestyle.allwomenstalk.com/things-to-do-before-summer-ends/)
+- [how to cool off quickly](https://health.allwomenstalk.com/ways-to-cool-off-on-hot-days/)
 - [summer camps for adults](https://travel.allwomenstalk.com/summer-camps-for-adults/)
-- [beach reads 2018](https://books.allwomenstalk.com/best-beach-reads-for-summer/)
-- [fun things to do in summer with friends](https://lifestyle.allwomenstalk.com/fun-things-to-do-with-friends/)
 - [7 Ways to Get in Shape for Summer ...](https://weightloss.allwomenstalk.com/ways-to-get-in-shape-for-summer/)
 - [8 Fun Ways to Exercise This Summer ...](https://weightloss.allwomenstalk.com/fun-ways-to-exercise-this-summer/)
 

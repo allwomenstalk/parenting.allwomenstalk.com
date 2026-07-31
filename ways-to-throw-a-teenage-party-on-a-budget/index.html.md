@@ -42,16 +42,16 @@ Finally, remember to set some ground rules! Even the best teenage party on a bud
 
 ## Related Posts
 
-- [how to make money weekends](https://money.allwomenstalk.com/ways-for-teenagers-to-make-extra-cash-on-the-weekends/)
-- [theme party for kids](https://lifestyle.allwomenstalk.com/fun-kids-birthday-party-themes/)
-- [things to do for spring break](https://lifestyle.allwomenstalk.com/things-for-teens-to-do-over-spring-break/)
-- [things to do at disney world](https://travel.allwomenstalk.com/must-do-things-at-disney-world/)
-- [be a tourist in your own city](https://travel.allwomenstalk.com/fun-ways-to-be-a-tourist-in-your-own-city/)
-- [what to get someone who is turning 30](https://lifestyle.allwomenstalk.com/brilliant-ways-to-celebrate-your-30th-birthday/)
-- [unique frat party themes](https://lifestyle.allwomenstalk.com/unique-college-party-ideas/)
-- [stylish laptop dpz](https://lifestyle.allwomenstalk.com/best-websites-to-procrastinate-with/)
-- [cheap things to do with your partner](https://love.allwomenstalk.com/cheap-fun-things-to-do-with-your-spouse/)
 - [things to do when bkred](https://lifestyle.allwomenstalk.com/fun-thing-to-do-with-the-girls/)
+- [be a tourist in your own city](https://travel.allwomenstalk.com/fun-ways-to-be-a-tourist-in-your-own-city/)
+- [how to make money weekends](https://money.allwomenstalk.com/ways-for-teenagers-to-make-extra-cash-on-the-weekends/)
+- [what to get someone who is turning 30](https://lifestyle.allwomenstalk.com/brilliant-ways-to-celebrate-your-30th-birthday/)
+- [things to do for spring break](https://lifestyle.allwomenstalk.com/things-for-teens-to-do-over-spring-break/)
+- [theme party for kids](https://lifestyle.allwomenstalk.com/fun-kids-birthday-party-themes/)
+- [stylish laptop dpz](https://lifestyle.allwomenstalk.com/best-websites-to-procrastinate-with/)
+- [unique frat party themes](https://lifestyle.allwomenstalk.com/unique-college-party-ideas/)
+- [things to do at disney world](https://travel.allwomenstalk.com/must-do-things-at-disney-world/)
+- [cheap things to do with your partner](https://love.allwomenstalk.com/cheap-fun-things-to-do-with-your-spouse/)
 - [7 Ways to Create a Budget ...](https://money.allwomenstalk.com/ways-to-create-a-budget/)
 - [7 Tips for Throwing a Dinner Party at the Last Min...](https://cooking.allwomenstalk.com/7-tips-for-throwing-a-dinner-party-at-the-last-minute/)
 

@@ -42,15 +42,15 @@ All of these skills are so important to learn before leaving high school, so the
 
 ## Related Posts
 
+- [bad time dp](https://lifestyle.allwomenstalk.com/types-of-days-youll-have-in-college/)
+- [high school myths](https://lifestyle.allwomenstalk.com/high-school-myths-you-should-debunk-today/)
 - [what should i do before school starts](https://lifestyle.allwomenstalk.com/important-things-you-must-do-before-school-starts/)
 - [dealing with homesickness in college](https://lifestyle.allwomenstalk.com/ways-to-cope-with-college-life-when-you-get-homesick/)
-- [how to survive college](https://lifestyle.allwomenstalk.com/tips-on-how-to-survive-college-move-in-day/)
-- [bad time dp](https://lifestyle.allwomenstalk.com/types-of-days-youll-have-in-college/)
-- [reasons for attending college](https://travel.allwomenstalk.com/reasons-why-you-should-consider-going-to-college-out-of-state/)
-- [don't know what to study in college](https://lifestyle.allwomenstalk.com/smart-tips-for-choosing-a-college-major-that-wont-drive-you-insane/)
 - [is life hard after high school](https://lifestyle.allwomenstalk.com/things-you-dont-think-will-happen-after-high-school-but-they-will/)
-- [high school myths](https://lifestyle.allwomenstalk.com/high-school-myths-you-should-debunk-today/)
+- [don't know what to study in college](https://lifestyle.allwomenstalk.com/smart-tips-for-choosing-a-college-major-that-wont-drive-you-insane/)
 - [hire a private tutor](https://parenting.allwomenstalk.com/things-to-consider-when-hiring-a-private-tutor/)
+- [how to survive college](https://lifestyle.allwomenstalk.com/tips-on-how-to-survive-college-move-in-day/)
+- [reasons for attending college](https://travel.allwomenstalk.com/reasons-why-you-should-consider-going-to-college-out-of-state/)
 - [have a great semester](https://lifestyle.allwomenstalk.com/must-have-back-to-school-essentials-for-a-great-semester/)
 - [7 Things You Wish You Did in School …](https://allwomenstalk.com/things-you-wish-you-did-in-school/)
 - [7 Things I Wish I Knew in High School ...](https://lifestyle.allwomenstalk.com/things-i-wish-i-knew-in-high-school/)

@@ -48,16 +48,16 @@ Top Photo Credit: _Mike and Steph Boyle_
 
 ## Related Posts
 
+- [tricks to get pregnant fast](https://parenting.allwomenstalk.com/tried-ways-to-get-pregnant-fast/)
+- [7 Things a Pregnant Woman Needs in Her Diet ...](https://parenting.allwomenstalk.com/things-a-pregnant-woman-needs-in-her-diet/)
+- [10 facts about breastfeeding](https://parenting.allwomenstalk.com/10-facts-on-breast-feeding/)
+- [best books on pregnancy and parenting](https://parenting.allwomenstalk.com/8-great-books-for-pregnant-moms/)
+- [when to buy a crib](https://parenting.allwomenstalk.com/7-things-to-consider-before-buying-a-baby-crib/)
 - [7 Pregnancy Facts You Should Know ...](https://parenting.allwomenstalk.com/pregnancy-facts-you-should-know/)
 - [the best exercises for pregnant women](https://parenting.allwomenstalk.com/best-exercises-for-pregnant-women/)
-- [when to buy a crib](https://parenting.allwomenstalk.com/7-things-to-consider-before-buying-a-baby-crib/)
-- [being a teenage mom](https://parenting.allwomenstalk.com/9-tips-for-real-teen-moms/)
-- [10 facts about breastfeeding](https://parenting.allwomenstalk.com/10-facts-on-breast-feeding/)
-- [7 Things a Pregnant Woman Needs in Her Diet ...](https://parenting.allwomenstalk.com/things-a-pregnant-woman-needs-in-her-diet/)
 - [7 Most Popular Pregnancy Myths ...](https://parenting.allwomenstalk.com/7-most-popular-pregnancy-myths/)
+- [being a teenage mom](https://parenting.allwomenstalk.com/9-tips-for-real-teen-moms/)
 - [how to introduce avocado to baby](https://parenting.allwomenstalk.com/easy-ways-to-use-avocados-as-babys-first-food/)
-- [best books on pregnancy and parenting](https://parenting.allwomenstalk.com/8-great-books-for-pregnant-moms/)
-- [tricks to get pregnant fast](https://parenting.allwomenstalk.com/tried-ways-to-get-pregnant-fast/)
 - [7 Great Tips for the Mommy-to-Be ...](https://parenting.allwomenstalk.com/7-great-tips-for-the-mommy-to-be/)
 - [8 Great Babysitting Tips ...](https://allwomenstalk.com/8-great-babysitting-tips/)
 

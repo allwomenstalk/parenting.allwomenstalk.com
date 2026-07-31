@@ -42,16 +42,16 @@ Families are about individuals, and everyone expressing themselves as such. Ther
 
 ## Related Posts
 
-- [don't let what you're good at define who you are](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-emotional-baggage-so-it-doesnt-define-you/)
-- [people in your life](https://inspiration.allwomenstalk.com/types-of-people-you-need-in-your-life-to-make-you-happy/)
+- [teenage worries](https://teen.allwomenstalk.com/top-things-teens-worry-about/)
 - [body language mistakes](https://lifestyle.allwomenstalk.com/body-language-mistakes-you-may-be-making/)
 - [knitting life](https://inspiration.allwomenstalk.com/timeless-lessons-about-life-that-knitting-taught-me/)
 - [punctual people](https://lifestyle.allwomenstalk.com/most-common-habits-of-punctual-people/)
-- [teenage worries](https://teen.allwomenstalk.com/top-things-teens-worry-about/)
-- [the youngest of the family](https://parenting.allwomenstalk.com/best-things-about-being-the-youngest/)
+- [people in your life](https://inspiration.allwomenstalk.com/types-of-people-you-need-in-your-life-to-make-you-happy/)
 - [mom was right](https://parenting.allwomenstalk.com/times-your-mother-was-right/)
-- [shadow questions to ask yourself](https://inspiration.allwomenstalk.com/profound-questions-to-ask-yourself-in-life/)
+- [don't let what you're good at define who you are](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-emotional-baggage-so-it-doesnt-define-you/)
+- [the youngest of the family](https://parenting.allwomenstalk.com/best-things-about-being-the-youngest/)
 - [misconceptions about me](https://teen.allwomenstalk.com/common-misconceptions-about-teenagers-today/)
+- [shadow questions to ask yourself](https://inspiration.allwomenstalk.com/profound-questions-to-ask-yourself-in-life/)
 - [7 Best Things about Facebook ...](https://allwomenstalk.com/7-best-things-about-facebook/)
 - [7 Health Benefits of Motherhood ...](https://parenting.allwomenstalk.com/health-benefits-of-motherhood/)
 

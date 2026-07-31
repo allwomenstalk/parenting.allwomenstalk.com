@@ -42,16 +42,16 @@ The closest I ever got to summer camp was band camp every summer, but that was h
 
 ## Related Posts
 
-- [vacation themes](https://travel.allwomenstalk.com/awesome-summer-road-trip-themes/)
-- [making the most out of summer](https://lifestyle.allwomenstalk.com/wonderful-ways-to-make-the-most-out-of-your-summer/)
-- [summer camp for single adults](https://travel.allwomenstalk.com/super-summer-camps-for-adults-for-a-vacation-with-a-difference/)
 - [zit greek drink](https://food.allwomenstalk.com/slimming-greek-yogurt-recipes/)
-- [what do you like?](https://food.allwomenstalk.com/amazing-ways-to-enjoy-yogurt/)
 - [summer birthday themes](https://lifestyle.allwomenstalk.com/ideas-for-summer-party-themes/)
 - [great summer appetizer recipes](https://food.allwomenstalk.com/summer-appetizer-ideas/)
-- [enjoying your summer](https://lifestyle.allwomenstalk.com/ways-working-people-enjoy-summer-that-you-can-try-too/)
+- [what do you like?](https://food.allwomenstalk.com/amazing-ways-to-enjoy-yogurt/)
 - [college party themes](https://lifestyle.allwomenstalk.com/memorable-home-party-themes-to-host-this-summer/)
 - [things to do at home in the summer](https://lifestyle.allwomenstalk.com/fun-things-to-do-at-home-this-summer/)
+- [making the most out of summer](https://lifestyle.allwomenstalk.com/wonderful-ways-to-make-the-most-out-of-your-summer/)
+- [enjoying your summer](https://lifestyle.allwomenstalk.com/ways-working-people-enjoy-summer-that-you-can-try-too/)
+- [summer camp for single adults](https://travel.allwomenstalk.com/super-summer-camps-for-adults-for-a-vacation-with-a-difference/)
+- [vacation themes](https://travel.allwomenstalk.com/awesome-summer-road-trip-themes/)
 - [7 Ideas to Keep Kids Occupied during Summer Break ...](https://parenting.allwomenstalk.com/7-ideas-to-keep-kids-occupied-during-summer-break/)
 - [7 Summer Activities for Bored Preschoolers ...](https://parenting.allwomenstalk.com/summer-activities-for-bored-preschoolers/)
 

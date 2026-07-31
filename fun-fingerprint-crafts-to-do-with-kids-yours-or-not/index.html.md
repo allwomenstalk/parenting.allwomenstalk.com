@@ -138,16 +138,16 @@ Which one do you plan to make with the kids you love? What other ideas can you s
 
 ## Related Posts
 
-- [widlflower cases](https://diy.allwomenstalk.com/fun-diys-to-bring-color-to-your-life/)
-- [marni grinch sweater](https://diy.allwomenstalk.com/diy-your-own-chic-holiday-sweater/)
 - [wiltshire egg timer](https://lifestyle.allwomenstalk.com/matryoshka-kitchenware-items/)
-- [simple to make christmas cards](https://diy.allwomenstalk.com/simple-diy-christmas-cards-that-are-cheap-and-personal/)
 - [crafty christmas ornaments](https://diy.allwomenstalk.com/diy-christmas-ornaments-for-the-crafty-girl/)
+- [marni grinch sweater](https://diy.allwomenstalk.com/diy-your-own-chic-holiday-sweater/)
 - [easter centerpieces diy](https://diy.allwomenstalk.com/creative-diy-easter-centerpieces-you-and-your-guests-will-love/)
-- [grace tkor](https://diy.allwomenstalk.com/christmas-diy/)
-- [hobbies.for.women](https://diy.allwomenstalk.com/empowering-hobbies-for-women/)
 - [failed highlights hair](https://hair.allwomenstalk.com/fab-diy-fixes-for-when-your-dye-job-goes-awry/)
+- [hobbies.for.women](https://diy.allwomenstalk.com/empowering-hobbies-for-women/)
+- [grace tkor](https://diy.allwomenstalk.com/christmas-diy/)
+- [widlflower cases](https://diy.allwomenstalk.com/fun-diys-to-bring-color-to-your-life/)
 - [adult rosie the riveter halloween costume](https://diy.allwomenstalk.com/cute-halloween-costumes-that-are-easy-to-put-together/)
+- [simple to make christmas cards](https://diy.allwomenstalk.com/simple-diy-christmas-cards-that-are-cheap-and-personal/)
 - [8 Free Craft Items for Kids ...](https://parenting.allwomenstalk.com/8-free-craft-items-for-kids/)
 - [Top 10 Crafts for Your Child ...](https://allwomenstalk.com/top-10-crafts-for-your-child/)
 

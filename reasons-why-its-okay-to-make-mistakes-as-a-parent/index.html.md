@@ -42,16 +42,16 @@ What are some mistakes you have overcome as a parent? What would you tell a new 
 
 ## Related Posts
 
-- [mom confronts teacher and son](https://parenting.allwomenstalk.com/tips-for-confronting-your-childs-teacher/)
 - [scary signs around the world](https://parenting.allwomenstalk.com/scary-signs-that-your-child-is-a-bully/)
-- [websites like starfall](https://parenting.allwomenstalk.com/wonderful-learning-websites-for-kids/)
-- [how to fix mother daughter relationship](https://parenting.allwomenstalk.com/tips-to-improve-your-mother-daughter-relationship/)
-- [rules in the family](https://parenting.allwomenstalk.com/must-have-family-rules-for-a-happy-home/)
-- [pet parenting tips](https://parenting.allwomenstalk.com/tips-for-introducing-your-pet-and-your-child/)
-- [how to raise an athlete](https://parenting.allwomenstalk.com/tips-for-parents-to-raise-an-olympic-athlete/)
-- [what is breaking bad age rating](https://teen.allwomenstalk.com/tips-for-breaking-bad-news-to-your-parents/)
 - [teaching kids about the environment](https://parenting.allwomenstalk.com/ways-to-teach-your-kids-to-care-about-the-environment/)
+- [websites like starfall](https://parenting.allwomenstalk.com/wonderful-learning-websites-for-kids/)
+- [how to raise an athlete](https://parenting.allwomenstalk.com/tips-for-parents-to-raise-an-olympic-athlete/)
 - [is girl scouts good for my daughter](https://parenting.allwomenstalk.com/important-reasons-why-your-child-should-join-scouts/)
+- [what is breaking bad age rating](https://teen.allwomenstalk.com/tips-for-breaking-bad-news-to-your-parents/)
+- [rules in the family](https://parenting.allwomenstalk.com/must-have-family-rules-for-a-happy-home/)
+- [how to fix mother daughter relationship](https://parenting.allwomenstalk.com/tips-to-improve-your-mother-daughter-relationship/)
+- [mom confronts teacher and son](https://parenting.allwomenstalk.com/tips-for-confronting-your-childs-teacher/)
+- [pet parenting tips](https://parenting.allwomenstalk.com/tips-for-introducing-your-pet-and-your-child/)
 - [7 Reasons to Ignore Advice on Parenting ...](https://parenting.allwomenstalk.com/7-reasons-to-ignore-advice-on-parenting/)
 - [8 Reasons Why It's Important to Teach Your Child R...](https://allwomenstalk.com/8-reasons-why-its-important-to-teach-your-child-responsibility/)
 

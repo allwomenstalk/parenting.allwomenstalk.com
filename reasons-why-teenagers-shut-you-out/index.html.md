@@ -42,16 +42,16 @@ It is hard to understand when our teenagers shut us out. What do you think? Are 
 
 ## Related Posts
 
-- [i can change him](https://love.allwomenstalk.com/reasons-why-you-shouldnt-try-to-change-him/)
-- [unattainable – vacation with mom](https://parenting.allwomenstalk.com/reasons-to-drop-the-fantasy-of-being-a-perfect-mom/)
-- [why do i always fall for the wrong guy](https://love.allwomenstalk.com/reasons-you-always-fall-for-the-wrong-guy/)
-- [i don't like being single](https://love.allwomenstalk.com/things-that-make-you-hate-being-single/)
+- [how to ask a guy to prom](https://teen.allwomenstalk.com/reasons-to-say-yes-when-he-asks-you-to-prom/)
 - [reasons people fall out of love](https://love.allwomenstalk.com/unfortunate-reason-why-people-fall-out-of-love/)
 - [paris riche stylo eye eternal sunshine](https://beauty.allwomenstalk.com/reasons-not-to-wish-you-were-beautiful/)
-- [special occasion fashion](https://fashion.allwomenstalk.com/reasons-not-to-save-items-for-special-occasions/)
-- [reasons for crying](https://lifestyle.allwomenstalk.com/reasons-why-people-cry/)
 - [my travel buddies](https://travel.allwomenstalk.com/reasons-why-some-friends-just-arent-good-travel-buddies/)
-- [how to ask a guy to prom](https://teen.allwomenstalk.com/reasons-to-say-yes-when-he-asks-you-to-prom/)
+- [unattainable – vacation with mom](https://parenting.allwomenstalk.com/reasons-to-drop-the-fantasy-of-being-a-perfect-mom/)
+- [reasons for crying](https://lifestyle.allwomenstalk.com/reasons-why-people-cry/)
+- [special occasion fashion](https://fashion.allwomenstalk.com/reasons-not-to-save-items-for-special-occasions/)
+- [why do i always fall for the wrong guy](https://love.allwomenstalk.com/reasons-you-always-fall-for-the-wrong-guy/)
+- [i can change him](https://love.allwomenstalk.com/reasons-why-you-shouldnt-try-to-change-him/)
+- [i don't like being single](https://love.allwomenstalk.com/things-that-make-you-hate-being-single/)
 - [7 Reasons Never to Lie to Your Teen ...](https://parenting.allwomenstalk.com/7-reasons-never-to-lie-to-your-teen/)
 - [7 Reasons Children do Not Want to Go to School ...](https://parenting.allwomenstalk.com/7-reasons-children-do-not-want-to-go-to-school/)
 

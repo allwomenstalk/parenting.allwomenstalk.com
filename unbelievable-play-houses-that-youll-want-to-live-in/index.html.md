@@ -56,16 +56,16 @@ I’m totally envious of today’s kids – who knew we’d get such amazing pla
 
 ## Related Posts
 
-- [what matches teal](https://lifestyle.allwomenstalk.com/trendy-ways-to-decorate-your-home-with-teal/)
-- [light up things for room](https://diy.allwomenstalk.com/ways-to-brighten-up-your-dorm-room/)
-- [decorated lanterns](https://lifestyle.allwomenstalk.com/ways-to-decorate-with-lanterns-this-year/)
-- [how to spice up your room](https://inspiration.allwomenstalk.com/simple-ways-to-spice-up-you-room-without-too-much-work/)
-- [home storage solutions](https://diy.allwomenstalk.com/ingenious-storage-solutions-every-home-needs/)
-- [mens bedroom posters](https://lifestyle.allwomenstalk.com/typical-dorm-room-posters-that-we-should-all-agree-to-stop-buying/)
 - [how to redecorate a room](https://diy.allwomenstalk.com/tips-for-redecorating-a-room-on-a-budget/)
+- [mens bedroom posters](https://lifestyle.allwomenstalk.com/typical-dorm-room-posters-that-we-should-all-agree-to-stop-buying/)
+- [how to spice up your room](https://inspiration.allwomenstalk.com/simple-ways-to-spice-up-you-room-without-too-much-work/)
+- [what matches teal](https://lifestyle.allwomenstalk.com/trendy-ways-to-decorate-your-home-with-teal/)
+- [decorated lanterns](https://lifestyle.allwomenstalk.com/ways-to-decorate-with-lanterns-this-year/)
 - [gender neutral baby themes](https://parenting.allwomenstalk.com/fantastic-gender-neutral-nursery-themes-youll-love/)
 - [dorm paintings](https://lifestyle.allwomenstalk.com/beautiful-dorm-room-wall-art-for-the-fashionista-freshman/)
 - [si scott tattoo](https://lifestyle.allwomenstalk.com/black-and-white-art-prints-to-add-to-your-home/)
+- [home storage solutions](https://diy.allwomenstalk.com/ingenious-storage-solutions-every-home-needs/)
+- [light up things for room](https://diy.allwomenstalk.com/ways-to-brighten-up-your-dorm-room/)
 - [7 Fun Places to Travel ...](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [7 Fun Beds for Your Kids ...](https://parenting.allwomenstalk.com/fun-beds-for-your-kids/)
 

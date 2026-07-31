@@ -48,16 +48,16 @@ Top Photo Credit: [ukslim](https://www.flickr.com/photos/hartnupj/186398180/)
 
 ## Related Posts
 
-- [shine for kids townsville](https://parenting.allwomenstalk.com/9-ways-to-help-your-child-shine-at-school/)
-- [7 Healthy Habits to Teach Your Children ...](https://parenting.allwomenstalk.com/7-healthy-habits-to-teach-your-children/)
-- [things we all do](https://parenting.allwomenstalk.com/30-things-many-children-like/)
-- [graduation thanks for parents](https://parenting.allwomenstalk.com/7-ways-to-thank-your-parents/)
+- [what will you teach your children](https://parenting.allwomenstalk.com/top-7-things-to-teach-your-children/)
+- [7 Tips to Get Your Kids Eating Healthy ...](https://parenting.allwomenstalk.com/7-tips-to-get-your-kids-eating-healthy/)
 - [teaching kids responsibility](https://parenting.allwomenstalk.com/7-ways-to-teach-kids-responsibility/)
 - [7 Tips on Planning a Fun Sleepover for Your Kid .....](https://parenting.allwomenstalk.com/7-tips-on-planning-a-fun-sleepover-for-your-kid/)
 - [parenting questions](https://parenting.allwomenstalk.com/parenting-questions-answered/)
 - [write any four problems that are faced by a workin...](https://parenting.allwomenstalk.com/8-horrifying-problems-faced-by-children-across-the-world/)
-- [what will you teach your children](https://parenting.allwomenstalk.com/top-7-things-to-teach-your-children/)
-- [7 Tips to Get Your Kids Eating Healthy ...](https://parenting.allwomenstalk.com/7-tips-to-get-your-kids-eating-healthy/)
+- [7 Healthy Habits to Teach Your Children ...](https://parenting.allwomenstalk.com/7-healthy-habits-to-teach-your-children/)
+- [things we all do](https://parenting.allwomenstalk.com/30-things-many-children-like/)
+- [graduation thanks for parents](https://parenting.allwomenstalk.com/7-ways-to-thank-your-parents/)
+- [shine for kids townsville](https://parenting.allwomenstalk.com/9-ways-to-help-your-child-shine-at-school/)
 - [8 Tips for Single Parents ...](https://parenting.allwomenstalk.com/8-tips-for-single-parents/)
 - [8 Ways to Motivate Your Child ...](https://parenting.allwomenstalk.com/8-ways-to-motivate-your-child/)
 

@@ -82,16 +82,16 @@ This article was written in collaboration with editor Lydia Sheehan.
 
 ## Related Posts
 
+- [rare vocabulary words](https://lifestyle.allwomenstalk.com/uncommon-words-to-add-to-your-vocabulary/)
 - [nc romeo and juliet law](https://lifestyle.allwomenstalk.com/weird-laws-in-the-united-states-thatll-make-you-laugh/)
-- [small boutique ideas](https://lifestyle.allwomenstalk.com/ridiculous-questions-you-hear-as-a-small-boutique-owner/)
-- [cliches in writing](https://lifestyle.allwomenstalk.com/overused-cliches-to-avoid-when-writing/)
-- [talkers](https://lifestyle.allwomenstalk.com/most-entertaining-types-of-talkers/)
-- [victorian english words](https://lifestyle.allwomenstalk.com/victorian-words-you-should-add-to-your-vocabulary/)
-- [how to pronounce billerica ma](https://travel.allwomenstalk.com/towns-in-massachusetts-youve-been-mispronouncing/)
 - [kalology facts](https://lifestyle.allwomenstalk.com/more-words-you-probably-dont-know/)
 - [code name for friends](https://lifestyle.allwomenstalk.com/creative-ways-to-create-nicknames-for-your-friends/)
+- [victorian english words](https://lifestyle.allwomenstalk.com/victorian-words-you-should-add-to-your-vocabulary/)
+- [small boutique ideas](https://lifestyle.allwomenstalk.com/ridiculous-questions-you-hear-as-a-small-boutique-owner/)
+- [talkers](https://lifestyle.allwomenstalk.com/most-entertaining-types-of-talkers/)
+- [cliches in writing](https://lifestyle.allwomenstalk.com/overused-cliches-to-avoid-when-writing/)
+- [how to pronounce billerica ma](https://travel.allwomenstalk.com/towns-in-massachusetts-youve-been-mispronouncing/)
 - [is mines grammatically correct](https://lifestyle.allwomenstalk.com/worst-grammar-mistakes-that-are-surprisingly-common/)
-- [rare vocabulary words](https://lifestyle.allwomenstalk.com/uncommon-words-to-add-to-your-vocabulary/)
 - [25 Cute Uncommon Baby Names ...](https://parenting.allwomenstalk.com/cute-uncommon-baby-names/)
 - [7 Darling Baby Pictures ...](https://allwomenstalk.com/7-darling-baby-pictures/)
 

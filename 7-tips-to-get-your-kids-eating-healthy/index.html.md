@@ -44,16 +44,16 @@ Top Photo Credit: [laurenlemon](https://www.flickr.com/photos/renolauren/3372407
 
 ## Related Posts
 
-- [graduation thanks for parents](https://parenting.allwomenstalk.com/7-ways-to-thank-your-parents/)
 - [write any four problems that are faced by a workin...](https://parenting.allwomenstalk.com/8-horrifying-problems-faced-by-children-across-the-world/)
-- [things we all do](https://parenting.allwomenstalk.com/30-things-many-children-like/)
-- [what will you teach your children](https://parenting.allwomenstalk.com/top-7-things-to-teach-your-children/)
-- [parenting questions](https://parenting.allwomenstalk.com/parenting-questions-answered/)
-- [teaching kids responsibility](https://parenting.allwomenstalk.com/7-ways-to-teach-kids-responsibility/)
-- [7 Reasons Kids Need Chores ...](https://parenting.allwomenstalk.com/7-reasons-kids-need-chores/)
-- [chores for 9 year old](https://parenting.allwomenstalk.com/9-chores-your-kids-can-help-with/)
-- [shine for kids townsville](https://parenting.allwomenstalk.com/9-ways-to-help-your-child-shine-at-school/)
 - [7 Tips on Planning a Fun Sleepover for Your Kid .....](https://parenting.allwomenstalk.com/7-tips-on-planning-a-fun-sleepover-for-your-kid/)
+- [parenting questions](https://parenting.allwomenstalk.com/parenting-questions-answered/)
+- [chores for 9 year old](https://parenting.allwomenstalk.com/9-chores-your-kids-can-help-with/)
+- [teaching kids responsibility](https://parenting.allwomenstalk.com/7-ways-to-teach-kids-responsibility/)
+- [what will you teach your children](https://parenting.allwomenstalk.com/top-7-things-to-teach-your-children/)
+- [graduation thanks for parents](https://parenting.allwomenstalk.com/7-ways-to-thank-your-parents/)
+- [things we all do](https://parenting.allwomenstalk.com/30-things-many-children-like/)
+- [7 Reasons Kids Need Chores ...](https://parenting.allwomenstalk.com/7-reasons-kids-need-chores/)
+- [shine for kids townsville](https://parenting.allwomenstalk.com/9-ways-to-help-your-child-shine-at-school/)
 - [7 Tips on Preventing Childhood Obesity. ...](https://health.allwomenstalk.com/7-tips-on-preventing-childhood-obesity/)
 - [8 Tips to Get Your Child to Eat Their Veggies ...](https://allwomenstalk.com/8-tips-to-get-your-child-to-eat-their-veggies/)
 

@@ -34,15 +34,15 @@ Whatever you do, engage with your children to make the memories that will last a
 
 ## Related Posts
 
-- [ideas for long weekend getaways](https://travel.allwomenstalk.com/fun-ideas-for-a-weekend-getaway/)
+- [things to do when you're lonely](https://lifestyle.allwomenstalk.com/things-to-do-when-youre-feeling-lonely/)
+- [do you spend christmas with your boyfriend](https://love.allwomenstalk.com/things-to-do-if-you-cant-spend-christmas-with-your-partner/)
+- [fun stuff to do in kansas city](https://travel.allwomenstalk.com/top-things-to-do-to-in-kansas-city/)
 - [activities to celebrate diversity](https://lifestyle.allwomenstalk.com/ways-to-celebrate-diversity/)
 - [top 10 things to do in toronto](https://travel.allwomenstalk.com/top-10-things-to-do-in-toronto/)
-- [things to bake on a rainy day](https://lifestyle.allwomenstalk.com/fun-things-to-do-on-a-rainy-day/)
-- [fun stuff to do in kansas city](https://travel.allwomenstalk.com/top-things-to-do-to-in-kansas-city/)
 - [celebrate gif friends](https://lifestyle.allwomenstalk.com/ways-to-celebrate-christmas-with-friends/)
-- [do you spend christmas with your boyfriend](https://love.allwomenstalk.com/things-to-do-if-you-cant-spend-christmas-with-your-partner/)
+- [things to bake on a rainy day](https://lifestyle.allwomenstalk.com/fun-things-to-do-on-a-rainy-day/)
 - [things to entertain yourself](https://lifestyle.allwomenstalk.com/fun-ways-to-entertain-yourself-when-bored/)
-- [things to do when you're lonely](https://lifestyle.allwomenstalk.com/things-to-do-when-youre-feeling-lonely/)
+- [ideas for long weekend getaways](https://travel.allwomenstalk.com/fun-ideas-for-a-weekend-getaway/)
 - [things to do on your phone when bored](https://lifestyle.allwomenstalk.com/things-to-do-when-youre-bored/)
 - [5 Fun Garden Activities for Kids ...](https://gardening.allwomenstalk.com/5-fun-garden-activities-for-kids/)
 - [8 Fun Things to do with Your Kids ...](https://allwomenstalk.com/8-fun-things-to-do-with-your-kids/)

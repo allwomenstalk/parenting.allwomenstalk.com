@@ -44,14 +44,14 @@ I hope your Easter is fun, full of the traditional chocolate eggs, rice crispy n
 
 - [11 Awesome Ideas to Add to Your Couple's Bucket Li...](https://love.allwomenstalk.com/awesome-ideas-to-add-to-your-couples-bucket-list/)
 - [How to Have a Fun Friday Night at Home ...](https://lifestyle.allwomenstalk.com/how-to-have-a-fun-friday-night-at-home/)
+- [seattle in 24 hours](https://travel.allwomenstalk.com/how-to-spend-hours-in-seattle/)
+- [7 Things to do in with the Colors in Your Palette ...](https://makeup.allwomenstalk.com/things-to-do-in-with-the-colors-in-your-palette-that-arent-your-faves/)
 - [Summer Activities Parents Will Enjoy as Much as Th...](https://parenting.allwomenstalk.com/summer-activities-parents-will-enjoy-as-much-as-their-kids/)
 - [Alternative Things to do when You CanNot Be Drinki...](https://lifestyle.allwomenstalk.com/alternative-things-to-do-when-you-can-not-be-drinking-at-a-party/)
-- [riche stylo unforgettable](https://lifestyle.allwomenstalk.com/how-to-make-any-birthday-bash-unforgettable/)
 - [Banish Boredom - Take up a New Hobby ...](https://lifestyle.allwomenstalk.com/banish-boredom-take-up-a-new-hobby/)
 - [things to do with boyfriend](https://love.allwomenstalk.com/things-thatre-more-fun-when-you-do-them-with-your-boyfriend/)
-- [7 Things to do in with the Colors in Your Palette ...](https://makeup.allwomenstalk.com/things-to-do-in-with-the-colors-in-your-palette-that-arent-your-faves/)
 - [Make Your Mama Smile on Mother's Day with These Sw...](https://lifestyle.allwomenstalk.com/make-your-mama-smile-on-mothers-day-with-these-sweet-activities/)
-- [seattle in 24 hours](https://travel.allwomenstalk.com/how-to-spend-hours-in-seattle/)
+- [riche stylo unforgettable](https://lifestyle.allwomenstalk.com/how-to-make-any-birthday-bash-unforgettable/)
 - [10 Things for Your Child's Easter Basket ...](https://allwomenstalk.com/10-things-for-your-childs-easter-basket/)
 - [5 Things to Make or Buy for Easter ...](https://allwomenstalk.com/5-things-to-make-or-buy-for-easter/)
 

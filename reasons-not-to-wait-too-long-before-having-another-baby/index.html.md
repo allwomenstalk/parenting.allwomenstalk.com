@@ -42,16 +42,16 @@ What are your thoughts? How far apart would you like your children to be? Share 
 
 ## Related Posts
 
-- [sweet finish crawl](https://parenting.allwomenstalk.com/dad-captures-babys-first-crawl-but-what-happens-after-is-the-cherry-on-top-to-this-sweet-moment/)
-- [what to do when you are trying to conceive](https://parenting.allwomenstalk.com/things-you-should-be-doing-when-you-are-trying-to-conceive/)
-- [how to tell your husband you want a baby when he d...](https://parenting.allwomenstalk.com/things-to-do-when-you-want-a-baby-and-he-doesnt/)
+- [cool baby announcements](https://parenting.allwomenstalk.com/cool-birth-announcements-that-let-you-share-your-joy/)
 - [baby's first christmas jammies](https://parenting.allwomenstalk.com/tips-for-making-babys-first-christmas-special/)
 - [how to be a calmer mom](https://parenting.allwomenstalk.com/ways-to-be-a-calmer-less-frazzled-mom/)
-- [cool baby announcements](https://parenting.allwomenstalk.com/cool-birth-announcements-that-let-you-share-your-joy/)
-- [bear pose in yoga](https://parenting.allwomenstalk.com/yoga-poses-that-are-beneficial-for-pregnancy/)
+- [what to do when you are trying to conceive](https://parenting.allwomenstalk.com/things-you-should-be-doing-when-you-are-trying-to-conceive/)
+- [gotcha day adoption](https://parenting.allwomenstalk.com/ways-to-help-adoption-gotcha-day-go-smoother/)
 - [advice for single mothers](https://parenting.allwomenstalk.com/pieces-of-helpful-advice-for-single-moms/)
 - [mom blues](https://parenting.allwomenstalk.com/ways-to-deal-with-the-working-mom-blues/)
-- [gotcha day adoption](https://parenting.allwomenstalk.com/ways-to-help-adoption-gotcha-day-go-smoother/)
+- [sweet finish crawl](https://parenting.allwomenstalk.com/dad-captures-babys-first-crawl-but-what-happens-after-is-the-cherry-on-top-to-this-sweet-moment/)
+- [how to tell your husband you want a baby when he d...](https://parenting.allwomenstalk.com/things-to-do-when-you-want-a-baby-and-he-doesnt/)
+- [bear pose in yoga](https://parenting.allwomenstalk.com/yoga-poses-that-are-beneficial-for-pregnancy/)
 - [8 Reasons to Have Your Family Later ...](https://parenting.allwomenstalk.com/8-reasons-to-have-your-family-later/)
 - [8 of the Worst Reasons to Get Pregnant ...](https://parenting.allwomenstalk.com/8-of-the-worst-reasons-to-get-pregnant/)
 

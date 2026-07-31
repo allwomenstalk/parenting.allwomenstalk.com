@@ -130,16 +130,16 @@ This article was written in collaboration with editor Holly Riordan.
 
 ## Related Posts
 
-- [things to get for my boyfriend on his birthday](https://love.allwomenstalk.com/things-to-get-him-for-his-birthday/)
+- [harry potter candy amazon](https://lifestyle.allwomenstalk.com/harry-potter-themed-party-and-gift-ideas/)
+- [coolest baby shower gifts](https://parenting.allwomenstalk.com/unique-baby-shower-gift-ideas-you-can-give/)
+- [cute cards to make for your boyfriend](https://funny.allwomenstalk.com/funny-cards-to-buy-for-a-loved-one/)
+- [healthy easter baskets](https://health.allwomenstalk.com/ideas-for-a-healthier-easter-basket/)
+- [do you bring a gift to a bachelorette party](https://wedding.allwomenstalk.com/cute-gifts-for-a-bachelorette-party/)
+- [awful gifts](https://lifestyle.allwomenstalk.com/of-the-worst-gifts-to-give-your-friends/)
+- [gifts for high school graduate](https://parenting.allwomenstalk.com/great-high-school-graduate-gifts/)
 - [harry potter thank you gifts](https://lifestyle.allwomenstalk.com/awesome-gifts-for-someone-who-loves-harry-potter/)
 - [lingerie gift for bride](https://wedding.allwomenstalk.com/bridal-shower-gifts-any-bride-will-love-to-receive/)
-- [do you bring a gift to a bachelorette party](https://wedding.allwomenstalk.com/cute-gifts-for-a-bachelorette-party/)
-- [gifts for high school graduate](https://parenting.allwomenstalk.com/great-high-school-graduate-gifts/)
-- [harry potter candy amazon](https://lifestyle.allwomenstalk.com/harry-potter-themed-party-and-gift-ideas/)
-- [cute cards to make for your boyfriend](https://funny.allwomenstalk.com/funny-cards-to-buy-for-a-loved-one/)
-- [coolest baby shower gifts](https://parenting.allwomenstalk.com/unique-baby-shower-gift-ideas-you-can-give/)
-- [healthy easter baskets](https://health.allwomenstalk.com/ideas-for-a-healthier-easter-basket/)
-- [awful gifts](https://lifestyle.allwomenstalk.com/of-the-worst-gifts-to-give-your-friends/)
+- [things to get for my boyfriend on his birthday](https://love.allwomenstalk.com/things-to-get-him-for-his-birthday/)
 - [19 Cool Things to do when Single on Valentine's Da...](https://love.allwomenstalk.com/things-to-do-when-single-on-valentines-day/)
 - [Valentine's Day Gift Ideas for Her ...](https://allwomenstalk.com/valentines-day-gift-ideas-for-her/)
 

@@ -56,15 +56,15 @@ Any more books you want to add to this list?
 
 ## Related Posts
 
-- [Books Where Women save the Day ...](https://books.allwomenstalk.com/books-where-women-save-the-day/)
-- [10 Books with Epic First Chapters That'll Reel You...](https://books.allwomenstalk.com/books-with-epic-first-chapters-thatll-reel-you-right-in/)
-- [Short Story: Bookstore Meets Rockstar (Part 3) ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-3/)
-- [Short Story: Bookstore Meets Rockstar (Part 2) ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-2/)
-- [paris riche le stylo eye with a twist](https://books.allwomenstalk.com/the-best-2-minute-story-for-book-lovers/)
-- [29 Books That Will Fuel Your Wanderlust ...](https://books.allwomenstalk.com/books-that-will-fuel-your-wanderlust/)
-- [11 Books Librarians Suggest You Read before You Di...](https://books.allwomenstalk.com/books-that-librarians-suggest-you-read-before-you-die/)
 - [awesome books usa](https://books.allwomenstalk.com/the-best-books-of-fall/)
+- [11 Books Librarians Suggest You Read before You Di...](https://books.allwomenstalk.com/books-that-librarians-suggest-you-read-before-you-die/)
 - [Short Story: Bookstore Meets Rockstar ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar/)
+- [paris riche le stylo eye with a twist](https://books.allwomenstalk.com/the-best-2-minute-story-for-book-lovers/)
+- [Short Story: Bookstore Meets Rockstar (Part 3) ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-3/)
+- [29 Books That Will Fuel Your Wanderlust ...](https://books.allwomenstalk.com/books-that-will-fuel-your-wanderlust/)
+- [Books Where Women save the Day ...](https://books.allwomenstalk.com/books-where-women-save-the-day/)
+- [Short Story: Bookstore Meets Rockstar (Part 2) ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-2/)
+- [10 Books with Epic First Chapters That'll Reel You...](https://books.allwomenstalk.com/books-with-epic-first-chapters-thatll-reel-you-right-in/)
 - [riche le eye smoldering plum](https://books.allwomenstalk.com/books-thatll-inspire-you-to-make-a-new-start-in/)
 - [7 Foods to Plant with the Kids ...](https://gardening.allwomenstalk.com/7-foods-to-plant-with-the-kids/)
 - [7 Great Gardening Books ...](https://gardening.allwomenstalk.com/great-gardening-books/)

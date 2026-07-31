@@ -42,16 +42,16 @@ It is not always easy to make a decision about whether to be a stay at home mom 
 
 ## Related Posts
 
-- [why should i be kind](https://lifestyle.allwomenstalk.com/reasons-why-being-kind-is-good-for-your-health/)
-- [what skills does being a waitress give you](https://lifestyle.allwomenstalk.com/reasons-why-you-should-be-a-waitress-at-least-once-in-your-life/)
-- [benefits only child](https://parenting.allwomenstalk.com/amazing-benefits-of-being-an-only-child/)
-- [7 girlfriends](https://travel.allwomenstalk.com/reasons-to-go-on-holiday-with-your-girlfriends/)
-- [another way to say follow your dreams](https://inspiration.allwomenstalk.com/reasons-to-follow-your-dreams-no-matter-what/)
 - [is there talking in the nutcracker](https://lifestyle.allwomenstalk.com/reasons-to-see-the-nutcracker-this-holiday-season/)
+- [another way to say follow your dreams](https://inspiration.allwomenstalk.com/reasons-to-follow-your-dreams-no-matter-what/)
+- [7 girlfriends](https://travel.allwomenstalk.com/reasons-to-go-on-holiday-with-your-girlfriends/)
 - [micosoft office online](https://lifestyle.allwomenstalk.com/reasons-to-love-google-drive-instead-of-microsoft-office/)
 - [why the rainforest is important](https://lifestyle.allwomenstalk.com/reasons-the-rainforest-is-important-to-the-world/)
-- [visitnewyork](https://travel.allwomenstalk.com/reasons-to-visit-new-york-city-while-youre-young/)
+- [what skills does being a waitress give you](https://lifestyle.allwomenstalk.com/reasons-why-you-should-be-a-waitress-at-least-once-in-your-life/)
 - [importance of politeness in communication](https://lifestyle.allwomenstalk.com/advantages-of-being-polite-to-strangers/)
+- [benefits only child](https://parenting.allwomenstalk.com/amazing-benefits-of-being-an-only-child/)
+- [visitnewyork](https://travel.allwomenstalk.com/reasons-to-visit-new-york-city-while-youre-young/)
+- [why should i be kind](https://lifestyle.allwomenstalk.com/reasons-why-being-kind-is-good-for-your-health/)
 - [8 Great Tips for Stay-at-Home Moms ...](https://parenting.allwomenstalk.com/8-great-tips-for-stay-at-home-moms/)
 - [7 Reasons to Consider Home-Schooling Your Children...](https://allwomenstalk.com/7-reasons-to-consider-home-schooling-your-children/)
 

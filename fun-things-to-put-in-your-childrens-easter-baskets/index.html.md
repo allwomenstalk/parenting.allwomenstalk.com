@@ -80,16 +80,16 @@ Those were some of my favorite gifts that I used to receive in my Easter basket!
 
 ## Related Posts
 
-- [twin birthday presents](https://parenting.allwomenstalk.com/practical-gifts-for-twins-on-their-birthday/)
-- [nail polish favors](https://parenting.allwomenstalk.com/baby-shower-favors-sure-to-be-a-hit/)
-- [crafts for christmas in july](https://inspiration.allwomenstalk.com/christmas-in-july-ornaments-to-get-you-ready-for-the-season/)
-- [things to put in a food gift basket](https://food.allwomenstalk.com/ideas-for-food-gifts-for-all-occasions/)
-- [swimming party favours](https://diy.allwomenstalk.com/outstanding-party-favors-you-can-customize-for-your-next-party/)
-- [sorority big little basket ideas](https://teen.allwomenstalk.com/things-to-great-presents-to-include-during-big-little-gift-week/)
-- [nice gifts for new moms](https://parenting.allwomenstalk.com/great-gift-ideas-for-new-moms/)
-- [how to light up someone's mood](https://lifestyle.allwomenstalk.com/gift-ideas-for-a-friend-that-are-sure-to-brighten-her-day/)
 - [gift ideas for long distance relationships](https://love.allwomenstalk.com/gift-ideas-to-survive-a-long-distance-relationship/)
+- [how to light up someone's mood](https://lifestyle.allwomenstalk.com/gift-ideas-for-a-friend-that-are-sure-to-brighten-her-day/)
+- [twin birthday presents](https://parenting.allwomenstalk.com/practical-gifts-for-twins-on-their-birthday/)
+- [nice gifts for new moms](https://parenting.allwomenstalk.com/great-gift-ideas-for-new-moms/)
+- [nail polish favors](https://parenting.allwomenstalk.com/baby-shower-favors-sure-to-be-a-hit/)
+- [things to put in a food gift basket](https://food.allwomenstalk.com/ideas-for-food-gifts-for-all-occasions/)
+- [crafts for christmas in july](https://inspiration.allwomenstalk.com/christmas-in-july-ornaments-to-get-you-ready-for-the-season/)
+- [swimming party favours](https://diy.allwomenstalk.com/outstanding-party-favors-you-can-customize-for-your-next-party/)
 - [how to wrap flowers in paper](https://diy.allwomenstalk.com/fancy-and-unique-gift-wrapping-ideas/)
+- [sorority big little basket ideas](https://teen.allwomenstalk.com/things-to-great-presents-to-include-during-big-little-gift-week/)
 - [10 Things for Your Child's Easter Basket ...](https://allwomenstalk.com/10-things-for-your-childs-easter-basket/)
 - [5 Things to Make or Buy for Easter ...](https://allwomenstalk.com/5-things-to-make-or-buy-for-easter/)
 

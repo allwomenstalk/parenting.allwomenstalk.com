@@ -50,15 +50,15 @@ There are some fundamental reasons why you should wait to have a baby and it’s
 
 ## Related Posts
 
-- [why is dating so confusing](https://love.allwomenstalk.com/reasons-why-dating-is-so-confusing/)
-- [reasons to not get a puppy](https://lifestyle.allwomenstalk.com/reasons-not-to-get-a-puppy/)
 - [best food competition shows](https://food.allwomenstalk.com/reasons-to-not-watch-tv-cooking-shows/)
-- [girls dating younger guys](https://love.allwomenstalk.com/reasons-why-women-can-date-younger-men/)
 - [is 22 too young to be a dad](https://parenting.allwomenstalk.com/reasons-not-to-start-a-family-too-young/)
-- [marrying at 20](https://wedding.allwomenstalk.com/reasons-not-to-get-married-too-young/)
-- [is social media ruining society](https://lifestyle.allwomenstalk.com/reasons-why-social-media-is-ruining-our-lives/)
 - [walking in 5 inch heels](https://shoes.allwomenstalk.com/reasons-not-to-wear-high-heels/)
+- [girls dating younger guys](https://love.allwomenstalk.com/reasons-why-women-can-date-younger-men/)
 - [i've never been in a relationship before](https://love.allwomenstalk.com/reasons-why-its-okay-if-you-havent-been-in-a-relationship-yet/)
+- [reasons to not get a puppy](https://lifestyle.allwomenstalk.com/reasons-not-to-get-a-puppy/)
+- [is social media ruining society](https://lifestyle.allwomenstalk.com/reasons-why-social-media-is-ruining-our-lives/)
+- [marrying at 20](https://wedding.allwomenstalk.com/reasons-not-to-get-married-too-young/)
+- [why is dating so confusing](https://love.allwomenstalk.com/reasons-why-dating-is-so-confusing/)
 - [real fur blanket](https://fashion.allwomenstalk.com/reasons-not-to-wear-real-fur/)
 - [8 Reasons to Have Your Family Later ...](https://parenting.allwomenstalk.com/8-reasons-to-have-your-family-later/)
 - [8 of the Worst Reasons to Get Pregnant ...](https://parenting.allwomenstalk.com/8-of-the-worst-reasons-to-get-pregnant/)

@@ -42,16 +42,16 @@ These are 7 ideas to help you sneak in exercise with a newborn. How do you manag
 
 ## Related Posts
 
-- [life with twins](https://parenting.allwomenstalk.com/ways-having-twins-will-change-your-life/)
 - [how to buy baby carrier](https://parenting.allwomenstalk.com/things-to-consider-when-buying-a-baby-carrier/)
-- [how to be a happier mum](https://parenting.allwomenstalk.com/ways-to-be-a-happier-mom/)
-- [7 Ways to Breastfeed Discreetly in Public ...](https://parenting.allwomenstalk.com/ways-to-breastfeed-discreetly-in-public/)
+- [life with twins](https://parenting.allwomenstalk.com/ways-having-twins-will-change-your-life/)
+- [am i ready for second baby](https://parenting.allwomenstalk.com/reasons-not-to-wait-too-long-before-having-another-baby/)
 - [missing your parents](https://parenting.allwomenstalk.com/ways-to-deal-with-missing-your-babys-milestones/)
+- [johnson baby products good for adults](https://skincare.allwomenstalk.com/awesome-baby-products-that-adults-can-use-too/)
 - [signs you're a good mom](https://parenting.allwomenstalk.com/signs-you-will-be-a-great-mom/)
 - [how can being a young parent affect your career pr...](https://parenting.allwomenstalk.com/pros-and-cons-of-being-a-young-mother/)
-- [johnson baby products good for adults](https://skincare.allwomenstalk.com/awesome-baby-products-that-adults-can-use-too/)
 - [what to expect when you re expecting twins](https://parenting.allwomenstalk.com/things-to-expect-when-youre-pregnant-with-twins/)
-- [am i ready for second baby](https://parenting.allwomenstalk.com/reasons-not-to-wait-too-long-before-having-another-baby/)
+- [7 Ways to Breastfeed Discreetly in Public ...](https://parenting.allwomenstalk.com/ways-to-breastfeed-discreetly-in-public/)
+- [how to be a happier mum](https://parenting.allwomenstalk.com/ways-to-be-a-happier-mom/)
 - [7 Fun Ways a Busy Mom Can Exercise ...](https://parenting.allwomenstalk.com/7-fun-ways-a-busy-mom-can-exercise/)
 - [8 Smart Ways to Exercise While Pregnant ...](https://parenting.allwomenstalk.com/smart-ways-to-exercise-while-pregnant/)
 

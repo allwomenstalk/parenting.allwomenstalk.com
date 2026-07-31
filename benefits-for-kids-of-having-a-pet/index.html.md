@@ -38,16 +38,16 @@ Overall, if you stop and take a breath, you’d see that the benefits of having 
 
 ## Related Posts
 
-- [adorable pet names](https://lifestyle.allwomenstalk.com/pet-names/)
-- [things to do with puppies](https://lifestyle.allwomenstalk.com/fun-things-to-do-with-your-new-puppy/)
-- [questions to ask yourself before getting a dog](https://lifestyle.allwomenstalk.com/questions-you-should-ask-yourself-before-getting-a-dog/)
-- [Ink Your Love for Your Pet: Exclusive Dog Memorial...](https://bodyart.allwomenstalk.com/dog-memorial-tattoo-ideas/)
-- [do rabbits drool](https://lifestyle.allwomenstalk.com/facts-about-rabbits-you-should-know-before-getting-one-as-a-pet/)
 - [how to make your dog happy at home](https://lifestyle.allwomenstalk.com/tips-for-keeping-your-dog-healthy/)
+- [date night ideas leeds](https://love.allwomenstalk.com/places-to-take-an-animal-loving-date-in-leeds/)
 - [dog breeds for young couples](https://lifestyle.allwomenstalk.com/best-dog-breeds-for-unmarried-couples/)
+- [Ink Your Love for Your Pet: Exclusive Dog Memorial...](https://bodyart.allwomenstalk.com/dog-memorial-tattoo-ideas/)
+- [questions to ask yourself before getting a dog](https://lifestyle.allwomenstalk.com/questions-you-should-ask-yourself-before-getting-a-dog/)
+- [things to do with puppies](https://lifestyle.allwomenstalk.com/fun-things-to-do-with-your-new-puppy/)
+- [do rabbits drool](https://lifestyle.allwomenstalk.com/facts-about-rabbits-you-should-know-before-getting-one-as-a-pet/)
 - [ethical animal encounters](https://travel.allwomenstalk.com/the-best-ethical-animal-encounters-in-the-wild/)
 - [1958 year of the chinese zodiac](https://lifestyle.allwomenstalk.com/types-of-dogs-in-the-chinese-zodiac/)
-- [date night ideas leeds](https://love.allwomenstalk.com/places-to-take-an-animal-loving-date-in-leeds/)
+- [adorable pet names](https://lifestyle.allwomenstalk.com/pet-names/)
 - [7 Health Benefits of a Pet ...](https://health.allwomenstalk.com/7-health-benefits-of-a-pet/)
 - [8 Reasons to Adopt a Pet from a Shelter ...](https://allwomenstalk.com/8-reasons-to-adopt-a-pet-from-a-shelter/)
 

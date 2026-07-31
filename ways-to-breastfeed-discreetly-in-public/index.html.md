@@ -42,16 +42,16 @@ You shouldn't be put off breastfeeding in public by what other people think. It'
 
 ## Related Posts
 
-- [how can being a young parent affect your career pr...](https://parenting.allwomenstalk.com/pros-and-cons-of-being-a-young-mother/)
-- [how to be a calmer mom](https://parenting.allwomenstalk.com/ways-to-be-a-calmer-less-frazzled-mom/)
-- [am i ready for second baby](https://parenting.allwomenstalk.com/reasons-not-to-wait-too-long-before-having-another-baby/)
-- [gotcha day adoption](https://parenting.allwomenstalk.com/ways-to-help-adoption-gotcha-day-go-smoother/)
-- [advice for single mothers](https://parenting.allwomenstalk.com/pieces-of-helpful-advice-for-single-moms/)
-- [what to do when you are trying to conceive](https://parenting.allwomenstalk.com/things-you-should-be-doing-when-you-are-trying-to-conceive/)
-- [missing your parents](https://parenting.allwomenstalk.com/ways-to-deal-with-missing-your-babys-milestones/)
 - [mom blues](https://parenting.allwomenstalk.com/ways-to-deal-with-the-working-mom-blues/)
-- [what to expect when you re expecting twins](https://parenting.allwomenstalk.com/things-to-expect-when-youre-pregnant-with-twins/)
 - [johnson baby products good for adults](https://skincare.allwomenstalk.com/awesome-baby-products-that-adults-can-use-too/)
+- [how can being a young parent affect your career pr...](https://parenting.allwomenstalk.com/pros-and-cons-of-being-a-young-mother/)
+- [am i ready for second baby](https://parenting.allwomenstalk.com/reasons-not-to-wait-too-long-before-having-another-baby/)
+- [advice for single mothers](https://parenting.allwomenstalk.com/pieces-of-helpful-advice-for-single-moms/)
+- [gotcha day adoption](https://parenting.allwomenstalk.com/ways-to-help-adoption-gotcha-day-go-smoother/)
+- [missing your parents](https://parenting.allwomenstalk.com/ways-to-deal-with-missing-your-babys-milestones/)
+- [how to be a calmer mom](https://parenting.allwomenstalk.com/ways-to-be-a-calmer-less-frazzled-mom/)
+- [what to expect when you re expecting twins](https://parenting.allwomenstalk.com/things-to-expect-when-youre-pregnant-with-twins/)
+- [what to do when you are trying to conceive](https://parenting.allwomenstalk.com/things-you-should-be-doing-when-you-are-trying-to-conceive/)
 - [7 Ways to Look Good in a Bikini ...](https://fashion.allwomenstalk.com/ways-to-look-good-in-a-bikini/)
 - [7 Style Tips for a Large Bustline ...](https://allwomenstalk.com/7-style-tips-for-a-large-bustline/)
 

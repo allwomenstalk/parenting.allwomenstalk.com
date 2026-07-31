@@ -44,16 +44,16 @@ Top Photo Credit: [weheartit.com](https://weheartit.com/)
 
 ## Related Posts
 
-- [ways to help new parents](https://parenting.allwomenstalk.com/8-ways-to-help-new-parents/)
 - [8 Things You Should Know before You Get Pregnant ....](https://parenting.allwomenstalk.com/things-you-should-know-before-you-get-pregnant/)
+- [7 Coolest Baby Milestones ...](https://parenting.allwomenstalk.com/7-coolest-baby-milestones/)
+- [7 Tips for Bathing Your New Baby ...](https://parenting.allwomenstalk.com/tips-for-bathing-your-new-baby/)
+- [6 Tips on Picking out the Proper Baby Stroller...](https://parenting.allwomenstalk.com/tips-on-picking-out-the-proper-baby-stroller/)
+- [pregnancy nine months](https://parenting.allwomenstalk.com/facts-for-the-nine-months-youre-pregnant/)
 - [things to know during pregnancy](https://parenting.allwomenstalk.com/10-things-pregnant-women-should-know/)
 - [7 Baby Products You Don't Need to Buy ...](https://parenting.allwomenstalk.com/7-baby-products-you-dont-need-to-buy/)
-- [6 Tips on Picking out the Proper Baby Stroller...](https://parenting.allwomenstalk.com/tips-on-picking-out-the-proper-baby-stroller/)
-- [advice for stay at home moms](https://parenting.allwomenstalk.com/8-great-tips-for-stay-at-home-moms/)
 - [how to prepare for baby arrival](https://parenting.allwomenstalk.com/ways-to-get-ready-for-your-babys-arrival/)
-- [pregnancy nine months](https://parenting.allwomenstalk.com/facts-for-the-nine-months-youre-pregnant/)
-- [7 Tips for Bathing Your New Baby ...](https://parenting.allwomenstalk.com/tips-for-bathing-your-new-baby/)
-- [7 Coolest Baby Milestones ...](https://parenting.allwomenstalk.com/7-coolest-baby-milestones/)
+- [advice for stay at home moms](https://parenting.allwomenstalk.com/8-great-tips-for-stay-at-home-moms/)
+- [ways to help new parents](https://parenting.allwomenstalk.com/8-ways-to-help-new-parents/)
 - [7 Pros and Cons of the Royal Wedding ...](https://wedding.allwomenstalk.com/7-pros-and-cons-of-the-royal-wedding/)
 - [8 Reasons Why I Love Being a Mom ...](https://parenting.allwomenstalk.com/8-reasons-why-i-love-being-a-mom/)
 

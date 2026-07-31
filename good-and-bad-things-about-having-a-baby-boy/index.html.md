@@ -42,16 +42,16 @@ Well ladies, these are the best and worst things that I think come with having a
 
 ## Related Posts
 
-- [5 qualities of mother](https://parenting.allwomenstalk.com/lovable-qualities-of-a-great-mother/)
-- [pros and cons of parenthood](https://parenting.allwomenstalk.com/pros-and-cons-of-postponing-parenthood/)
-- [what to bring for babysitting](https://parenting.allwomenstalk.com/must-have-items-to-bring-when-you-babysit/)
-- [motherhood easy](https://parenting.allwomenstalk.com/ways-to-make-motherhood-easier-in-the-early-years/)
-- [baby chiropractor benefits](https://parenting.allwomenstalk.com/amazing-benefits-of-chiropractic-care-for-newborns/)
+- [how becoming a parent changes you](https://parenting.allwomenstalk.com/positive-and-negative-ways-life-changes-when-you-become-a-parent/)
 - [hospital labor and delivery bag](https://parenting.allwomenstalk.com/things-to-pack-for-childbirth-in-your-hospital-bag/)
 - [mommy needs a break](https://parenting.allwomenstalk.com/ways-for-moms-to-get-a-break-without-a-sitter/)
-- [how to make life easier with a newborn](https://parenting.allwomenstalk.com/ways-to-make-life-easier-after-bringing-your-newborn-home/)
 - [what is the weirdest pregnancy craving](https://parenting.allwomenstalk.com/strange-pregnancy-cravings-and-what-they-mean/)
-- [how becoming a parent changes you](https://parenting.allwomenstalk.com/positive-and-negative-ways-life-changes-when-you-become-a-parent/)
+- [what to bring for babysitting](https://parenting.allwomenstalk.com/must-have-items-to-bring-when-you-babysit/)
+- [5 qualities of mother](https://parenting.allwomenstalk.com/lovable-qualities-of-a-great-mother/)
+- [how to make life easier with a newborn](https://parenting.allwomenstalk.com/ways-to-make-life-easier-after-bringing-your-newborn-home/)
+- [motherhood easy](https://parenting.allwomenstalk.com/ways-to-make-motherhood-easier-in-the-early-years/)
+- [pros and cons of parenthood](https://parenting.allwomenstalk.com/pros-and-cons-of-postponing-parenthood/)
+- [baby chiropractor benefits](https://parenting.allwomenstalk.com/amazing-benefits-of-chiropractic-care-for-newborns/)
 - [7 Things Parents Should Know ...](https://parenting.allwomenstalk.com/7-things-parents-should-know/)
 - [7 Things to Consider before Adopting a Child ...](https://parenting.allwomenstalk.com/7-things-to-consider-before-adopting-a-child/)
 

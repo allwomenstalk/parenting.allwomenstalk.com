@@ -64,16 +64,16 @@ Our children should go to school with foods they enjoy but also foods that we fe
 
 ## Related Posts
 
-- [avocado cookies](https://cooking.allwomenstalk.com/recipes-to-use-avocados-in-baking/)
 - [site:food.allwomenstalk.com](https://food.allwomenstalk.com/easy-scrumptious-pasta-recipes/)
-- [7 Simple Kebab Recipes …](https://cooking.allwomenstalk.com/simple-kebab-recipes/)
-- [female tv chefs](https://cooking.allwomenstalk.com/cookbooks-from-iconic-female-chefs/)
-- [weirdest pizza topping](https://cooking.allwomenstalk.com/8-unusual-pizza-toppings/)
-- [recipes with pineapples](https://food.allwomenstalk.com/delectably-awesome-recipes-with-yummy-pineapples/)
 - [easy and quick recipes for snacks](https://cooking.allwomenstalk.com/delicious-quick-snack-recipes-to-try/)
-- [dishes with wine](https://food.allwomenstalk.com/exquisite-wine-matching-ideas-for-meat-dishes/)
 - [pescetarian dishes](https://food.allwomenstalk.com/fabulously-yummy-dishes-for-pescetarians/)
+- [female tv chefs](https://cooking.allwomenstalk.com/cookbooks-from-iconic-female-chefs/)
+- [7 Simple Kebab Recipes …](https://cooking.allwomenstalk.com/simple-kebab-recipes/)
+- [recipes with pineapples](https://food.allwomenstalk.com/delectably-awesome-recipes-with-yummy-pineapples/)
+- [avocado cookies](https://cooking.allwomenstalk.com/recipes-to-use-avocados-in-baking/)
 - [interesting recipes to try](https://cooking.allwomenstalk.com/7-cool-recipes-to-try/)
+- [dishes with wine](https://food.allwomenstalk.com/exquisite-wine-matching-ideas-for-meat-dishes/)
+- [weirdest pizza topping](https://cooking.allwomenstalk.com/8-unusual-pizza-toppings/)
 - [Top 7 Snacks for Children ...](https://cooking.allwomenstalk.com/top-7-snacks-for-children/)
 - [7 Scrumptious Kid-Friendly Holiday Goodies the Lit...](https://food.allwomenstalk.com/scrumptious-kid-friendly-holiday-goodies-the-little-ones-will-love/)
 

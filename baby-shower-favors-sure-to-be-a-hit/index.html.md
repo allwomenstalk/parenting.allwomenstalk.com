@@ -56,16 +56,16 @@ These are some ideas of baby shower favors that are a little different than the 
 
 ## Related Posts
 
-- [10 fit ka teddy bear](https://parenting.allwomenstalk.com/adorable-teddy-bears-for-your-child-to-love/)
 - [what do tween girls want for christmas](https://lifestyle.allwomenstalk.com/amazing-gifts-for-tween-girls/)
-- [printable dog bone stocking pattern](https://lifestyle.allwomenstalk.com/great-christmas-stockings-to-adorn-your-fireplace-this-year/)
-- [baby jewelry for christening](https://parenting.allwomenstalk.com/ideas-of-all-sorts-for-christening-gifts/)
-- [personalized holiday gifts](https://lifestyle.allwomenstalk.com/spectacular-websites-for-personalized-holiday-gifts/)
-- [gifts for best friends christmas](https://lifestyle.allwomenstalk.com/christmas-gifts-for-best-friends/)
-- [purple christmas wreaths](https://diy.allwomenstalk.com/christmas-wreaths-to-welcome-your-guests/)
-- [gifts for son and daughter in law christmas](https://parenting.allwomenstalk.com/perfect-gifts-to-get-your-son-in-law/)
 - [baby shower diaper cake ideas](https://parenting.allwomenstalk.com/diaper-cakes-any-mother-will-adore-to-receive/)
+- [printable dog bone stocking pattern](https://lifestyle.allwomenstalk.com/great-christmas-stockings-to-adorn-your-fireplace-this-year/)
 - [stocking stuffer ideas for boyfriend](https://lifestyle.allwomenstalk.com/manly-stocking-stuffers-for-your-boyfriend/)
+- [personalized holiday gifts](https://lifestyle.allwomenstalk.com/spectacular-websites-for-personalized-holiday-gifts/)
+- [gifts for son and daughter in law christmas](https://parenting.allwomenstalk.com/perfect-gifts-to-get-your-son-in-law/)
+- [10 fit ka teddy bear](https://parenting.allwomenstalk.com/adorable-teddy-bears-for-your-child-to-love/)
+- [purple christmas wreaths](https://diy.allwomenstalk.com/christmas-wreaths-to-welcome-your-guests/)
+- [baby jewelry for christening](https://parenting.allwomenstalk.com/ideas-of-all-sorts-for-christening-gifts/)
+- [gifts for best friends christmas](https://lifestyle.allwomenstalk.com/christmas-gifts-for-best-friends/)
 - [8 Interesting Bridal Shower Gifts for a Bride ...](https://wedding.allwomenstalk.com/8-interesting-bridal-shower-gifts-for-a-bride/)
 - [7 Innovative Bridal Shower Ideas ...](https://wedding.allwomenstalk.com/innovative-bridal-shower-ideas/)
 

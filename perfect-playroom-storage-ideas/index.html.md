@@ -132,16 +132,16 @@ How do you keep your kids' things organized? At my house, it's a never ending ba
 
 ## Related Posts
 
-- [katwise house](https://lifestyle.allwomenstalk.com/lakeside-houses-dreams-are-made-of/)
-- [spiraling up just like a rich staircase](https://lifestyle.allwomenstalk.com/awe-inspiring-staircases-youll-want-to-copy-in-your-house/)
-- [oeuvre d'art facile à reproduire](https://diy.allwomenstalk.com/paintings-you-can-copy-for-your-own-house/)
-- [diy chandelier kit](https://diy.allwomenstalk.com/diy-chandeliers-to-light-up-your-life/)
 - [tea towel display ideas](https://food.allwomenstalk.com/adorable-tea-towels-to-make-your-kitchen-stand-out/)
-- [bathroom shower curtain design ideas](https://lifestyle.allwomenstalk.com/fantastic-shower-curtains-to-spice-up-your-bathroom/)
+- [oeuvre d'art facile à reproduire](https://diy.allwomenstalk.com/paintings-you-can-copy-for-your-own-house/)
+- [cute storage](https://diy.allwomenstalk.com/clever-and-cute-storage-solutions-for-a-kids-room/)
 - [marquee letter lights diy](https://diy.allwomenstalk.com/beautiful-marquee-lights-to-make/)
 - [fabric glue for curtains](https://diy.allwomenstalk.com/no-sew-curtains-that-you-can-make-for-your-home/)
-- [cute storage](https://diy.allwomenstalk.com/clever-and-cute-storage-solutions-for-a-kids-room/)
 - [mermaid house](https://lifestyle.allwomenstalk.com/magnificent-mermaid-inspired-homes/)
+- [diy chandelier kit](https://diy.allwomenstalk.com/diy-chandeliers-to-light-up-your-life/)
+- [katwise house](https://lifestyle.allwomenstalk.com/lakeside-houses-dreams-are-made-of/)
+- [spiraling up just like a rich staircase](https://lifestyle.allwomenstalk.com/awe-inspiring-staircases-youll-want-to-copy-in-your-house/)
+- [bathroom shower curtain design ideas](https://lifestyle.allwomenstalk.com/fantastic-shower-curtains-to-spice-up-your-bathroom/)
 - [8 Inspiring Decorations for Your Home ...](https://lifestyle.allwomenstalk.com/inspiring-decorations-for-your-home/)
 - [8 Great Play-Date Crafts ...](https://allwomenstalk.com/8-great-play-date-crafts/)
 

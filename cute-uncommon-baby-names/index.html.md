@@ -176,15 +176,15 @@ This article written in collaboration with editor, Eliza Martinez
 
 ## Related Posts
 
-- [double dutch idiom sentence](https://lifestyle.allwomenstalk.com/examples-of-double-dutch-in-the-english-language/)
-- [hilarious exam answers](https://lifestyle.allwomenstalk.com/funny-exam-answers/)
 - [medical tongue twisters](https://lifestyle.allwomenstalk.com/totally-tripping-tongue-twisters/)
-- [verb for new](https://lifestyle.allwomenstalk.com/new-verbs-for-the-decade/)
-- [collective nouns hedgehogs](https://lifestyle.allwomenstalk.com/collective-nouns/)
-- [8 Things Mothers like to Say ...](https://parenting.allwomenstalk.com/8-things-mothers-like-to-say/)
-- [verbal mistake](https://lifestyle.allwomenstalk.com/verbal-mistakes-you-make/)
-- [A Word to You Would Be Fishers (Day 100) ...](https://allwomenstalk.com/a-word-to-you-would-be-fishers-day-100/)
 - [tolkien dwarven language](https://movies.allwomenstalk.com/fascinating-fictional-languages/)
+- [verbal mistake](https://lifestyle.allwomenstalk.com/verbal-mistakes-you-make/)
+- [double dutch idiom sentence](https://lifestyle.allwomenstalk.com/examples-of-double-dutch-in-the-english-language/)
+- [A Word to You Would Be Fishers (Day 100) ...](https://allwomenstalk.com/a-word-to-you-would-be-fishers-day-100/)
+- [collective nouns hedgehogs](https://lifestyle.allwomenstalk.com/collective-nouns/)
+- [verb for new](https://lifestyle.allwomenstalk.com/new-verbs-for-the-decade/)
+- [hilarious exam answers](https://lifestyle.allwomenstalk.com/funny-exam-answers/)
+- [8 Things Mothers like to Say ...](https://parenting.allwomenstalk.com/8-things-mothers-like-to-say/)
 - [anoying sounds](https://lifestyle.allwomenstalk.com/most-annoying-sounds/)
 - [Top 10 Baby Boy Names I like ...](https://parenting.allwomenstalk.com/top-10-baby-boy-names-i-like/)
 - [7 of the Top Picked Baby Names Throughout the Year...](https://parenting.allwomenstalk.com/of-the-top-picked-baby-names-throughout-the-years/)

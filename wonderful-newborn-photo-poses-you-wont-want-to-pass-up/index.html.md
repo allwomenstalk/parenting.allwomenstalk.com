@@ -209,16 +209,16 @@ What's your most treasured newborn photo? I love the candids that remind me what
 
 ## Related Posts
 
+- [doctor fit and fabulous](https://parenting.allwomenstalk.com/how-to-have-a-healthy-fit-fabulous-pregnancy/)
+- [foods you cant eat when pregnant](https://parenting.allwomenstalk.com/foods-pregnant-women-should-avoid-at-all-costs/)
 - [gift of motherhood](https://parenting.allwomenstalk.com/the-most-rewarding-things-about-being-a-mother/)
+- [things moms do](https://parenting.allwomenstalk.com/daily-things-moms-should-do-for-themselves/)
+- [disney baby announcement](https://parenting.allwomenstalk.com/cutest-pregnancy-and-birth-announcements-to-copy/)
+- [an amazing mother](https://parenting.allwomenstalk.com/signs-youre-going-to-be-an-amazing-mom/)
+- [halloween maternity pictures](https://parenting.allwomenstalk.com/pregnant-women-should-try-taking-these-types-of-maternity-photos/)
+- [mom style man](https://fashion.allwomenstalk.com/its-time-to-embrace-these-embarrassing-mom-trends/)
 - [talk about your shopping habit](https://money.allwomenstalk.com/ways-to-adjust-your-single-lady-shopping-habits-when-starting-a-family/)
 - [being pregnant is a blessing](https://parenting.allwomenstalk.com/all-of-the-benefits-and-blessings-of-being-pregnant/)
-- [disney baby announcement](https://parenting.allwomenstalk.com/cutest-pregnancy-and-birth-announcements-to-copy/)
-- [halloween maternity pictures](https://parenting.allwomenstalk.com/pregnant-women-should-try-taking-these-types-of-maternity-photos/)
-- [doctor fit and fabulous](https://parenting.allwomenstalk.com/how-to-have-a-healthy-fit-fabulous-pregnancy/)
-- [mom style man](https://fashion.allwomenstalk.com/its-time-to-embrace-these-embarrassing-mom-trends/)
-- [things moms do](https://parenting.allwomenstalk.com/daily-things-moms-should-do-for-themselves/)
-- [foods you cant eat when pregnant](https://parenting.allwomenstalk.com/foods-pregnant-women-should-avoid-at-all-costs/)
-- [an amazing mother](https://parenting.allwomenstalk.com/signs-youre-going-to-be-an-amazing-mom/)
 - [30 Pictures of the Cutest Dogs Ever ...](https://allwomenstalk.com/30-pictures-of-the-cutest-dogs-ever/)
 - [17 Pictures of the Cutest Little Baby Bear ... wit...](https://allwomenstalk.com/pictures-cute-little-bear/)
 

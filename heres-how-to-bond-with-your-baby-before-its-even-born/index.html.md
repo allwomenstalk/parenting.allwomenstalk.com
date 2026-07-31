@@ -42,16 +42,16 @@ These’re some ways that you can bond with your baby during your pregnancy. How
 
 ## Related Posts
 
-- [How Can You Tell if You're Actually Pregnant?](https://parenting.allwomenstalk.com/how-can-you-tell-if-youre-actually-pregnant/)
-- [Don't Forget These Fitness Rules, when You Get Pre...](https://parenting.allwomenstalk.com/dont-forget-these-fitness-rules-when-you-get-pregnant-2/)
-- [7 Ways to Ease Back into Exercising after Giving B...](https://parenting.allwomenstalk.com/ways-to-ease-back-into-exercising-after-giving-birth/)
-- [does pushing a stroller burn more calories](https://parenting.allwomenstalk.com/burn-calories-with-your-baby-and-bond-at-the-same-time/)
-- [7 Pregnancy Woes That You Can Turn around ...](https://parenting.allwomenstalk.com/pregnancy-woes-that-you-can-turn-around/)
-- [heartburn during 3rd trimester](https://parenting.allwomenstalk.com/life-saving-infographics-for-moms-to-be/)
 - [Don't Forget These Fitness Rules when You Get Preg...](https://parenting.allwomenstalk.com/dont-forget-these-fitness-rules-when-you-get-pregnant/)
-- [7 Easy Ways to Exercise when You Have a Baby on th...](https://parenting.allwomenstalk.com/easy-ways-to-exercise-when-you-have-a-baby-on-the-way/)
+- [7 Ways to Ease Back into Exercising after Giving B...](https://parenting.allwomenstalk.com/ways-to-ease-back-into-exercising-after-giving-birth/)
+- [How Can You Tell if You're Actually Pregnant?](https://parenting.allwomenstalk.com/how-can-you-tell-if-youre-actually-pregnant/)
+- [7 Pregnancy Woes That You Can Turn around ...](https://parenting.allwomenstalk.com/pregnancy-woes-that-you-can-turn-around/)
 - [The Real Truth on the Benefits of Exercising While...](https://parenting.allwomenstalk.com/does-exercising-during-pregnancy-benefit-your-baby/)
+- [7 Easy Ways to Exercise when You Have a Baby on th...](https://parenting.allwomenstalk.com/easy-ways-to-exercise-when-you-have-a-baby-on-the-way/)
+- [heartburn during 3rd trimester](https://parenting.allwomenstalk.com/life-saving-infographics-for-moms-to-be/)
+- [does pushing a stroller burn more calories](https://parenting.allwomenstalk.com/burn-calories-with-your-baby-and-bond-at-the-same-time/)
 - [These Pictures Will Make You Want to Become a Pare...](https://parenting.allwomenstalk.com/these-pictures-will-make-you-want-to-become-a-parent/)
+- [Don't Forget These Fitness Rules, when You Get Pre...](https://parenting.allwomenstalk.com/dont-forget-these-fitness-rules-when-you-get-pregnant-2/)
 - [7 Great Tips for the Mommy-to-Be ...](https://parenting.allwomenstalk.com/7-great-tips-for-the-mommy-to-be/)
 - [7 Ways to Bond with Your Stepchildren ...](https://parenting.allwomenstalk.com/ways-to-bond-with-your-stepchildren/)
 

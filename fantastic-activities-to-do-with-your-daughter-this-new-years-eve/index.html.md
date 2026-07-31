@@ -43,15 +43,15 @@ We hope our seven suggestions of activities are helpful for you! Use one or all 
 ## Related Posts
 
 - [how to volunteer at a library](https://books.allwomenstalk.com/cool-reasons-to-hang-out-at-the-library/)
-- [colorado winter vacations for non skiers](https://travel.allwomenstalk.com/things-to-do-in-a-ski-resort-when-theres-no-snow/)
-- [things to do on a snowy day](https://lifestyle.allwomenstalk.com/activities-for-kids-of-all-ages-to-do-in-snowy-weather/)
 - [hobbies to do with your hands](https://diy.allwomenstalk.com/really-fun-hobbies-that-wont-break-the-bank/)
 - [good luck traditions around the world](https://travel.allwomenstalk.com/new-year-traditions-around-the-world/)
-- [things to do while watching a show](https://lifestyle.allwomenstalk.com/things-you-can-do-while-watching-television/)
-- [fun things to do when you re bored](https://lifestyle.allwomenstalk.com/fun-things-to-do-when-youre-bored/)
-- [new year what to do](https://lifestyle.allwomenstalk.com/important-things-to-do-in-the-new-year/)
+- [colorado winter vacations for non skiers](https://travel.allwomenstalk.com/things-to-do-in-a-ski-resort-when-theres-no-snow/)
+- [things to do on a snowy day](https://lifestyle.allwomenstalk.com/activities-for-kids-of-all-ages-to-do-in-snowy-weather/)
 - [new year things](https://lifestyle.allwomenstalk.com/great-things-to-do-in-the-new-year/)
+- [new year what to do](https://lifestyle.allwomenstalk.com/important-things-to-do-in-the-new-year/)
 - [carnival birthday shirt ideas](https://parenting.allwomenstalk.com/fun-ways-to-create-a-carnival-themed-birthday-party/)
+- [fun things to do when you re bored](https://lifestyle.allwomenstalk.com/fun-things-to-do-when-youre-bored/)
+- [things to do while watching a show](https://lifestyle.allwomenstalk.com/things-you-can-do-while-watching-television/)
 - [7 Fun Things to do on a Girls' Night out ...](https://lifestyle.allwomenstalk.com/fun-things-to-do-on-a-girls-night-out/)
 - [7 Fun Things to do with Your Sister ...](https://allwomenstalk.com/7-fun-things-to-do-with-your-sister/)
 

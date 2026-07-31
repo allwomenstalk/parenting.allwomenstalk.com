@@ -42,16 +42,16 @@ These are some of the reasons your kids should spend time with their grandparent
 
 ## Related Posts
 
-- [spanking at work](https://parenting.allwomenstalk.com/alternatives-to-spanking-that-work/)
-- [characteristics of a little child](https://lifestyle.allwomenstalk.com/characteristics-of-a-controlling-parent/)
+- [how to deal with stubborn child](https://parenting.allwomenstalk.com/tips-for-dealing-with-a-stubborn-child/)
+- [parenting hacks](https://parenting.allwomenstalk.com/gentle-parenting-hacks-that-really-work/)
 - [how to start a babysitting service](https://money.allwomenstalk.com/simple-ways-to-start-your-own-babysitting-business/)
+- [legos to build with your boyfriend](https://parenting.allwomenstalk.com/things-to-build-with-legos-that-your-kids-will-love/)
+- [oobleck recipe nz](https://parenting.allwomenstalk.com/gooey-science-experiments-to-do-with-your-kid/)
 - [what is food production?](https://food.allwomenstalk.com/ways-to-get-your-kids-interested-in-cooking/)
 - [myths about parenting](https://parenting.allwomenstalk.com/popular-myths-about-parenting-that-arent-true/)
-- [how to deal with stubborn child](https://parenting.allwomenstalk.com/tips-for-dealing-with-a-stubborn-child/)
-- [oobleck recipe nz](https://parenting.allwomenstalk.com/gooey-science-experiments-to-do-with-your-kid/)
-- [legos to build with your boyfriend](https://parenting.allwomenstalk.com/things-to-build-with-legos-that-your-kids-will-love/)
-- [parenting hacks](https://parenting.allwomenstalk.com/gentle-parenting-hacks-that-really-work/)
+- [spanking at work](https://parenting.allwomenstalk.com/alternatives-to-spanking-that-work/)
 - [why am i jealous of my stepchildren](https://parenting.allwomenstalk.com/tips-for-when-your-partner-is-jealous-of-your-child/)
+- [characteristics of a little child](https://lifestyle.allwomenstalk.com/characteristics-of-a-controlling-parent/)
 - [7 Reasons Kids Need Chores ...](https://parenting.allwomenstalk.com/7-reasons-kids-need-chores/)
 - [7 Reasons to Volunteer for Your Kids School ...](https://allwomenstalk.com/7-reasons-to-volunteer-for-your-kids-school/)
 

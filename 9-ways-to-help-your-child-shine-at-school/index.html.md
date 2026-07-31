@@ -52,16 +52,16 @@ Top Photo Credit: [Christopher Futcher](https://www.flickr.com/photos/chrisfutch
 
 ## Related Posts
 
-- [parenting questions](https://parenting.allwomenstalk.com/parenting-questions-answered/)
-- [Moving a Child from a Booster Seat to Seat Belts.....](https://parenting.allwomenstalk.com/moving-a-child-from-a-booster-seat-to-seat-belts/)
-- [8 Games You Can Play with Your Kids ...](https://parenting.allwomenstalk.com/8-games-you-can-play-with-your-kids/)
 - [what will you teach your children](https://parenting.allwomenstalk.com/top-7-things-to-teach-your-children/)
-- [chores for 9 year old](https://parenting.allwomenstalk.com/9-chores-your-kids-can-help-with/)
-- [graduation thanks for parents](https://parenting.allwomenstalk.com/7-ways-to-thank-your-parents/)
-- [things we all do](https://parenting.allwomenstalk.com/30-things-many-children-like/)
-- [topics for women to discuss](https://parenting.allwomenstalk.com/topics-to-discuss-with-your-daughter/)
 - [teaching kids responsibility](https://parenting.allwomenstalk.com/7-ways-to-teach-kids-responsibility/)
 - [7 Reasons Kids Need Chores ...](https://parenting.allwomenstalk.com/7-reasons-kids-need-chores/)
+- [graduation thanks for parents](https://parenting.allwomenstalk.com/7-ways-to-thank-your-parents/)
+- [8 Games You Can Play with Your Kids ...](https://parenting.allwomenstalk.com/8-games-you-can-play-with-your-kids/)
+- [topics for women to discuss](https://parenting.allwomenstalk.com/topics-to-discuss-with-your-daughter/)
+- [Moving a Child from a Booster Seat to Seat Belts.....](https://parenting.allwomenstalk.com/moving-a-child-from-a-booster-seat-to-seat-belts/)
+- [chores for 9 year old](https://parenting.allwomenstalk.com/9-chores-your-kids-can-help-with/)
+- [parenting questions](https://parenting.allwomenstalk.com/parenting-questions-answered/)
+- [things we all do](https://parenting.allwomenstalk.com/30-things-many-children-like/)
 - [7 Easy Ways to Boost Your Child's Education ...](https://parenting.allwomenstalk.com/7-easy-ways-to-boost-your-childs-education/)
 - [8 Ways to Motivate Your Child ...](https://parenting.allwomenstalk.com/8-ways-to-motivate-your-child/)
 

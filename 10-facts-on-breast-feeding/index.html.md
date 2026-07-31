@@ -56,16 +56,16 @@ Top Photo Credit: [Boered](https://www.flickr.com/photos/boered/243171271/)
 
 ## Related Posts
 
-- [7 Most Popular Pregnancy Myths ...](https://parenting.allwomenstalk.com/7-most-popular-pregnancy-myths/)
-- [how to introduce avocado to baby](https://parenting.allwomenstalk.com/easy-ways-to-use-avocados-as-babys-first-food/)
-- [mommy tips](https://parenting.allwomenstalk.com/7-great-tips-for-the-mommy-to-be/)
-- [what to pack for baby in hospital](https://parenting.allwomenstalk.com/essential-what-to-pack-for-the-hospital-when-having-a-baby/)
+- [10 Newborn Essentials ...](https://parenting.allwomenstalk.com/newborn-essentials/)
 - [7 Things a Pregnant Woman Needs in Her Diet ...](https://parenting.allwomenstalk.com/things-a-pregnant-woman-needs-in-her-diet/)
-- [craving coffee meaning](https://parenting.allwomenstalk.com/strangest-pregnancy-cravings/)
+- [how to introduce avocado to baby](https://parenting.allwomenstalk.com/easy-ways-to-use-avocados-as-babys-first-food/)
+- [new mom things to know](https://parenting.allwomenstalk.com/things-every-new-mom-should-know/)
+- [what to pack for baby in hospital](https://parenting.allwomenstalk.com/essential-what-to-pack-for-the-hospital-when-having-a-baby/)
+- [mommy tips](https://parenting.allwomenstalk.com/7-great-tips-for-the-mommy-to-be/)
 - [best books on pregnancy and parenting](https://parenting.allwomenstalk.com/8-great-books-for-pregnant-moms/)
 - [tricks to get pregnant fast](https://parenting.allwomenstalk.com/tried-ways-to-get-pregnant-fast/)
-- [new mom things to know](https://parenting.allwomenstalk.com/things-every-new-mom-should-know/)
-- [10 Newborn Essentials ...](https://parenting.allwomenstalk.com/newborn-essentials/)
+- [craving coffee meaning](https://parenting.allwomenstalk.com/strangest-pregnancy-cravings/)
+- [7 Most Popular Pregnancy Myths ...](https://parenting.allwomenstalk.com/7-most-popular-pregnancy-myths/)
 - [10 Things Pregnant Women Should Know ...](https://parenting.allwomenstalk.com/10-things-pregnant-women-should-know/)
 - [7 Facts on Breasts ...](https://health.allwomenstalk.com/7-facts-on-breasts/)
 

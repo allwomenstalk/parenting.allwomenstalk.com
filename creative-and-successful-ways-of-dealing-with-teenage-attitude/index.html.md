@@ -42,16 +42,16 @@ Now it’s your turn. Share your secrets with me. How do you deal with teenage a
 
 ## Related Posts
 
-- [how to start a babysitting service](https://money.allwomenstalk.com/simple-ways-to-start-your-own-babysitting-business/)
+- [myths about parenting](https://parenting.allwomenstalk.com/popular-myths-about-parenting-that-arent-true/)
+- [characteristics of a little child](https://lifestyle.allwomenstalk.com/characteristics-of-a-controlling-parent/)
 - [how to deal with stubborn child](https://parenting.allwomenstalk.com/tips-for-dealing-with-a-stubborn-child/)
 - [what is food production?](https://food.allwomenstalk.com/ways-to-get-your-kids-interested-in-cooking/)
-- [myths about parenting](https://parenting.allwomenstalk.com/popular-myths-about-parenting-that-arent-true/)
-- [why am i jealous of my stepchildren](https://parenting.allwomenstalk.com/tips-for-when-your-partner-is-jealous-of-your-child/)
-- [parenting hacks](https://parenting.allwomenstalk.com/gentle-parenting-hacks-that-really-work/)
-- [characteristics of a little child](https://lifestyle.allwomenstalk.com/characteristics-of-a-controlling-parent/)
+- [how to start a babysitting service](https://money.allwomenstalk.com/simple-ways-to-start-your-own-babysitting-business/)
 - [spanking at work](https://parenting.allwomenstalk.com/alternatives-to-spanking-that-work/)
-- [spend time with grandparents quotes](https://parenting.allwomenstalk.com/reasons-your-kids-should-spend-time-with-their-grandparents/)
+- [parenting hacks](https://parenting.allwomenstalk.com/gentle-parenting-hacks-that-really-work/)
 - [oobleck recipe nz](https://parenting.allwomenstalk.com/gooey-science-experiments-to-do-with-your-kid/)
+- [why am i jealous of my stepchildren](https://parenting.allwomenstalk.com/tips-for-when-your-partner-is-jealous-of-your-child/)
+- [spend time with grandparents quotes](https://parenting.allwomenstalk.com/reasons-your-kids-should-spend-time-with-their-grandparents/)
 - [7 Ways to Be a Friendly Teenager ...](https://allwomenstalk.com/7-ways-to-be-a-friendly-teenager/)
 - [7 Tips on Controlling Your Attitude ...](https://allwomenstalk.com/7-tips-on-controlling-your-attitude/)
 

@@ -54,16 +54,16 @@ Tactless comments to a woman who's had a miscarriage are often intended to be co
 
 ## Related Posts
 
-- [7 Things That Are Not Worth Your Jealousy ...](https://lifestyle.allwomenstalk.com/things-that-are-not-worth-your-jealousy/)
-- [7 Things You Shouldn't Say in the Beginning of a N...](https://love.allwomenstalk.com/things-you-shouldnt-say-in-the-beginning-of-a-new-relationship/)
 - [7 Things to Never do on Facebook when You're in a ...](https://love.allwomenstalk.com/things-to-never-do-on-facebook-when-youre-in-a-relationship/)
 - [9 Important Things Every Woman Should Stop Doing ....](https://inspiration.allwomenstalk.com/important-things-every-woman-should-stop-doing/)
-- [crummy day](https://lifestyle.allwomenstalk.com/crummy-events-that-can-ruin-your-day/)
-- [7 Things You Should Never Say about Your Ex ...](https://love.allwomenstalk.com/things-you-should-never-say-about-your-ex/)
-- [7 Worst Foods to Eat on a First Date ...](https://love.allwomenstalk.com/worst-foods-to-eat-on-a-first-date-2/)
 - [things to do as single woman](https://love.allwomenstalk.com/things-not-to-say-to-a-single-woman/)
-- [9 Remarkably Annoying Guy Habits That We Simply Ca...](https://love.allwomenstalk.com/remarkably-annoying-guy-habits-that-we-simply-cannot-stand/)
+- [crummy day](https://lifestyle.allwomenstalk.com/crummy-events-that-can-ruin-your-day/)
+- [7 Things That Are Not Worth Your Jealousy ...](https://lifestyle.allwomenstalk.com/things-that-are-not-worth-your-jealousy/)
+- [7 Things You Shouldn't Say in the Beginning of a N...](https://love.allwomenstalk.com/things-you-shouldnt-say-in-the-beginning-of-a-new-relationship/)
+- [7 Things You Should Never Say about Your Ex ...](https://love.allwomenstalk.com/things-you-should-never-say-about-your-ex/)
 - [7 Important and Surprising Things Happy People Nev...](https://inspiration.allwomenstalk.com/important-and-surprising-things-happy-people-never-do/)
+- [9 Remarkably Annoying Guy Habits That We Simply Ca...](https://love.allwomenstalk.com/remarkably-annoying-guy-habits-that-we-simply-cannot-stand/)
+- [7 Worst Foods to Eat on a First Date ...](https://love.allwomenstalk.com/worst-foods-to-eat-on-a-first-date-2/)
 - [10 Things Pregnant Women Should Know ...](https://parenting.allwomenstalk.com/10-things-pregnant-women-should-know/)
 - [8 Things Mothers like to Say ...](https://parenting.allwomenstalk.com/8-things-mothers-like-to-say/)
 

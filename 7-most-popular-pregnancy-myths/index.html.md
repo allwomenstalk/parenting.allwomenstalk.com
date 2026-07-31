@@ -44,16 +44,16 @@ Top Photo Credit: [flequi](https://www.flickr.com/photos/83085326@N00/4925358935
 
 ## Related Posts
 
-- [7 Simple Tips on Weaning Your Baby ...](https://parenting.allwomenstalk.com/7-simple-tips-on-weaning-your-baby/)
-- [craving coffee meaning](https://parenting.allwomenstalk.com/strangest-pregnancy-cravings/)
 - [tricks to get pregnant fast](https://parenting.allwomenstalk.com/tried-ways-to-get-pregnant-fast/)
 - [best books on pregnancy and parenting](https://parenting.allwomenstalk.com/8-great-books-for-pregnant-moms/)
-- [how to introduce avocado to baby](https://parenting.allwomenstalk.com/easy-ways-to-use-avocados-as-babys-first-food/)
 - [mommy tips](https://parenting.allwomenstalk.com/7-great-tips-for-the-mommy-to-be/)
+- [7 Simple Tips on Weaning Your Baby ...](https://parenting.allwomenstalk.com/7-simple-tips-on-weaning-your-baby/)
+- [how to introduce avocado to baby](https://parenting.allwomenstalk.com/easy-ways-to-use-avocados-as-babys-first-food/)
 - [7 Things a Pregnant Woman Needs in Her Diet ...](https://parenting.allwomenstalk.com/things-a-pregnant-woman-needs-in-her-diet/)
-- [what to pack for baby in hospital](https://parenting.allwomenstalk.com/essential-what-to-pack-for-the-hospital-when-having-a-baby/)
 - [new mom things to know](https://parenting.allwomenstalk.com/things-every-new-mom-should-know/)
 - [10 Newborn Essentials ...](https://parenting.allwomenstalk.com/newborn-essentials/)
+- [what to pack for baby in hospital](https://parenting.allwomenstalk.com/essential-what-to-pack-for-the-hospital-when-having-a-baby/)
+- [craving coffee meaning](https://parenting.allwomenstalk.com/strangest-pregnancy-cravings/)
 - [7 Weird Pregnancy Facts ...](https://parenting.allwomenstalk.com/7-weird-pregnancy-facts/)
 - [7 Pregnancy Facts You Should Know ...](https://parenting.allwomenstalk.com/pregnancy-facts-you-should-know/)
 

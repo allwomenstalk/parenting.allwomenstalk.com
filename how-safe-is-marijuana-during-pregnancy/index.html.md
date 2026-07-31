@@ -28,16 +28,16 @@ Marijuana may be a wonderful alternative to stronger more invasive drugs. All po
 
 ## Related Posts
 
-- [How Long Should Your Monthly Cycle Be?](https://health.allwomenstalk.com/how-long-should-your-monthly-cycle-be/)
-- [Is Your Beauty Routine Harming the Planet ?](https://beauty.allwomenstalk.com/is-your-beauty-routine-harming-the-planet/)
-- [pedalstole](https://love.allwomenstalk.com/is-a-break-really-the-end-of-your-relationship/)
 - [Are 🤔 Women in Love Crazy?](https://love.allwomenstalk.com/are-women-in-love-crazy/)
+- [Where is 🤔 the #Metoo Headed?](https://lifestyle.allwomenstalk.com/where-is-metoo-heading/)
+- [do opposites really attract](https://love.allwomenstalk.com/do-opposites-really-attract/)
 - [when not to keep a secret](https://lifestyle.allwomenstalk.com/when-is-it-okay-to-keep-a-secret/)
 - [What is 🤔 Your Dieting Personality?](https://weightloss.allwomenstalk.com/what-is-your-dieting-personality/)
-- [Where is 🤔 the #Metoo Headed?](https://lifestyle.allwomenstalk.com/where-is-metoo-heading/)
-- [Did You Know 🤔 the Way You Use Social Media Can H...](https://apps.allwomenstalk.com/did-you-know-the-way-you-use-social-media-can-hint-at-depression/)
-- [do opposites really attract](https://love.allwomenstalk.com/do-opposites-really-attract/)
 - [Which is the Best Type of Yoga for You ?](https://fitness.allwomenstalk.com/which-is-the-best-type-of-yoga-for-you/)
+- [Is Your Beauty Routine Harming the Planet ?](https://beauty.allwomenstalk.com/is-your-beauty-routine-harming-the-planet/)
+- [pedalstole](https://love.allwomenstalk.com/is-a-break-really-the-end-of-your-relationship/)
+- [Did You Know 🤔 the Way You Use Social Media Can H...](https://apps.allwomenstalk.com/did-you-know-the-way-you-use-social-media-can-hint-at-depression/)
+- [How Long Should Your Monthly Cycle Be?](https://health.allwomenstalk.com/how-long-should-your-monthly-cycle-be/)
 - [Does CBD Positively Influence Individual Performan...](https://allwomenstalk.com/does-cbd-positively-influence-individual-performance/)
 - [Can Hemp Be a Cure for Endometriosis and Other Rep...](https://allwomenstalk.com/hemp-cure-for-endometriosis/)
 

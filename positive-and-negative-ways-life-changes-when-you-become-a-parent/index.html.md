@@ -50,16 +50,16 @@ Although the title of this article is about positive AND negative life changes w
 
 ## Related Posts
 
-- [how to stay sane as a stay at home mom](https://parenting.allwomenstalk.com/tips-on-how-to-stay-sane-as-a-new-mom/)
-- [pros and cons of parenthood](https://parenting.allwomenstalk.com/pros-and-cons-of-postponing-parenthood/)
 - [motherhood easy](https://parenting.allwomenstalk.com/ways-to-make-motherhood-easier-in-the-early-years/)
 - [what to bring for babysitting](https://parenting.allwomenstalk.com/must-have-items-to-bring-when-you-babysit/)
-- [baby chiropractor benefits](https://parenting.allwomenstalk.com/amazing-benefits-of-chiropractic-care-for-newborns/)
-- [5 qualities of mother](https://parenting.allwomenstalk.com/lovable-qualities-of-a-great-mother/)
-- [opportunities in life](https://parenting.allwomenstalk.com/new-life-opportunities-to-enjoy-after-the-kids-are-grown/)
 - [newborn party](https://parenting.allwomenstalk.com/ideas-to-celebrate-the-arrival-of-a-new-baby/)
+- [opportunities in life](https://parenting.allwomenstalk.com/new-life-opportunities-to-enjoy-after-the-kids-are-grown/)
 - [stepmom vs mom](https://parenting.allwomenstalk.com/important-things-every-stepmom-must-know-and-remember/)
+- [5 qualities of mother](https://parenting.allwomenstalk.com/lovable-qualities-of-a-great-mother/)
+- [baby chiropractor benefits](https://parenting.allwomenstalk.com/amazing-benefits-of-chiropractic-care-for-newborns/)
+- [pros and cons of parenthood](https://parenting.allwomenstalk.com/pros-and-cons-of-postponing-parenthood/)
 - [new fashion tips](https://fashion.allwomenstalk.com/fashion-tips-for-new-moms-that-work-great-for-that-transition-period/)
+- [how to stay sane as a stay at home mom](https://parenting.allwomenstalk.com/tips-on-how-to-stay-sane-as-a-new-mom/)
 - [8 Reasons Why I Love Being a Mom ...](https://parenting.allwomenstalk.com/8-reasons-why-i-love-being-a-mom/)
 - [7 Things New Moms May Not Know ...](https://parenting.allwomenstalk.com/7-things-new-moms-may-not-know/)
 

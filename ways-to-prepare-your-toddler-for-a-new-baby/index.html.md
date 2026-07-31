@@ -43,15 +43,15 @@ Hopefully these ways to prepare your toddler for a new baby will help you in you
 ## Related Posts
 
 - [bbc2 newsnight](https://health.allwomenstalk.com/scary-signs-of-postpartum-depression/)
-- [what are 20 babies born at once called](https://parenting.allwomenstalk.com/advantages-to-having-babies-in-your-20s/)
-- [stressful situations at work are exhausting or exh...](https://parenting.allwomenstalk.com/stressful-situations-when-you-have-twins/)
-- [what to wear to wedding when pregnant](https://wedding.allwomenstalk.com/tips-for-choosing-a-wedding-dress-when-youre-pregnant/)
-- [going to be an aunt](https://parenting.allwomenstalk.com/wonderful-aspects-of-being-an-aunt/)
-- [mom friends](https://parenting.allwomenstalk.com/kinds-of-fellow-mom-friends-you-desperately-need-when-you-become-a-mom/)
-- [advice for moms going back to work](https://parenting.allwomenstalk.com/tips-for-when-you-miss-your-baby-after-returning-to-work/)
-- [are babies smarter than we think](https://parenting.allwomenstalk.com/awesome-reasons-why-babies-are-smarter-than-you-think/)
-- [get tasks done with a baby](https://parenting.allwomenstalk.com/tips-for-getting-housework-done-with-a-baby/)
 - [dealing with pregnancy alone](https://parenting.allwomenstalk.com/ways-to-find-support-when-going-through-pregnancy-alone/)
+- [going to be an aunt](https://parenting.allwomenstalk.com/wonderful-aspects-of-being-an-aunt/)
+- [what to wear to wedding when pregnant](https://wedding.allwomenstalk.com/tips-for-choosing-a-wedding-dress-when-youre-pregnant/)
+- [get tasks done with a baby](https://parenting.allwomenstalk.com/tips-for-getting-housework-done-with-a-baby/)
+- [stressful situations at work are exhausting or exh...](https://parenting.allwomenstalk.com/stressful-situations-when-you-have-twins/)
+- [advice for moms going back to work](https://parenting.allwomenstalk.com/tips-for-when-you-miss-your-baby-after-returning-to-work/)
+- [mom friends](https://parenting.allwomenstalk.com/kinds-of-fellow-mom-friends-you-desperately-need-when-you-become-a-mom/)
+- [what are 20 babies born at once called](https://parenting.allwomenstalk.com/advantages-to-having-babies-in-your-20s/)
+- [are babies smarter than we think](https://parenting.allwomenstalk.com/awesome-reasons-why-babies-are-smarter-than-you-think/)
 - [7 Ways to Make Your Little One Smile ...](https://parenting.allwomenstalk.com/7-ways-to-make-your-little-one-smile/)
 - [7 Ways to Reduce Costs with a New Baby ...](https://parenting.allwomenstalk.com/ways-to-reduce-costs-with-a-new-baby/)
 

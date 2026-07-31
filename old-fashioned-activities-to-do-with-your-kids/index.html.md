@@ -56,16 +56,16 @@ So there you have it, some old-fashioned summer activities to do with your kids.
 
 ## Related Posts
 
-- [explore dubai on a budget](https://travel.allwomenstalk.com/things-to-do-in-dubai-on-a-budget/)
-- [card group games](https://lifestyle.allwomenstalk.com/card-games-for-maximum-fun/)
-- [fun and enjoyable](https://travel.allwomenstalk.com/fun-ways-to-make-your-commute-more-enjoyable/)
-- [dealer's choice movie](https://parenting.allwomenstalk.com/really-fun-card-games-to-play-with-your-kids-today/)
-- [most boring things to do](https://inspiration.allwomenstalk.com/ways-for-making-boring-tasks-fun/)
-- [passion party themes](https://diy.allwomenstalk.com/ideas-for-a-harry-potter-theme-party/)
-- [what to do at the beach without swimming](https://travel.allwomenstalk.com/stellar-seaside-activities-if-you-dont-swim/)
-- [things to do on your lunch break](https://lifestyle.allwomenstalk.com/things-to-do-while-youre-on-your-lunch-break/)
 - [things that teens do](https://teen.allwomenstalk.com/typical-teenage-things-worth-doing-at-least-once/)
+- [passion party themes](https://diy.allwomenstalk.com/ideas-for-a-harry-potter-theme-party/)
+- [explore dubai on a budget](https://travel.allwomenstalk.com/things-to-do-in-dubai-on-a-budget/)
 - [activities for girls to do](https://travel.allwomenstalk.com/awesome-boardwalk-activities-you-cant-resist/)
+- [things to do on your lunch break](https://lifestyle.allwomenstalk.com/things-to-do-while-youre-on-your-lunch-break/)
+- [most boring things to do](https://inspiration.allwomenstalk.com/ways-for-making-boring-tasks-fun/)
+- [fun and enjoyable](https://travel.allwomenstalk.com/fun-ways-to-make-your-commute-more-enjoyable/)
+- [what to do at the beach without swimming](https://travel.allwomenstalk.com/stellar-seaside-activities-if-you-dont-swim/)
+- [dealer's choice movie](https://parenting.allwomenstalk.com/really-fun-card-games-to-play-with-your-kids-today/)
+- [card group games](https://lifestyle.allwomenstalk.com/card-games-for-maximum-fun/)
 - [7 Fun Ways to Keep the Kids Entertained on a Holid...](https://parenting.allwomenstalk.com/fun-ways-to-keep-the-kids-entertained-on-a-holiday/)
 - [8 Fun Things to do with Your Kids ...](https://allwomenstalk.com/8-fun-things-to-do-with-your-kids/)
 

@@ -109,16 +109,16 @@ Let us know in the comments!
 
 ## Related Posts
 
-- [things to get your crush for christmas](https://love.allwomenstalk.com/stellar-tips-for-the-perfect-christmas-gift-for-your-crush/)
 - [12 awesome christmas traditions from around the wo...](https://lifestyle.allwomenstalk.com/christmas-traditions-from-around-the-world-to-inspire-you-to-start-your-own/)
-- [thrift store christmas gifts](https://lifestyle.allwomenstalk.com/genius-thrift-store-gift-ideas-for-nice-but-cheap-presents/)
-- [gift basket business cards](https://diy.allwomenstalk.com/everything-you-need-to-know-about-gift-baskets/)
-- [cookie gift idea](https://food.allwomenstalk.com/christmas-cookie-gift-ideas/)
-- [pen pal programs elderly uk](https://lifestyle.allwomenstalk.com/seriously-great-ways-to-give-back-this-christmas-in-the-uk/)
-- [how to have a more meaningful christmas](https://lifestyle.allwomenstalk.com/how-to-make-your-christmas-gifts-more-meaningful/)
-- [pizza dough money gift](https://food.allwomenstalk.com/this-pizza-dough-mix-in-a-jar-makes-a-fantastic-gift-idea/)
 - [best hostess gifts for thanksgiving](https://lifestyle.allwomenstalk.com/thanksgiving-gifts-to-give-your-hostess/)
+- [things to get your crush for christmas](https://love.allwomenstalk.com/stellar-tips-for-the-perfect-christmas-gift-for-your-crush/)
+- [cookie gift idea](https://food.allwomenstalk.com/christmas-cookie-gift-ideas/)
+- [pizza dough money gift](https://food.allwomenstalk.com/this-pizza-dough-mix-in-a-jar-makes-a-fantastic-gift-idea/)
 - [lydia senn youtube](https://diy.allwomenstalk.com/video-guide-to-low-cost-christmas-gifts-made-with-love/)
+- [thrift store christmas gifts](https://lifestyle.allwomenstalk.com/genius-thrift-store-gift-ideas-for-nice-but-cheap-presents/)
+- [how to have a more meaningful christmas](https://lifestyle.allwomenstalk.com/how-to-make-your-christmas-gifts-more-meaningful/)
+- [gift basket business cards](https://diy.allwomenstalk.com/everything-you-need-to-know-about-gift-baskets/)
+- [pen pal programs elderly uk](https://lifestyle.allwomenstalk.com/seriously-great-ways-to-give-back-this-christmas-in-the-uk/)
 - [7 Simple Yet Special Gift Ideas That Say "I Love Y...](https://love.allwomenstalk.com/simple-yet-special-gift-ideas-that-say-i-love-you/)
 - [5 Wonderful Gift Ideas ...](https://allwomenstalk.com/5-wonderful-gift-ideas/)
 

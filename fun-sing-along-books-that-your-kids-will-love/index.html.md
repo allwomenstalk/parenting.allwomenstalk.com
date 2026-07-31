@@ -78,16 +78,16 @@ As you can see, sing along books are a great way to turn story time into fun tim
 
 ## Related Posts
 
-- [magazine topics](https://lifestyle.allwomenstalk.com/magazines-chock-full-of-awesome-information/)
-- [amazing autobiographies](https://books.allwomenstalk.com/amazing-autobiographies-that-deal-with-tough-issues/)
-- [leadership books for young adults](https://inspiration.allwomenstalk.com/best-leadership-books-every-young-leader-should-read/)
 - [dog man 13](https://books.allwomenstalk.com/influential-books-that-have-been-banned/)
-- [life is so good book](https://teen.allwomenstalk.com/best-books-about-teen-life/)
+- [leadership books for young adults](https://inspiration.allwomenstalk.com/best-leadership-books-every-young-leader-should-read/)
 - [who is the giver in the book](https://books.allwomenstalk.com/reasons-you-should-read-the-book-before-seeing-the-giver-in-theaters/)
 - [books the wealthy read](https://money.allwomenstalk.com/best-finance-books-rich-people-read/)
-- [novels set in 1920s](https://books.allwomenstalk.com/books-set-in-the-jazz-age/)
-- [incenstual](https://celebs.allwomenstalk.com/great-books-loved-by-celebrities/)
 - [the happy wives club](https://books.allwomenstalk.com/things-to-love-about-the-book-happy-wives-club/)
+- [life is so good book](https://teen.allwomenstalk.com/best-books-about-teen-life/)
+- [amazing autobiographies](https://books.allwomenstalk.com/amazing-autobiographies-that-deal-with-tough-issues/)
+- [magazine topics](https://lifestyle.allwomenstalk.com/magazines-chock-full-of-awesome-information/)
+- [incenstual](https://celebs.allwomenstalk.com/great-books-loved-by-celebrities/)
+- [novels set in 1920s](https://books.allwomenstalk.com/books-set-in-the-jazz-age/)
 - [7 Books for Your Child's Collection ...](https://parenting.allwomenstalk.com/books-for-your-childs-collection/)
 - [7 Incredible Children's Books ...](https://allwomenstalk.com/7-incredible-childrens-books/)
 

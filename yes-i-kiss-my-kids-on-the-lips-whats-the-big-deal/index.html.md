@@ -42,16 +42,16 @@ It's totally okay if you don't agree with my parenting choices. As long as my ki
 
 ## Related Posts
 
-- [the kid latoi](https://parenting.allwomenstalk.com/how-to-support-a-kid-with-an-iep/)
-- [potty training guide for parents](https://parenting.allwomenstalk.com/tips-for-potty-training/)
-- [why first born are more intelligent](https://lifestyle.allwomenstalk.com/science-says-the-first-born-child-is-the-most-intelligent/)
-- [still can't sleep on christmas eve](https://parenting.allwomenstalk.com/tips-to-get-your-kids-to-go-to-sleep-on-christmas-eve/)
-- [kid cudio](https://lifestyle.allwomenstalk.com/how-to-throw-an-amazing-kids-party/)
 - [you make my heart happy quotes](https://parenting.allwomenstalk.com/positive-affirmations-to-encourage-your-children-and-build-them-up/)
 - [better communication with your child](https://parenting.allwomenstalk.com/ways-to-have-better-communication-with-your-child/)
+- [kid cudio](https://lifestyle.allwomenstalk.com/how-to-throw-an-amazing-kids-party/)
+- [the kid latoi](https://parenting.allwomenstalk.com/how-to-support-a-kid-with-an-iep/)
 - [kids sharing room ideas](https://parenting.allwomenstalk.com/how-to-make-sharing-a-room-easier-for-kids/)
 - [children believe](https://parenting.allwomenstalk.com/should-children-believe-in-santa-claus/)
 - [i can totally relate](https://parenting.allwomenstalk.com/things-parents-of-teens-can-totally-relate-to/)
+- [potty training guide for parents](https://parenting.allwomenstalk.com/tips-for-potty-training/)
+- [still can't sleep on christmas eve](https://parenting.allwomenstalk.com/tips-to-get-your-kids-to-go-to-sleep-on-christmas-eve/)
+- [why first born are more intelligent](https://lifestyle.allwomenstalk.com/science-says-the-first-born-child-is-the-most-intelligent/)
 - [When Was Your First Kiss?](https://allwomenstalk.com/when-was-your-first-kiss/)
 - [The Times We All Love to Be Kissed ...](https://love.allwomenstalk.com/best-times-to-be-kissed-by-your-partner/)
 

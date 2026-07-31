@@ -103,16 +103,16 @@ Halloween is a time for fun and creativity. Even when choosing a classic Hallowe
 
 ## Related Posts
 
-- [tall horror movie characters](https://diy.allwomenstalk.com/scary-characters-to-dress-up-as-for-halloween-this-year/)
-- [funny hat ideas to make](https://diy.allwomenstalk.com/cute-and-creative-diy-party-hats/)
 - [diy outdoor tombstones](https://diy.allwomenstalk.com/awesome-diy-tombstones-for-halloween/)
-- [diy halloween mask](https://diy.allwomenstalk.com/diy-halloween-masks-to-make/)
-- [printable halloween treat boxes](https://diy.allwomenstalk.com/delightful-diy-halloween-treat-boxes-and-wrappers/)
 - [positively glittered](https://diy.allwomenstalk.com/wonderful-glittered-halloween-crafts/)
-- [kid from monsters inc](https://parenting.allwomenstalk.com/cute-ways-to-throw-a-monsters-inc-party-for-your-kid/)
 - [cool comic character ideas](https://lifestyle.allwomenstalk.com/characters-to-cosplay-at-comic-con-this-year/)
-- [diy headgear](https://diy.allwomenstalk.com/diy-halloween-headpieces-to-make/)
+- [diy halloween mask](https://diy.allwomenstalk.com/diy-halloween-masks-to-make/)
 - [tinker bell inspired outfit](https://fashion.allwomenstalk.com/disney-inspired-outfits/)
+- [diy headgear](https://diy.allwomenstalk.com/diy-halloween-headpieces-to-make/)
+- [printable halloween treat boxes](https://diy.allwomenstalk.com/delightful-diy-halloween-treat-boxes-and-wrappers/)
+- [tall horror movie characters](https://diy.allwomenstalk.com/scary-characters-to-dress-up-as-for-halloween-this-year/)
+- [kid from monsters inc](https://parenting.allwomenstalk.com/cute-ways-to-throw-a-monsters-inc-party-for-your-kid/)
+- [funny hat ideas to make](https://diy.allwomenstalk.com/cute-and-creative-diy-party-hats/)
 - [7 Fun Halloween Costumes Your Kids Will Love ...](https://parenting.allwomenstalk.com/fun-halloween-costumes-your-kids-will-love/)
 - [25 Awesome Celebrity Halloween Costumes ...](https://celebs.allwomenstalk.com/25-awesome-celebrity-halloween-costumes/)
 

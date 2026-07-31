@@ -56,15 +56,15 @@ Do these reasons sound like good incentives for home schooling? I’m willing to
 
 ## Related Posts
 
-- [how to be part of a community](https://lifestyle.allwomenstalk.com/ways-teens-can-help-the-community/)
-- [things to do with my daughter](https://parenting.allwomenstalk.com/best-things-you-can-do-for-your-children/)
-- [choosing a babysitter](https://parenting.allwomenstalk.com/tips-on-how-to-choose-a-babysitter/)
-- [good values for kids](https://parenting.allwomenstalk.com/moral-values-to-teach-your-children/)
-- [reasons why chores are bad](https://parenting.allwomenstalk.com/reasons-to-get-your-kids-to-do-chores/)
 - [mixed kids girls](https://parenting.allwomenstalk.com/ways-to-train-your-children-for-the-future/)
+- [things to do with my daughter](https://parenting.allwomenstalk.com/best-things-you-can-do-for-your-children/)
+- [reasons why chores are bad](https://parenting.allwomenstalk.com/reasons-to-get-your-kids-to-do-chores/)
+- [choosing a babysitter](https://parenting.allwomenstalk.com/tips-on-how-to-choose-a-babysitter/)
+- [how to be part of a community](https://lifestyle.allwomenstalk.com/ways-teens-can-help-the-community/)
+- [good values for kids](https://parenting.allwomenstalk.com/moral-values-to-teach-your-children/)
 - [tolerance kids](https://parenting.allwomenstalk.com/ways-to-teach-kids-tolerance/)
-- [toddler cartoons list](https://parenting.allwomenstalk.com/cartoons-that-are-good-for-kids-to-watch/)
 - [teaching kids to cook](https://parenting.allwomenstalk.com/ways-to-teach-your-kids-to-cook/)
+- [toddler cartoons list](https://parenting.allwomenstalk.com/cartoons-that-are-good-for-kids-to-watch/)
 - [only child facts](https://parenting.allwomenstalk.com/facts-about-only-children-parents-should-know/)
 - [7 Easy Ways to Boost Your Child's Education ...](https://parenting.allwomenstalk.com/7-easy-ways-to-boost-your-childs-education/)
 - [7 Reasons Kids Need Chores ...](https://parenting.allwomenstalk.com/7-reasons-kids-need-chores/)

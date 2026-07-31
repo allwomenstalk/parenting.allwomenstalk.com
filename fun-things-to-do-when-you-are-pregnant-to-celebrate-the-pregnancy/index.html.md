@@ -42,15 +42,15 @@ These seven things can really help you to enjoy the fun aspects of pregnancy mor
 
 ## Related Posts
 
-- [going to be an aunt](https://parenting.allwomenstalk.com/wonderful-aspects-of-being-an-aunt/)
-- [pros and cons of being a stay at home mom](https://parenting.allwomenstalk.com/misconceptions-about-being-a-stay-at-home-mom/)
 - [preparing toddler for new baby](https://parenting.allwomenstalk.com/ways-to-prepare-your-toddler-for-a-new-baby/)
-- [traps names](https://parenting.allwomenstalk.com/traps-to-watch-for-when-choosing-a-baby-name/)
-- [mom friends](https://parenting.allwomenstalk.com/kinds-of-fellow-mom-friends-you-desperately-need-when-you-become-a-mom/)
-- [what to wear to wedding when pregnant](https://wedding.allwomenstalk.com/tips-for-choosing-a-wedding-dress-when-youre-pregnant/)
-- [essential nutrients for pregnancy](https://health.allwomenstalk.com/essential-nutrients-to-take-while-pregnant-interesting-facts-about-them/)
-- [johnson baby items](https://parenting.allwomenstalk.com/must-have-baby-products-from-johnson-johnson/)
 - [telling friends you are pregnant](https://parenting.allwomenstalk.com/totally-fun-ways-to-announce-your-pregnancy/)
+- [mom friends](https://parenting.allwomenstalk.com/kinds-of-fellow-mom-friends-you-desperately-need-when-you-become-a-mom/)
+- [pros and cons of being a stay at home mom](https://parenting.allwomenstalk.com/misconceptions-about-being-a-stay-at-home-mom/)
+- [what to wear to wedding when pregnant](https://wedding.allwomenstalk.com/tips-for-choosing-a-wedding-dress-when-youre-pregnant/)
+- [johnson baby items](https://parenting.allwomenstalk.com/must-have-baby-products-from-johnson-johnson/)
+- [going to be an aunt](https://parenting.allwomenstalk.com/wonderful-aspects-of-being-an-aunt/)
+- [traps names](https://parenting.allwomenstalk.com/traps-to-watch-for-when-choosing-a-baby-name/)
+- [essential nutrients for pregnancy](https://health.allwomenstalk.com/essential-nutrients-to-take-while-pregnant-interesting-facts-about-them/)
 - [when does extrusion reflex go away](https://parenting.allwomenstalk.com/sure-fire-signs-your-baby-is-ready-for-solid-foods/)
 - [10 Things Pregnant Women Should Know ...](https://parenting.allwomenstalk.com/10-things-pregnant-women-should-know/)
 - [7 Great Tips for the Mommy-to-Be ...](https://parenting.allwomenstalk.com/7-great-tips-for-the-mommy-to-be/)

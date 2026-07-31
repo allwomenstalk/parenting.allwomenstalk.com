@@ -42,16 +42,16 @@ These are some tips to help you when you are dealing with a stubborn child. Do y
 
 ## Related Posts
 
-- [oobleck recipe nz](https://parenting.allwomenstalk.com/gooey-science-experiments-to-do-with-your-kid/)
-- [Discover How to Avoid Being an Embarrassing Parent...](https://parenting.allwomenstalk.com/ways-to-avoid-being-an-embarrassing-parent/)
-- [what is food production?](https://food.allwomenstalk.com/ways-to-get-your-kids-interested-in-cooking/)
-- [myths about parenting](https://parenting.allwomenstalk.com/popular-myths-about-parenting-that-arent-true/)
-- [why am i jealous of my stepchildren](https://parenting.allwomenstalk.com/tips-for-when-your-partner-is-jealous-of-your-child/)
-- [biology doesn't make you a parent](https://parenting.allwomenstalk.com/best-parenting-infographics/)
-- [parenting hacks](https://parenting.allwomenstalk.com/gentle-parenting-hacks-that-really-work/)
-- [legos to build with your boyfriend](https://parenting.allwomenstalk.com/things-to-build-with-legos-that-your-kids-will-love/)
 - [teach the children christmas](https://parenting.allwomenstalk.com/ways-to-teach-children-about-giving-to-others-at-christmas/)
+- [oobleck recipe nz](https://parenting.allwomenstalk.com/gooey-science-experiments-to-do-with-your-kid/)
+- [parenting hacks](https://parenting.allwomenstalk.com/gentle-parenting-hacks-that-really-work/)
 - [characteristics of a little child](https://lifestyle.allwomenstalk.com/characteristics-of-a-controlling-parent/)
+- [what is food production?](https://food.allwomenstalk.com/ways-to-get-your-kids-interested-in-cooking/)
+- [why am i jealous of my stepchildren](https://parenting.allwomenstalk.com/tips-for-when-your-partner-is-jealous-of-your-child/)
+- [myths about parenting](https://parenting.allwomenstalk.com/popular-myths-about-parenting-that-arent-true/)
+- [legos to build with your boyfriend](https://parenting.allwomenstalk.com/things-to-build-with-legos-that-your-kids-will-love/)
+- [Discover How to Avoid Being an Embarrassing Parent...](https://parenting.allwomenstalk.com/ways-to-avoid-being-an-embarrassing-parent/)
+- [biology doesn't make you a parent](https://parenting.allwomenstalk.com/best-parenting-infographics/)
 - [7 Ways to Raise a Confident Kid ...](https://parenting.allwomenstalk.com/7-ways-to-raise-a-confident-kid/)
 - [7 Tips on Being a Parent to a Toddler ...](https://allwomenstalk.com/7-tips-on-being-a-parent-to-a-toddler/)
 

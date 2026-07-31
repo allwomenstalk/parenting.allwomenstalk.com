@@ -302,16 +302,16 @@ What's the best costume your child has ever worn for Halloween? The minions from
 
 ## Related Posts
 
-- [creative halloween snacks](https://food.allwomenstalk.com/creative-halloween-party-snacks-to-create-this-week/)
-- [bookworm halloween costume](https://lifestyle.allwomenstalk.com/ideas-for-literary-halloween-costumes/)
-- [scarecrow activities](https://diy.allwomenstalk.com/cute-homemade-scarecrows-for-fall-this-year/)
-- [decorate your pumpkin](https://diy.allwomenstalk.com/awesome-no-carve-ways-to-decorate-your-pumpkin-for-halloween/)
-- [halloween meals](https://food.allwomenstalk.com/delicious-halloween-food-ideas-for-your-celebration/)
 - [spooky cookies](https://desserts.allwomenstalk.com/spooky-cookies-to-bake-for-your-halloween-party/)
+- [decorate your pumpkin](https://diy.allwomenstalk.com/awesome-no-carve-ways-to-decorate-your-pumpkin-for-halloween/)
+- [creative halloween snacks](https://food.allwomenstalk.com/creative-halloween-party-snacks-to-create-this-week/)
 - [halloween lip](https://beauty.allwomenstalk.com/fantastically-creepy-halloween-lip-art-to-recreate-this-year/)
-- [halloween coffee art](https://food.allwomenstalk.com/this-baristas-spooky-latte-art-is-perfect-for-the-halloween-season/)
-- [male celebrity costumes](https://celebs.allwomenstalk.com/halloween-roundup-our-favorite-celebrity-costumes/)
 - [cat jack-o'-lanterns](https://parenting.allwomenstalk.com/spooky-jack-o-lanterns-you-can-carve-with-your-kids/)
+- [halloween meals](https://food.allwomenstalk.com/delicious-halloween-food-ideas-for-your-celebration/)
+- [scarecrow activities](https://diy.allwomenstalk.com/cute-homemade-scarecrows-for-fall-this-year/)
+- [bookworm halloween costume](https://lifestyle.allwomenstalk.com/ideas-for-literary-halloween-costumes/)
+- [male celebrity costumes](https://celebs.allwomenstalk.com/halloween-roundup-our-favorite-celebrity-costumes/)
+- [halloween coffee art](https://food.allwomenstalk.com/this-baristas-spooky-latte-art-is-perfect-for-the-halloween-season/)
 - [8 Hilarious Halloween Costumes ...](https://lifestyle.allwomenstalk.com/hilarious-halloween-costumes/)
 - [10 Awesome Halloween Party Ideas ...](https://lifestyle.allwomenstalk.com/awesome-halloween-party-ideas/)
 

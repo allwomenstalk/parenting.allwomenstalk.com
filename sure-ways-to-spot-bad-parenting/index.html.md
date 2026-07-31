@@ -43,15 +43,15 @@ Bad parenting is becoming more of an issue lately, isn't it? If you see signs of
 ## Related Posts
 
 - [homework meltdown](https://parenting.allwomenstalk.com/tips-to-get-through-homework-time-without-a-meltdown-from-you-or-your-kid/)
-- [how to love studying everyday](https://parenting.allwomenstalk.com/ways-to-help-your-kids-to-love-studying/)
-- [negotiate with parents](https://teen.allwomenstalk.com/helpful-tips-for-negotiating-with-your-parents/)
-- [don't fence me in dance moms](https://parenting.allwomenstalk.com/things-to-think-about-before-enrolling-your-daughter-in-ballet/)
-- [childhood myths told by parents](https://parenting.allwomenstalk.com/creepy-myths-that-might-be-scaring-your-kids/)
-- [make difference in the world](https://teen.allwomenstalk.com/ways-teens-can-make-a-difference-in-the-world/)
 - [how to discipline a child with oppositional defian...](https://parenting.allwomenstalk.com/ways-to-manage-oppositional-defiant-disorder-in-children/)
-- [tween tumblr](https://parenting.allwomenstalk.com/ways-to-tell-that-your-child-has-entered-the-terrible-tweens/)
 - [stay connected to family](https://lifestyle.allwomenstalk.com/ways-to-stay-connected-with-your-family/)
+- [negotiate with parents](https://teen.allwomenstalk.com/helpful-tips-for-negotiating-with-your-parents/)
 - [are parents responsible for their children's behav...](https://parenting.allwomenstalk.com/reasons-to-stop-blaming-parents-for-a-childs-misbehavior/)
+- [childhood myths told by parents](https://parenting.allwomenstalk.com/creepy-myths-that-might-be-scaring-your-kids/)
+- [how to love studying everyday](https://parenting.allwomenstalk.com/ways-to-help-your-kids-to-love-studying/)
+- [make difference in the world](https://teen.allwomenstalk.com/ways-teens-can-make-a-difference-in-the-world/)
+- [tween tumblr](https://parenting.allwomenstalk.com/ways-to-tell-that-your-child-has-entered-the-terrible-tweens/)
+- [don't fence me in dance moms](https://parenting.allwomenstalk.com/things-to-think-about-before-enrolling-your-daughter-in-ballet/)
 - [7 Most Frequent Parenting Mistakes ...](https://parenting.allwomenstalk.com/7-most-frequent-parenting-mistakes/)
 - [7 Times I Feel I'm a Bad Parent ...](https://parenting.allwomenstalk.com/7-times-i-feel-im-a-bad-parent/)
 

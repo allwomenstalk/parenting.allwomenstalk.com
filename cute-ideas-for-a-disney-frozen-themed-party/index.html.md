@@ -58,14 +58,14 @@ Are your little ones asking for a Disney Frozen themed party this year? What are
 
 - [how to celebrate your birthday](https://lifestyle.allwomenstalk.com/ways-to-celebrate-your-birthday/)
 - [two player card games for kids](https://lifestyle.allwomenstalk.com/great-and-fun-card-games-for-kids/)
-- [weird online tests](https://lifestyle.allwomenstalk.com/fun-online-quizzes-to-take-when-youre-bored-out-of-your-mind/)
-- [fun two person card games](https://lifestyle.allwomenstalk.com/ways-to-entertain-yourself-with-a-deck-of-cards/)
-- [legendary senior pranks](https://teen.allwomenstalk.com/hilarious-ideas-for-memorable-senior-year-pranks/)
 - [fun things to do with mom and daughter near me](https://parenting.allwomenstalk.com/fun-activities-to-do-with-your-daughter/)
 - [what types of parties are there](https://lifestyle.allwomenstalk.com/different-parties-to-host-for-friends-and-family-this-year/)
+- [fun two person card games](https://lifestyle.allwomenstalk.com/ways-to-entertain-yourself-with-a-deck-of-cards/)
+- [weird online tests](https://lifestyle.allwomenstalk.com/fun-online-quizzes-to-take-when-youre-bored-out-of-your-mind/)
 - [games with friends](https://lifestyle.allwomenstalk.com/interesting-party-games-to-play-with-your-friends/)
-- [movies for slumber party](https://lifestyle.allwomenstalk.com/creative-slumber-party-ideas-that-will-put-girly-movies-to-shame/)
+- [legendary senior pranks](https://teen.allwomenstalk.com/hilarious-ideas-for-memorable-senior-year-pranks/)
 - [teenager job ideas](https://teen.allwomenstalk.com/great-job-ideas-for-teenagers-that-are-worth-taking-up/)
+- [movies for slumber party](https://lifestyle.allwomenstalk.com/creative-slumber-party-ideas-that-will-put-girly-movies-to-shame/)
 - [7 Ideas for a Sweet 16 Birthday Party ...](https://lifestyle.allwomenstalk.com/ideas-for-a-sweet-16-birthday-party/)
 - [7 Party Themes for a Toddler ...](https://allwomenstalk.com/7-party-themes-for-a-toddler/)
 

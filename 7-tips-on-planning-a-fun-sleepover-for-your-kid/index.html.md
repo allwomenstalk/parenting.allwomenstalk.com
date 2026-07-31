@@ -44,16 +44,16 @@ Top Photo Credit: [chefpercaso](https://www.flickr.com/photos/chefpercaso/261651
 
 ## Related Posts
 
-- [shine for kids townsville](https://parenting.allwomenstalk.com/9-ways-to-help-your-child-shine-at-school/)
-- [teaching kids responsibility](https://parenting.allwomenstalk.com/7-ways-to-teach-kids-responsibility/)
-- [topics for women to discuss](https://parenting.allwomenstalk.com/topics-to-discuss-with-your-daughter/)
-- [graduation thanks for parents](https://parenting.allwomenstalk.com/7-ways-to-thank-your-parents/)
 - [chores for 9 year old](https://parenting.allwomenstalk.com/9-chores-your-kids-can-help-with/)
 - [parenting questions](https://parenting.allwomenstalk.com/parenting-questions-answered/)
-- [7 Reasons Kids Need Chores ...](https://parenting.allwomenstalk.com/7-reasons-kids-need-chores/)
-- [things we all do](https://parenting.allwomenstalk.com/30-things-many-children-like/)
+- [topics for women to discuss](https://parenting.allwomenstalk.com/topics-to-discuss-with-your-daughter/)
 - [what will you teach your children](https://parenting.allwomenstalk.com/top-7-things-to-teach-your-children/)
+- [things we all do](https://parenting.allwomenstalk.com/30-things-many-children-like/)
 - [Moving a Child from a Booster Seat to Seat Belts.....](https://parenting.allwomenstalk.com/moving-a-child-from-a-booster-seat-to-seat-belts/)
+- [shine for kids townsville](https://parenting.allwomenstalk.com/9-ways-to-help-your-child-shine-at-school/)
+- [teaching kids responsibility](https://parenting.allwomenstalk.com/7-ways-to-teach-kids-responsibility/)
+- [graduation thanks for parents](https://parenting.allwomenstalk.com/7-ways-to-thank-your-parents/)
+- [7 Reasons Kids Need Chores ...](https://parenting.allwomenstalk.com/7-reasons-kids-need-chores/)
 - [7 Ways to Get Your Child to Sleep ...](https://parenting.allwomenstalk.com/7-ways-to-get-your-child-to-sleep/)
 - [7 Tips on How to Host a Cool Party ...](https://lifestyle.allwomenstalk.com/tips-on-how-to-host-a-cool-party/)
 

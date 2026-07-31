@@ -42,16 +42,16 @@ Going through a pregnancy alone is difficult but you can do it. I have a lot of 
 
 ## Related Posts
 
-- [baby apps for new parents](https://apps.allwomenstalk.com/educational-apps-for-new-parents/)
-- [mom with a blog](https://parenting.allwomenstalk.com/great-mommy-blogs-to-help-you-with-your-journey-as-a-mom/)
-- [how to buy baby carrier](https://parenting.allwomenstalk.com/things-to-consider-when-buying-a-baby-carrier/)
-- [how to complain to mom about company](https://parenting.allwomenstalk.com/hilariously-silly-things-all-mothers-complain-about/)
-- [baby crib safety](https://parenting.allwomenstalk.com/rules-of-crib-safety-you-should-follow-with-your-baby/)
-- [babymoon quotes](https://travel.allwomenstalk.com/tips-to-enjoy-your-babymoon/)
-- [advice for moms going back to work](https://parenting.allwomenstalk.com/tips-for-when-you-miss-your-baby-after-returning-to-work/)
-- [sneaky mom](https://parenting.allwomenstalk.com/ways-to-sneak-in-exercise-with-a-newborn/)
 - [how to be a happier mum](https://parenting.allwomenstalk.com/ways-to-be-a-happier-mom/)
 - [life with twins](https://parenting.allwomenstalk.com/ways-having-twins-will-change-your-life/)
+- [advice for moms going back to work](https://parenting.allwomenstalk.com/tips-for-when-you-miss-your-baby-after-returning-to-work/)
+- [how to buy baby carrier](https://parenting.allwomenstalk.com/things-to-consider-when-buying-a-baby-carrier/)
+- [baby apps for new parents](https://apps.allwomenstalk.com/educational-apps-for-new-parents/)
+- [babymoon quotes](https://travel.allwomenstalk.com/tips-to-enjoy-your-babymoon/)
+- [how to complain to mom about company](https://parenting.allwomenstalk.com/hilariously-silly-things-all-mothers-complain-about/)
+- [baby crib safety](https://parenting.allwomenstalk.com/rules-of-crib-safety-you-should-follow-with-your-baby/)
+- [sneaky mom](https://parenting.allwomenstalk.com/ways-to-sneak-in-exercise-with-a-newborn/)
+- [mom with a blog](https://parenting.allwomenstalk.com/great-mommy-blogs-to-help-you-with-your-journey-as-a-mom/)
 - [7 Ways to Cope with Infertility ...](https://health.allwomenstalk.com/7-ways-to-cope-with-infertility/)
 - [7 Ways to Cope with a Miscarriage ...](https://health.allwomenstalk.com/7-ways-to-cope-with-a-miscarriage/)
 

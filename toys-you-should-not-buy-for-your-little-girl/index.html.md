@@ -42,15 +42,15 @@ Children's toys should be innocently educational with a little fun on the side, 
 
 ## Related Posts
 
-- [true friends don't](https://lifestyle.allwomenstalk.com/things-true-friends-dont-do/)
-- [why do i sneeze when cooking](https://food.allwomenstalk.com/things-you-should-not-do-while-cooking/)
-- [how to lose weight as a stay at home mom](https://parenting.allwomenstalk.com/worst-things-to-say-to-a-stay-at-home-mom/)
-- [things you should never tolerate in a relationship](https://love.allwomenstalk.com/things-you-should-never-tolerate-in-a-relationship-2/)
-- [lovepanky first date](https://love.allwomenstalk.com/annoying-girlfriend-habits-that-guys-dont-like/)
-- [should you brag in your college essay](https://teen.allwomenstalk.com/things-to-avoid-when-writing-a-college-essay/)
-- [which words should not be used in this essay?](https://teen.allwomenstalk.com/words-to-avoid-using-in-essays-to-get-higher-grades/)
-- [how to ruin a date in the first minute](https://funny.allwomenstalk.com/things-that-ruin-a-date-instantly/)
 - [what to say to a gurl](https://lifestyle.allwomenstalk.com/worst-things-a-girl-can-say-according-to-guys/)
+- [should you brag in your college essay](https://teen.allwomenstalk.com/things-to-avoid-when-writing-a-college-essay/)
+- [things you should never tolerate in a relationship](https://love.allwomenstalk.com/things-you-should-never-tolerate-in-a-relationship-2/)
+- [how to lose weight as a stay at home mom](https://parenting.allwomenstalk.com/worst-things-to-say-to-a-stay-at-home-mom/)
+- [true friends don't](https://lifestyle.allwomenstalk.com/things-true-friends-dont-do/)
+- [how to ruin a date in the first minute](https://funny.allwomenstalk.com/things-that-ruin-a-date-instantly/)
+- [why do i sneeze when cooking](https://food.allwomenstalk.com/things-you-should-not-do-while-cooking/)
+- [lovepanky first date](https://love.allwomenstalk.com/annoying-girlfriend-habits-that-guys-dont-like/)
+- [which words should not be used in this essay?](https://teen.allwomenstalk.com/words-to-avoid-using-in-essays-to-get-higher-grades/)
 - [stage of crushing](https://funny.allwomenstalk.com/the-absolute-worst-phases-of-having-a-crush/)
 - [7 Designer Bags I Would Never Ever Buy ...](https://bags.allwomenstalk.com/designer-bags-i-would-never-ever-buy/)
 - [7 Things NOT to Pack in Your Carry-on ...](https://allwomenstalk.com/7-things-not-to-pack-in-your-carry-on/)
