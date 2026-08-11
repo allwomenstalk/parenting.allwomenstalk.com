@@ -3,7 +3,7 @@ title: "7 Things to Sterilize before You Give It to Your Baby ..."
 description: "Bottles; Nipples; Pacifiers; Teething Toys; Nose Bulbs; More ..."
 url: "https://parenting.allwomenstalk.com/things-to-sterilize-before-you-give-it-to-your-baby/"
 category: "parenting"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # 7 Things to Sterilize before You Give It to Your Baby ...
@@ -45,13 +45,13 @@ Remember, it’s always a good idea to wash or clean anything before the first u
 - [helping out mommy](https://parenting.allwomenstalk.com/fabulous-ideas-for-helping-out-a-new-mom/)
 - [mom need a break](https://parenting.allwomenstalk.com/things-dads-can-do-to-give-mom-a-break/)
 - [pregnancy complaints](https://parenting.allwomenstalk.com/common-complaints-of-pregnancy-and-how-you-can-combat-them/)
-- [tips for baby registry](https://parenting.allwomenstalk.com/tips-for-getting-the-most-out-of-your-baby-registery/)
-- [like to play](https://parenting.allwomenstalk.com/things-that-all-babies-love-to-play-with-that-arent-toys/)
+- [tricked into having a baby](https://parenting.allwomenstalk.com/things-we-really-dont-need-for-a-baby-that-were-tricked-into-thinking-we-do/)
+- [should i be a stay at home mom quiz](https://parenting.allwomenstalk.com/best-and-worst-things-about-being-a-stay-at-home-mom/)
 - [realize baby](https://parenting.allwomenstalk.com/things-you-dont-realize-until-you-have-a-baby/)
+- [tips for baby registry](https://parenting.allwomenstalk.com/tips-for-getting-the-most-out-of-your-baby-registery/)
 - [baby first pictures ideas](https://parenting.allwomenstalk.com/adorable-newborn-photo-ideas/)
 - [scared to be a parent](https://parenting.allwomenstalk.com/ways-to-deal-with-fears-about-parenthood/)
-- [should i be a stay at home mom quiz](https://parenting.allwomenstalk.com/best-and-worst-things-about-being-a-stay-at-home-mom/)
-- [tricked into having a baby](https://parenting.allwomenstalk.com/things-we-really-dont-need-for-a-baby-that-were-tricked-into-thinking-we-do/)
+- [like to play](https://parenting.allwomenstalk.com/things-that-all-babies-love-to-play-with-that-arent-toys/)
 - [7 Foods to Avoid While Pregnant ...](https://parenting.allwomenstalk.com/7-foods-to-avoid-while-pregnant/)
 - [7 Things to Keep in Your Medicine Cabinet ...](https://allwomenstalk.com/7-things-to-keep-in-your-medicine-cabinet/)
 

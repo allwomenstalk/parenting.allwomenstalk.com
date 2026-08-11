@@ -3,7 +3,7 @@ title: "7 Tips to Get Your Kids Eating Healthy ..."
 description: "Involve the Whole Family; Personal Lists; Get Fresh; Infants; Pre-schoolers and Toddlers; More ..."
 url: "https://parenting.allwomenstalk.com/7-tips-to-get-your-kids-eating-healthy/"
 category: "parenting"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # 7 Tips to Get Your Kids Eating Healthy ...
@@ -44,16 +44,16 @@ Top Photo Credit: [laurenlemon](https://www.flickr.com/photos/renolauren/3372407
 
 ## Related Posts
 
-- [graduation thanks for parents](https://parenting.allwomenstalk.com/7-ways-to-thank-your-parents/)
-- [shine for kids townsville](https://parenting.allwomenstalk.com/9-ways-to-help-your-child-shine-at-school/)
-- [parenting questions](https://parenting.allwomenstalk.com/parenting-questions-answered/)
-- [7 Tips on Planning a Fun Sleepover for Your Kid .....](https://parenting.allwomenstalk.com/7-tips-on-planning-a-fun-sleepover-for-your-kid/)
-- [write any four problems that are faced by a workin...](https://parenting.allwomenstalk.com/8-horrifying-problems-faced-by-children-across-the-world/)
-- [what will you teach your children](https://parenting.allwomenstalk.com/top-7-things-to-teach-your-children/)
 - [teaching kids responsibility](https://parenting.allwomenstalk.com/7-ways-to-teach-kids-responsibility/)
-- [7 Reasons Kids Need Chores ...](https://parenting.allwomenstalk.com/7-reasons-kids-need-chores/)
-- [chores for 9 year old](https://parenting.allwomenstalk.com/9-chores-your-kids-can-help-with/)
+- [write any four problems that are faced by a workin...](https://parenting.allwomenstalk.com/8-horrifying-problems-faced-by-children-across-the-world/)
+- [7 Tips on Planning a Fun Sleepover for Your Kid .....](https://parenting.allwomenstalk.com/7-tips-on-planning-a-fun-sleepover-for-your-kid/)
+- [what will you teach your children](https://parenting.allwomenstalk.com/top-7-things-to-teach-your-children/)
+- [graduation thanks for parents](https://parenting.allwomenstalk.com/7-ways-to-thank-your-parents/)
 - [things we all do](https://parenting.allwomenstalk.com/30-things-many-children-like/)
+- [chores for 9 year old](https://parenting.allwomenstalk.com/9-chores-your-kids-can-help-with/)
+- [shine for kids townsville](https://parenting.allwomenstalk.com/9-ways-to-help-your-child-shine-at-school/)
+- [7 Reasons Kids Need Chores ...](https://parenting.allwomenstalk.com/7-reasons-kids-need-chores/)
+- [parenting questions](https://parenting.allwomenstalk.com/parenting-questions-answered/)
 - [7 Tips on Preventing Childhood Obesity. ...](https://health.allwomenstalk.com/7-tips-on-preventing-childhood-obesity/)
 - [8 Tips to Get Your Child to Eat Their Veggies ...](https://allwomenstalk.com/8-tips-to-get-your-child-to-eat-their-veggies/)
 
