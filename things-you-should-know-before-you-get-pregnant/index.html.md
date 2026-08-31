@@ -48,16 +48,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/7708640)
 
 ## Related Posts
 
+- [advice for stay at home moms](https://parenting.allwomenstalk.com/8-great-tips-for-stay-at-home-moms/)
 - [7 Most Popular Pregnancy Myths ...](https://parenting.allwomenstalk.com/7-most-popular-pregnancy-myths/)
-- [being a teenage mom](https://parenting.allwomenstalk.com/9-tips-for-real-teen-moms/)
-- [pregnancy nine months](https://parenting.allwomenstalk.com/facts-for-the-nine-months-youre-pregnant/)
-- [10 facts about breastfeeding](https://parenting.allwomenstalk.com/10-facts-on-breast-feeding/)
+- [the best exercises for pregnant women](https://parenting.allwomenstalk.com/best-exercises-for-pregnant-women/)
+- [how to prepare for baby arrival](https://parenting.allwomenstalk.com/ways-to-get-ready-for-your-babys-arrival/)
 - [7 Pregnancy Facts You Should Know ...](https://parenting.allwomenstalk.com/pregnancy-facts-you-should-know/)
 - [when to buy a crib](https://parenting.allwomenstalk.com/7-things-to-consider-before-buying-a-baby-crib/)
+- [10 facts about breastfeeding](https://parenting.allwomenstalk.com/10-facts-on-breast-feeding/)
+- [being a teenage mom](https://parenting.allwomenstalk.com/9-tips-for-real-teen-moms/)
+- [pregnancy nine months](https://parenting.allwomenstalk.com/facts-for-the-nine-months-youre-pregnant/)
 - [7 Baby Products You Don't Need to Buy ...](https://parenting.allwomenstalk.com/7-baby-products-you-dont-need-to-buy/)
-- [advice for stay at home moms](https://parenting.allwomenstalk.com/8-great-tips-for-stay-at-home-moms/)
-- [how to prepare for baby arrival](https://parenting.allwomenstalk.com/ways-to-get-ready-for-your-babys-arrival/)
-- [the best exercises for pregnant women](https://parenting.allwomenstalk.com/best-exercises-for-pregnant-women/)
 - [10 Things Pregnant Women Should Know ...](https://parenting.allwomenstalk.com/10-things-pregnant-women-should-know/)
 - [8 of the Worst Reasons to Get Pregnant ...](https://parenting.allwomenstalk.com/8-of-the-worst-reasons-to-get-pregnant/)
 

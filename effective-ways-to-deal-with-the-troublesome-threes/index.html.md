@@ -42,16 +42,16 @@ Do you have a three-year-old that is driving you bonkers? How are you coping wit
 
 ## Related Posts
 
+- [friend makes everything about her](https://lifestyle.allwomenstalk.com/tips-on-dealing-with-a-know-it-all-friend/)
 - [why do guys leave bruises](https://love.allwomenstalk.com/ways-to-deal-with-girls-hitting-on-your-man/)
 - [ways to torment someone](https://inspiration.allwomenstalk.com/ways-to-deal-with-people-who-annoy-you/)
+- [overcoming fear of intimacy](https://lifestyle.allwomenstalk.com/tips-for-overcoming-fears-of-intimacy-with-others/)
+- [recognizing manipulation](https://lifestyle.allwomenstalk.com/ways-to-recognize-manipulation/)
+- [why does my boyfriend hate me](https://love.allwomenstalk.com/tips-for-when-you-hate-your-daughters-boyfriend/)
+- [how to deal with a spouse who spends too much mone...](https://money.allwomenstalk.com/ways-to-deal-with-a-partner-who-spends-too-much/)
 - [7 friends group girl](https://inspiration.allwomenstalk.com/successful-ways-to-mix-your-diverse-group-of-friends/)
 - [when you confront someone and they turn it around ...](https://inspiration.allwomenstalk.com/tips-for-how-to-confront-someone-who-lied-to-you/)
-- [overcoming fear of intimacy](https://lifestyle.allwomenstalk.com/tips-for-overcoming-fears-of-intimacy-with-others/)
-- [why does my boyfriend hate me](https://love.allwomenstalk.com/tips-for-when-you-hate-your-daughters-boyfriend/)
 - [how to resolve a fight with your partner](https://love.allwomenstalk.com/creative-tips-on-how-to-resolve-an-argument-with-your-partner/)
-- [friend makes everything about her](https://lifestyle.allwomenstalk.com/tips-on-dealing-with-a-know-it-all-friend/)
-- [how to deal with a spouse who spends too much mone...](https://money.allwomenstalk.com/ways-to-deal-with-a-partner-who-spends-too-much/)
-- [recognizing manipulation](https://lifestyle.allwomenstalk.com/ways-to-recognize-manipulation/)
 - [7 Ways to Keep Toddler Twins out of Trouble ...](https://parenting.allwomenstalk.com/7-ways-to-keep-toddler-twins-out-of-trouble/)
 - [7 Wise Ways to Deal with a Persistent Ex ...](https://love.allwomenstalk.com/wise-ways-to-deal-with-a-persistent-ex/)
 

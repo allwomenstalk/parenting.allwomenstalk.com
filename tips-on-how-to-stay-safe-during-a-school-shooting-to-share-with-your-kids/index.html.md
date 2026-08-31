@@ -42,16 +42,16 @@ Do school shootings scare you? It’s enough to make me want to home school my k
 
 ## Related Posts
 
-- [seasonal holidays meaning](https://parenting.allwomenstalk.com/ways-your-kids-can-appreciate-the-true-meaning-of-the-holiday-season/)
-- [nearest ballet classes](https://parenting.allwomenstalk.com/things-to-think-of-before-considering-ballet-classes-for-your-children/)
-- [is it okay to be wrong](https://parenting.allwomenstalk.com/reasons-why-its-okay-to-make-mistakes-as-a-parent/)
-- [things to do with your son](https://parenting.allwomenstalk.com/things-to-do-for-your-son-that-he-will-never-forget/)
-- [protecting your child from cyberbullying](https://parenting.allwomenstalk.com/tips-on-how-to-protect-your-kids-from-cyberbullying/)
-- [childs party](https://parenting.allwomenstalk.com/ways-to-get-through-your-childs-birthday-party-with-your-sanity-intact/)
-- [how to improve creativity in kids](https://parenting.allwomenstalk.com/ways-to-increase-creativity-in-your-kids/)
 - [how to make christmas magical for 2 year old](https://parenting.allwomenstalk.com/ways-to-make-christmas-magical-for-your-kids/)
-- [communication tips for teens](https://parenting.allwomenstalk.com/tips-on-improving-communication-with-your-teenager/)
+- [childs party](https://parenting.allwomenstalk.com/ways-to-get-through-your-childs-birthday-party-with-your-sanity-intact/)
+- [protecting your child from cyberbullying](https://parenting.allwomenstalk.com/tips-on-how-to-protect-your-kids-from-cyberbullying/)
+- [nearest ballet classes](https://parenting.allwomenstalk.com/things-to-think-of-before-considering-ballet-classes-for-your-children/)
+- [seasonal holidays meaning](https://parenting.allwomenstalk.com/ways-your-kids-can-appreciate-the-true-meaning-of-the-holiday-season/)
+- [things to do with your son](https://parenting.allwomenstalk.com/things-to-do-for-your-son-that-he-will-never-forget/)
+- [is it okay to be wrong](https://parenting.allwomenstalk.com/reasons-why-its-okay-to-make-mistakes-as-a-parent/)
+- [how to improve creativity in kids](https://parenting.allwomenstalk.com/ways-to-increase-creativity-in-your-kids/)
 - [how to build a child's self esteem](https://parenting.allwomenstalk.com/tips-on-how-to-help-build-your-childs-self-esteem/)
+- [communication tips for teens](https://parenting.allwomenstalk.com/tips-on-improving-communication-with-your-teenager/)
 - [7 Tips on Protecting Your Family ...](https://parenting.allwomenstalk.com/7-tips-on-protecting-your-family/)
 - [7 Tips to See if Your Child is Picked on in School...](https://allwomenstalk.com/7-tips-to-see-if-your-child-is-picked-on-in-school/)
 

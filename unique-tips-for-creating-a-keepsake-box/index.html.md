@@ -42,16 +42,16 @@ So here's how to create the most memorable keepsake box - your children will lov
 
 ## Related Posts
 
-- [turkey wreath ideas](https://diy.allwomenstalk.com/challenge-yourself-to-create-these-thanksgiving-themed-wreaths/)
-- [letters design ideas](https://diy.allwomenstalk.com/youll-love-these-diy-projects-using-letters/)
-- [what to do with leftover baby food](https://diy.allwomenstalk.com/amazing-ways-to-reuse-leftover-baby-jars/)
-- [the ultimate gingerbread house](https://parenting.allwomenstalk.com/how-to-create-the-ultimate-gingerbread-house/)
-- [copper pipe diy planter](https://diy.allwomenstalk.com/small-and-beautiful-items-that-you-can-make-for-the-home-using-copper-pipes/)
-- [decorating stockings for christmas](https://diy.allwomenstalk.com/diy-stockings-thatll-spread-some-cheer/)
-- [mason jar snowman light](https://diy.allwomenstalk.com/you-cant-do-christmas-crafts-without-mason-jars/)
-- [old jars](https://diy.allwomenstalk.com/adorable-ways-to-reuse-your-jars/)
 - [snowman canvas painting ideas](https://diy.allwomenstalk.com/these-snowman-crafts-will-keep-you-busy-all-winter-break/)
+- [turkey wreath ideas](https://diy.allwomenstalk.com/challenge-yourself-to-create-these-thanksgiving-themed-wreaths/)
+- [the ultimate gingerbread house](https://parenting.allwomenstalk.com/how-to-create-the-ultimate-gingerbread-house/)
+- [old jars](https://diy.allwomenstalk.com/adorable-ways-to-reuse-your-jars/)
+- [decorating stockings for christmas](https://diy.allwomenstalk.com/diy-stockings-thatll-spread-some-cheer/)
 - [how to make old sweater look new](https://diy.allwomenstalk.com/easy-and-fabulous-way-to-recycle-old-sweaters/)
+- [what to do with leftover baby food](https://diy.allwomenstalk.com/amazing-ways-to-reuse-leftover-baby-jars/)
+- [copper pipe diy planter](https://diy.allwomenstalk.com/small-and-beautiful-items-that-you-can-make-for-the-home-using-copper-pipes/)
+- [mason jar snowman light](https://diy.allwomenstalk.com/you-cant-do-christmas-crafts-without-mason-jars/)
+- [letters design ideas](https://diy.allwomenstalk.com/youll-love-these-diy-projects-using-letters/)
 - [6 Ideas for Making Lovely Homemade Cards ...](https://lifestyle.allwomenstalk.com/ideas-for-making-lovely-homemade-cards/)
 - [7 Fabulous Scrapbook Ideas ...](https://allwomenstalk.com/7-fabulous-scrapbook-ideas/)
 

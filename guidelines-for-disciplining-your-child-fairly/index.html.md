@@ -42,16 +42,16 @@ Well ladies, these are the guidelines that I think everyone should follow when d
 
 ## Related Posts
 
-- [communication tips for teens](https://parenting.allwomenstalk.com/tips-on-improving-communication-with-your-teenager/)
-- [how to stay safe during a shooting](https://parenting.allwomenstalk.com/tips-on-how-to-stay-safe-during-a-school-shooting-to-share-with-your-kids/)
-- [seasonal holidays meaning](https://parenting.allwomenstalk.com/ways-your-kids-can-appreciate-the-true-meaning-of-the-holiday-season/)
-- [nearest ballet classes](https://parenting.allwomenstalk.com/things-to-think-of-before-considering-ballet-classes-for-your-children/)
-- [jobs that kids can do](https://lifestyle.allwomenstalk.com/real-work-from-home-jobs-you-can-do-with-kids/)
-- [things to do with your son](https://parenting.allwomenstalk.com/things-to-do-for-your-son-that-he-will-never-forget/)
 - [childs party](https://parenting.allwomenstalk.com/ways-to-get-through-your-childs-birthday-party-with-your-sanity-intact/)
-- [how to make christmas magical for 2 year old](https://parenting.allwomenstalk.com/ways-to-make-christmas-magical-for-your-kids/)
+- [things to do with your son](https://parenting.allwomenstalk.com/things-to-do-for-your-son-that-he-will-never-forget/)
+- [communication tips for teens](https://parenting.allwomenstalk.com/tips-on-improving-communication-with-your-teenager/)
+- [jobs that kids can do](https://lifestyle.allwomenstalk.com/real-work-from-home-jobs-you-can-do-with-kids/)
 - [kid pick clothes](https://parenting.allwomenstalk.com/reasons-to-let-your-kids-choose-their-own-clothes/)
+- [nearest ballet classes](https://parenting.allwomenstalk.com/things-to-think-of-before-considering-ballet-classes-for-your-children/)
+- [seasonal holidays meaning](https://parenting.allwomenstalk.com/ways-your-kids-can-appreciate-the-true-meaning-of-the-holiday-season/)
 - [why do parents embarrass you in public](https://parenting.allwomenstalk.com/too-cute-ways-your-kids-will-embarrass-you-in-public/)
+- [how to make christmas magical for 2 year old](https://parenting.allwomenstalk.com/ways-to-make-christmas-magical-for-your-kids/)
+- [how to stay safe during a shooting](https://parenting.allwomenstalk.com/tips-on-how-to-stay-safe-during-a-school-shooting-to-share-with-your-kids/)
 - [7 Tips to Improve Your Kid's Grades ...](https://parenting.allwomenstalk.com/tips-to-improve-your-kids-grades/)
 - [7 Ways to Be a Good Influence on Your Children ...](https://lifestyle.allwomenstalk.com/ways-to-be-a-good-influence-on-your-children/)
 

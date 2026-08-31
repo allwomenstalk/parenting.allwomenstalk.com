@@ -82,16 +82,16 @@ Having baby really does change your life. Sure, some of these changes aren’t e
 
 ## Related Posts
 
-- [baby first pictures ideas](https://parenting.allwomenstalk.com/adorable-newborn-photo-ideas/)
-- [helping out mommy](https://parenting.allwomenstalk.com/fabulous-ideas-for-helping-out-a-new-mom/)
-- [moms going back to college](https://lifestyle.allwomenstalk.com/tips-for-moms-going-back-to-school-after-a-break/)
-- [tips for baby registry](https://parenting.allwomenstalk.com/tips-for-getting-the-most-out-of-your-baby-registery/)
-- [tricked into having a baby](https://parenting.allwomenstalk.com/things-we-really-dont-need-for-a-baby-that-were-tricked-into-thinking-we-do/)
-- [scared to be a parent](https://parenting.allwomenstalk.com/ways-to-deal-with-fears-about-parenthood/)
-- [funny pregnancy facts](https://parenting.allwomenstalk.com/funny-and-infuriating-facts-about-being-pregnant-that-no-one-tells-you-about/)
 - [should i be a stay at home mom quiz](https://parenting.allwomenstalk.com/best-and-worst-things-about-being-a-stay-at-home-mom/)
-- [like to play](https://parenting.allwomenstalk.com/things-that-all-babies-love-to-play-with-that-arent-toys/)
+- [funny pregnancy facts](https://parenting.allwomenstalk.com/funny-and-infuriating-facts-about-being-pregnant-that-no-one-tells-you-about/)
+- [tips for baby registry](https://parenting.allwomenstalk.com/tips-for-getting-the-most-out-of-your-baby-registery/)
+- [moms going back to college](https://lifestyle.allwomenstalk.com/tips-for-moms-going-back-to-school-after-a-break/)
 - [dr seuss baby gifts](https://parenting.allwomenstalk.com/whimsical-ways-to-create-a-dr-seuss-baby-shower/)
+- [helping out mommy](https://parenting.allwomenstalk.com/fabulous-ideas-for-helping-out-a-new-mom/)
+- [baby first pictures ideas](https://parenting.allwomenstalk.com/adorable-newborn-photo-ideas/)
+- [tricked into having a baby](https://parenting.allwomenstalk.com/things-we-really-dont-need-for-a-baby-that-were-tricked-into-thinking-we-do/)
+- [like to play](https://parenting.allwomenstalk.com/things-that-all-babies-love-to-play-with-that-arent-toys/)
+- [scared to be a parent](https://parenting.allwomenstalk.com/ways-to-deal-with-fears-about-parenthood/)
 - [10 Things Pregnant Women Should Know ...](https://parenting.allwomenstalk.com/10-things-pregnant-women-should-know/)
 - [7 Things Parents Should Know ...](https://parenting.allwomenstalk.com/7-things-parents-should-know/)
 

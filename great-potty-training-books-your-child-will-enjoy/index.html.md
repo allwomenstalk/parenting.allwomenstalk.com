@@ -57,15 +57,15 @@ As you can see, there are a lot of great potty training books available. Are the
 ## Related Posts
 
 - [childhood stuff](https://lifestyle.allwomenstalk.com/childhood-mementos-you-should-keep/)
-- [my kids are lazy](https://parenting.allwomenstalk.com/ways-to-deal-when-your-child-is-lazy/)
-- [how much should i charge my son for rent](https://parenting.allwomenstalk.com/tips-to-help-you-decide-how-much-rent-to-charge-your-kids/)
-- [7 identical twins](https://parenting.allwomenstalk.com/tips-for-encouraging-individuality-in-twins/)
-- [open house survey questions](https://parenting.allwomenstalk.com/questions-to-ask-your-childs-teacher-at-open-house/)
-- [weird name spellings](https://parenting.allwomenstalk.com/reasons-to-be-cautious-about-giving-your-child-an-unusual-name/)
 - [woman with multiple baby fathers](https://parenting.allwomenstalk.com/reasons-not-to-be-ashamed-if-your-children-have-different-fathers/)
+- [7 identical twins](https://parenting.allwomenstalk.com/tips-for-encouraging-individuality-in-twins/)
+- [how much should i charge my son for rent](https://parenting.allwomenstalk.com/tips-to-help-you-decide-how-much-rent-to-charge-your-kids/)
+- [plane carseat](https://travel.allwomenstalk.com/important-reasons-to-take-your-childs-car-seat-on-a-plane/)
+- [my kids are lazy](https://parenting.allwomenstalk.com/ways-to-deal-when-your-child-is-lazy/)
+- [weird name spellings](https://parenting.allwomenstalk.com/reasons-to-be-cautious-about-giving-your-child-an-unusual-name/)
+- [open house survey questions](https://parenting.allwomenstalk.com/questions-to-ask-your-childs-teacher-at-open-house/)
 - [why do i hate studying so much](https://parenting.allwomenstalk.com/ways-to-encourage-a-child-who-hates-studying/)
 - [teenage attitudes](https://parenting.allwomenstalk.com/creative-and-successful-ways-of-dealing-with-teenage-attitude/)
-- [plane carseat](https://travel.allwomenstalk.com/important-reasons-to-take-your-childs-car-seat-on-a-plane/)
 - [7 Books for Your Child's Collection ...](https://parenting.allwomenstalk.com/books-for-your-childs-collection/)
 - [8 Ways to Encourage Your Children to Read ...](https://allwomenstalk.com/8-ways-to-encourage-your-children-to-read/)
 

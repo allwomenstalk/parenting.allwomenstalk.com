@@ -48,16 +48,16 @@ Top Photo Credit: [harryintheboro](https://www.flickr.com/photos/harryintheboro/
 
 ## Related Posts
 
-- [why do guys love feet](https://love.allwomenstalk.com/things-men-love-about-our-bodies/)
 - [7 Types of Unavailable Men ...](https://love.allwomenstalk.com/types-of-unavailable-men/)
-- [9 Things a Guy May Want from You ...](https://love.allwomenstalk.com/things-a-guy-may-want-from-you/)
-- [trivial things](https://love.allwomenstalk.com/love-tips-absolutely-trivial-things-about-you-that-guys-dont-care-about/)
-- [where can i find a man](https://love.allwomenstalk.com/places-to-meet-men-besides-the-bar/)
-- [hot facts about guys](https://love.allwomenstalk.com/facts-about-men/)
-- [if someone cheats with you will they cheat on you](https://love.allwomenstalk.com/things-men-say-when-they-cheat/)
 - [Talking to Boys in Bars](https://allwomenstalk.com/talking-to-boys-in-bars/)
-- [10 Cool Things about Men ...](https://love.allwomenstalk.com/10-cool-things-about-men/)
+- [9 Things a Guy May Want from You ...](https://love.allwomenstalk.com/things-a-guy-may-want-from-you/)
+- [why do guys love feet](https://love.allwomenstalk.com/things-men-love-about-our-bodies/)
 - [what's the difference between jam and jelly](https://lifestyle.allwomenstalk.com/quirky-things-men-love-about-women/)
+- [hot facts about guys](https://love.allwomenstalk.com/facts-about-men/)
+- [where can i find a man](https://love.allwomenstalk.com/places-to-meet-men-besides-the-bar/)
+- [10 Cool Things about Men ...](https://love.allwomenstalk.com/10-cool-things-about-men/)
+- [if someone cheats with you will they cheat on you](https://love.allwomenstalk.com/things-men-say-when-they-cheat/)
+- [trivial things](https://love.allwomenstalk.com/love-tips-absolutely-trivial-things-about-you-that-guys-dont-care-about/)
 - [8 Tips for Sexually Active Teenage Girls ...](https://allwomenstalk.com/8-tips-to-teenage-girls-that-are-having-sex/)
 - [10 Tips for Teenage Boys ...](https://allwomenstalk.com/10-tips-for-teenage-boys/)
 

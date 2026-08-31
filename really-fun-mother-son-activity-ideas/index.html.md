@@ -42,16 +42,16 @@ What are some fun mother-son activity ideas that you love doing together?
 
 ## Related Posts
 
-- [how to celebrate your birthday](https://lifestyle.allwomenstalk.com/ways-to-celebrate-your-birthday/)
-- [coconut stuff](https://food.allwomenstalk.com/things-to-do-with-coconut-that-are-simple-enough-for-anyone-to-do/)
-- [disneybounding ideas for couples](https://fashion.allwomenstalk.com/tips-for-disneybounding-for-a-fun-day-out/)
-- [two player card games for kids](https://lifestyle.allwomenstalk.com/great-and-fun-card-games-for-kids/)
-- [valentine's day games](https://parenting.allwomenstalk.com/fun-filled-and-educational-valentines-day-games-for-kids/)
-- [frozen themed food menu](https://parenting.allwomenstalk.com/cute-ideas-for-a-disney-frozen-themed-party/)
-- [bbq for a crowd](https://lifestyle.allwomenstalk.com/barbecue-activities-for-a-crowd-that-everyone-is-bound-to-enjoy/)
-- [legendary senior pranks](https://teen.allwomenstalk.com/hilarious-ideas-for-memorable-senior-year-pranks/)
 - [weird online tests](https://lifestyle.allwomenstalk.com/fun-online-quizzes-to-take-when-youre-bored-out-of-your-mind/)
+- [valentine's day games](https://parenting.allwomenstalk.com/fun-filled-and-educational-valentines-day-games-for-kids/)
+- [two player card games for kids](https://lifestyle.allwomenstalk.com/great-and-fun-card-games-for-kids/)
+- [disneybounding ideas for couples](https://fashion.allwomenstalk.com/tips-for-disneybounding-for-a-fun-day-out/)
+- [bbq for a crowd](https://lifestyle.allwomenstalk.com/barbecue-activities-for-a-crowd-that-everyone-is-bound-to-enjoy/)
+- [coconut stuff](https://food.allwomenstalk.com/things-to-do-with-coconut-that-are-simple-enough-for-anyone-to-do/)
+- [legendary senior pranks](https://teen.allwomenstalk.com/hilarious-ideas-for-memorable-senior-year-pranks/)
 - [fun two person card games](https://lifestyle.allwomenstalk.com/ways-to-entertain-yourself-with-a-deck-of-cards/)
+- [frozen themed food menu](https://parenting.allwomenstalk.com/cute-ideas-for-a-disney-frozen-themed-party/)
+- [how to celebrate your birthday](https://lifestyle.allwomenstalk.com/ways-to-celebrate-your-birthday/)
 - [8 Fun Things to do with Your Kids ...](https://allwomenstalk.com/8-fun-things-to-do-with-your-kids/)
 - [7 Ridiculously Fun Ideas for Kids ...](https://allwomenstalk.com/7-ridiculously-fun-ideas-for-kids/)
 

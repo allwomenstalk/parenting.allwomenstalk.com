@@ -112,16 +112,16 @@ Just because you're older doesn't mean you've run out of things to learn! Perfor
 
 ## Related Posts
 
-- [what's your favorite tradition](https://lifestyle.allwomenstalk.com/of-my-favorite-holiday-traditions/)
-- [doing things alone](https://lifestyle.allwomenstalk.com/enjoyable-ways-to-do-things-alone/)
-- [green items for kids](https://parenting.allwomenstalk.com/fun-green-activities-to-do-with-the-kids/)
-- [how to make money weekends](https://money.allwomenstalk.com/ways-for-teenagers-to-make-extra-cash-on-the-weekends/)
-- [how much does it cost to throw a house party](https://parenting.allwomenstalk.com/ways-to-throw-a-teenage-party-on-a-budget/)
-- [college coed parties](https://wedding.allwomenstalk.com/fun-ideas-for-a-co-ed-bachelorette-party/)
-- [what can you get for $5](https://money.allwomenstalk.com/things-to-do-for-5/)
-- [ideas first date](https://love.allwomenstalk.com/fun-first-date-ideas/)
 - [theme party for kids](https://lifestyle.allwomenstalk.com/fun-kids-birthday-party-themes/)
 - [things that are spontaneous](https://lifestyle.allwomenstalk.com/fun-spontaneous-things-to-do-as-an-adult/)
+- [how to make money weekends](https://money.allwomenstalk.com/ways-for-teenagers-to-make-extra-cash-on-the-weekends/)
+- [college coed parties](https://wedding.allwomenstalk.com/fun-ideas-for-a-co-ed-bachelorette-party/)
+- [ideas first date](https://love.allwomenstalk.com/fun-first-date-ideas/)
+- [what can you get for $5](https://money.allwomenstalk.com/things-to-do-for-5/)
+- [what's your favorite tradition](https://lifestyle.allwomenstalk.com/of-my-favorite-holiday-traditions/)
+- [how much does it cost to throw a house party](https://parenting.allwomenstalk.com/ways-to-throw-a-teenage-party-on-a-budget/)
+- [doing things alone](https://lifestyle.allwomenstalk.com/enjoyable-ways-to-do-things-alone/)
+- [green items for kids](https://parenting.allwomenstalk.com/fun-green-activities-to-do-with-the-kids/)
 - [5 Things Kids Can do in a Garden ...](https://gardening.allwomenstalk.com/5-things-kids-can-do-in-a-garden/)
 - [7 Homemade Natural Cleaners ...](https://allwomenstalk.com/7-homemade-natural-cleaners/)
 

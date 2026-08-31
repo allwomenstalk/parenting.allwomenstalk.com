@@ -56,15 +56,15 @@ What are some rock crafts for kids you have done before? Which of these ideas is
 
 ## Related Posts
 
-- [crafts with twigs](https://diy.allwomenstalk.com/fun-and-incredibly-crafty-things-that-you-can-make-using-twigs/)
-- [jar craft](https://diy.allwomenstalk.com/creative-mason-jar-diy-ideas-for-teens/)
-- [rainbow loom bracelet designs](https://diy.allwomenstalk.com/fun-rainbow-loom-bracelets-to-make/)
-- [valentine ideas for kids](https://diy.allwomenstalk.com/adorable-diy-valentines-day-ideas-for-kids/)
-- [duct tape creations](https://diy.allwomenstalk.com/awesome-duct-tape-crafts-to-try-today/)
 - [embroidered bracelet diy](https://diy.allwomenstalk.com/absolutely-darling-diy-embroidered-jewelry-to-make/)
 - [do it yourself gifts for boyfriend](https://diy.allwomenstalk.com/creative-diy-gifts-for-your-boyfriend/)
 - [make a throw](https://diy.allwomenstalk.com/beautiful-diy-throws-for-you-to-make/)
+- [duct tape creations](https://diy.allwomenstalk.com/awesome-duct-tape-crafts-to-try-today/)
+- [valentine ideas for kids](https://diy.allwomenstalk.com/adorable-diy-valentines-day-ideas-for-kids/)
+- [rainbow loom bracelet designs](https://diy.allwomenstalk.com/fun-rainbow-loom-bracelets-to-make/)
 - [yv craft supplies](https://diy.allwomenstalk.com/cool-ways-to-organize-your-craft-supplies/)
+- [jar craft](https://diy.allwomenstalk.com/creative-mason-jar-diy-ideas-for-teens/)
+- [crafts with twigs](https://diy.allwomenstalk.com/fun-and-incredibly-crafty-things-that-you-can-make-using-twigs/)
 - [popsicle stick crafts preschool](https://diy.allwomenstalk.com/great-popsicle-crafts-kids-can-make/)
 - [7 Great Halloween Crafts for Kids ...](https://allwomenstalk.com/7-great-halloween-crafts-for-kids/)
 - [7 Perfect Crafts for Teens ...](https://allwomenstalk.com/7-perfect-crafts-for-teens/)

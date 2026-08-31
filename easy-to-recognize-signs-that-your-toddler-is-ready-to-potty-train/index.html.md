@@ -42,16 +42,16 @@ Have you ever potty trained? I’ve done it three times now and I can promise yo
 
 ## Related Posts
 
-- [storytelling style](https://parenting.allwomenstalk.com/storytelling-styles-that-kids-enjoy/)
-- [computers games for toddlers](https://parenting.allwomenstalk.com/games-children-used-before-technology-came-along/)
-- [anger management skills for kids](https://parenting.allwomenstalk.com/ways-to-teach-your-child-anger-management-skills/)
-- [aspirations for your child](https://parenting.allwomenstalk.com/ways-to-help-your-child-achieve-their-future-goals-and-aspirations/)
-- [how's your relationship with your parents](https://teen.allwomenstalk.com/ways-to-improve-your-relationship-with-your-parents/)
 - [kids playing in the playground](https://fitness.allwomenstalk.com/exercises-you-can-do-at-the-playground-while-your-kids-play/)
-- [7 ways to build good relationship with my family](https://teen.allwomenstalk.com/ways-to-bond-with-your-parents/)
+- [how's your relationship with your parents](https://teen.allwomenstalk.com/ways-to-improve-your-relationship-with-your-parents/)
 - [missing grandparents](https://parenting.allwomenstalk.com/ways-to-fill-in-the-gaps-left-by-far-away-or-missing-grandparents/)
-- [babysitting kids games](https://teen.allwomenstalk.com/go-to-babysitting-games-to-entertain-the-kids/)
+- [aspirations for your child](https://parenting.allwomenstalk.com/ways-to-help-your-child-achieve-their-future-goals-and-aspirations/)
+- [storytelling style](https://parenting.allwomenstalk.com/storytelling-styles-that-kids-enjoy/)
 - [wearing activities](https://parenting.allwomenstalk.com/activities-that-your-kids-should-wear-a-helmet-for/)
+- [computers games for toddlers](https://parenting.allwomenstalk.com/games-children-used-before-technology-came-along/)
+- [7 ways to build good relationship with my family](https://teen.allwomenstalk.com/ways-to-bond-with-your-parents/)
+- [anger management skills for kids](https://parenting.allwomenstalk.com/ways-to-teach-your-child-anger-management-skills/)
+- [babysitting kids games](https://teen.allwomenstalk.com/go-to-babysitting-games-to-entertain-the-kids/)
 - [7 Ways to Make Your Little One Smile ...](https://parenting.allwomenstalk.com/7-ways-to-make-your-little-one-smile/)
 - [10 Things You Need to Know about Your Toddler ...](https://allwomenstalk.com/10-things-you-need-to-know-about-your-toddler/)
 

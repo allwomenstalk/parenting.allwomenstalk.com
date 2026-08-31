@@ -43,16 +43,16 @@ Dealing with a high-energy child can be difficult, especially coming up with som
 
 ## Related Posts
 
-- [why is my baby licking the floor](https://parenting.allwomenstalk.com/things-i-learned-from-my-1-year-old/)
 - [send a ball](https://parenting.allwomenstalk.com/things-to-mail-to-kids/)
-- [losing a parent you weren't close to quotes](https://inspiration.allwomenstalk.com/ways-to-cope-after-losing-a-parent-at-a-very-young-age/)
-- [therapy metaphors](https://health.allwomenstalk.com/short-therapeutic-metaphors-for-the-child-within/)
-- [apps to help kids talk](https://apps.allwomenstalk.com/best-apps-to-teach-your-child-to-read/)
-- [fraternal twins](https://parenting.allwomenstalk.com/tips-for-raising-fraternal-twins/)
-- [annoying tv shows](https://parenting.allwomenstalk.com/least-annoying-kid-shows-that-will-actually-teach-your-child-something/)
-- [i love being an only child](https://parenting.allwomenstalk.com/amazing-things-about-being-and-having-an-only-child/)
+- [why is my baby licking the floor](https://parenting.allwomenstalk.com/things-i-learned-from-my-1-year-old/)
 - [child wants to be vegetarian](https://parenting.allwomenstalk.com/ways-to-cope-with-a-vegetarian-child/)
+- [fraternal twins](https://parenting.allwomenstalk.com/tips-for-raising-fraternal-twins/)
+- [apps to help kids talk](https://apps.allwomenstalk.com/best-apps-to-teach-your-child-to-read/)
+- [annoying tv shows](https://parenting.allwomenstalk.com/least-annoying-kid-shows-that-will-actually-teach-your-child-something/)
 - [what to do when your child is bullying others](https://parenting.allwomenstalk.com/tips-for-when-your-child-is-bullying-other-kids-at-school/)
+- [therapy metaphors](https://health.allwomenstalk.com/short-therapeutic-metaphors-for-the-child-within/)
+- [i love being an only child](https://parenting.allwomenstalk.com/amazing-things-about-being-and-having-an-only-child/)
+- [losing a parent you weren't close to quotes](https://inspiration.allwomenstalk.com/ways-to-cope-after-losing-a-parent-at-a-very-young-age/)
 - [7 Fun Ways a Busy Mom Can Exercise ...](https://parenting.allwomenstalk.com/7-fun-ways-a-busy-mom-can-exercise/)
 - [7 Ways to Encourage Your Children to Be Fit ...](https://health.allwomenstalk.com/ways-to-encourage-your-children-to-be-fit/)
 

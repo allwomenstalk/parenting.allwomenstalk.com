@@ -46,15 +46,15 @@ These ideas are just a few of the things you will need to do in preparation for 
 
 ## Related Posts
 
+- [how to prepare your body for pregnancy after misca...](https://parenting.allwomenstalk.com/tips-for-preparing-to-get-pregnant-after-miscarriage/)
+- [flying while pregnant tips](https://parenting.allwomenstalk.com/tips-for-flying-while-pregnant/)
+- [factors to consider when naming a child](https://parenting.allwomenstalk.com/things-to-consider-before-naming-your-baby/)
+- [how to clean newborn toys](https://parenting.allwomenstalk.com/things-to-sterilize-before-you-give-it-to-your-baby/)
+- [can pedicure induce labor](https://parenting.allwomenstalk.com/ways-to-relax-while-pregnant/)
 - [emotionally ready for a baby](https://parenting.allwomenstalk.com/ways-to-mentally-prepare-for-a-baby/)
 - [pregnant and didnt know it](https://parenting.allwomenstalk.com/things-you-didnt-know-about-pregnancy/)
-- [flying while pregnant tips](https://parenting.allwomenstalk.com/tips-for-flying-while-pregnant/)
-- [how to prepare your body for pregnancy after misca...](https://parenting.allwomenstalk.com/tips-for-preparing-to-get-pregnant-after-miscarriage/)
-- [when to start buying maternity clothes](https://money.allwomenstalk.com/ways-to-avoid-buying-maternity-clothes/)
-- [factors to consider when naming a child](https://parenting.allwomenstalk.com/things-to-consider-before-naming-your-baby/)
-- [can pedicure induce labor](https://parenting.allwomenstalk.com/ways-to-relax-while-pregnant/)
-- [how to clean newborn toys](https://parenting.allwomenstalk.com/things-to-sterilize-before-you-give-it-to-your-baby/)
 - [baby diapers brands](https://parenting.allwomenstalk.com/best-diaper-brands-to-use/)
+- [when to start buying maternity clothes](https://money.allwomenstalk.com/ways-to-avoid-buying-maternity-clothes/)
 - [7 friends drawing](https://lifestyle.allwomenstalk.com/ways-to-stay-connected-with-your-new-mom-friends/)
 - [7 Extremely Important Things to do 24 Hours before...](https://wedding.allwomenstalk.com/extremely-important-things-to-do-24-hours-before-your-highly-anticipated/)
 - [Essential 10: What to Pack for the Hospital when H...](https://parenting.allwomenstalk.com/essential-what-to-pack-for-the-hospital-when-having-a-baby/)

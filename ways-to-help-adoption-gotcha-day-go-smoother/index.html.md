@@ -42,16 +42,16 @@ These tips can help your adoption Gotcha Day go easier. Do you have any tips to 
 
 ## Related Posts
 
-- [bear pose in yoga](https://parenting.allwomenstalk.com/yoga-poses-that-are-beneficial-for-pregnancy/)
-- [how to tell your husband you want a baby when he d...](https://parenting.allwomenstalk.com/things-to-do-when-you-want-a-baby-and-he-doesnt/)
-- [things to think about before having kids](https://parenting.allwomenstalk.com/things-to-think-about-before-having-children/)
 - [advice for single mothers](https://parenting.allwomenstalk.com/pieces-of-helpful-advice-for-single-moms/)
-- [he wants a baby i don't](https://parenting.allwomenstalk.com/things-to-do-when-he-wants-a-baby-and-you-dont/)
-- [baby's first christmas jammies](https://parenting.allwomenstalk.com/tips-for-making-babys-first-christmas-special/)
-- [harmful ingredients in baby products](https://parenting.allwomenstalk.com/common-baby-products-that-contain-harmful-ingredients/)
+- [how to tell your husband you want a baby when he d...](https://parenting.allwomenstalk.com/things-to-do-when-you-want-a-baby-and-he-doesnt/)
 - [mom burnout signs](https://parenting.allwomenstalk.com/signs-of-mommy-burnout-and-how-to-cope/)
-- [cool baby announcements](https://parenting.allwomenstalk.com/cool-birth-announcements-that-let-you-share-your-joy/)
+- [he wants a baby i don't](https://parenting.allwomenstalk.com/things-to-do-when-he-wants-a-baby-and-you-dont/)
 - [sweet finish crawl](https://parenting.allwomenstalk.com/dad-captures-babys-first-crawl-but-what-happens-after-is-the-cherry-on-top-to-this-sweet-moment/)
+- [bear pose in yoga](https://parenting.allwomenstalk.com/yoga-poses-that-are-beneficial-for-pregnancy/)
+- [baby's first christmas jammies](https://parenting.allwomenstalk.com/tips-for-making-babys-first-christmas-special/)
+- [cool baby announcements](https://parenting.allwomenstalk.com/cool-birth-announcements-that-let-you-share-your-joy/)
+- [things to think about before having kids](https://parenting.allwomenstalk.com/things-to-think-about-before-having-children/)
+- [harmful ingredients in baby products](https://parenting.allwomenstalk.com/common-baby-products-that-contain-harmful-ingredients/)
 - [8 Ways to Help New Parents ...](https://parenting.allwomenstalk.com/8-ways-to-help-new-parents/)
 - [7 Things Adoptive Parents Need to Know ...](https://parenting.allwomenstalk.com/7-things-adoptive-parents-need-to-know/)
 

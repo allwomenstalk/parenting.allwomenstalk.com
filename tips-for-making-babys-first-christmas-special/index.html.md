@@ -44,16 +44,16 @@ What were some things you did to make baby’s first Christmas special if you ha
 
 ## Related Posts
 
-- [bear pose in yoga](https://parenting.allwomenstalk.com/yoga-poses-that-are-beneficial-for-pregnancy/)
-- [how to tell your husband you want a baby when he d...](https://parenting.allwomenstalk.com/things-to-do-when-you-want-a-baby-and-he-doesnt/)
-- [things to think about before having kids](https://parenting.allwomenstalk.com/things-to-think-about-before-having-children/)
-- [mom burnout signs](https://parenting.allwomenstalk.com/signs-of-mommy-burnout-and-how-to-cope/)
+- [emojinal](https://lifestyle.allwomenstalk.com/ways-to-get-so-emojinal-baby/)
 - [lonely stay at home mom quotes](https://parenting.allwomenstalk.com/ways-to-beat-the-isolation-of-being-a-stay-at-home-mom/)
 - [energetic mom](https://parenting.allwomenstalk.com/ways-to-have-more-energy-as-a-mom/)
-- [emojinal](https://lifestyle.allwomenstalk.com/ways-to-get-so-emojinal-baby/)
 - [he wants a baby i don't](https://parenting.allwomenstalk.com/things-to-do-when-he-wants-a-baby-and-you-dont/)
-- [harmful ingredients in baby products](https://parenting.allwomenstalk.com/common-baby-products-that-contain-harmful-ingredients/)
+- [mom burnout signs](https://parenting.allwomenstalk.com/signs-of-mommy-burnout-and-how-to-cope/)
+- [things to think about before having kids](https://parenting.allwomenstalk.com/things-to-think-about-before-having-children/)
 - [wise mom](https://parenting.allwomenstalk.com/moms-are-wise-reasons-to-listen-to-yours/)
+- [harmful ingredients in baby products](https://parenting.allwomenstalk.com/common-baby-products-that-contain-harmful-ingredients/)
+- [how to tell your husband you want a baby when he d...](https://parenting.allwomenstalk.com/things-to-do-when-you-want-a-baby-and-he-doesnt/)
+- [bear pose in yoga](https://parenting.allwomenstalk.com/yoga-poses-that-are-beneficial-for-pregnancy/)
 - [7 Ways to Make Your Little One Smile ...](https://parenting.allwomenstalk.com/7-ways-to-make-your-little-one-smile/)
 - [7 Great Tips for the Mommy-to-Be ...](https://parenting.allwomenstalk.com/7-great-tips-for-the-mommy-to-be/)
 

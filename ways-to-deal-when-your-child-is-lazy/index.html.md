@@ -42,16 +42,16 @@ Laziness can be a very difficult thing for parents to deal with in their childre
 
 ## Related Posts
 
-- [spanking at work](https://parenting.allwomenstalk.com/alternatives-to-spanking-that-work/)
-- [spend time with grandparents quotes](https://parenting.allwomenstalk.com/reasons-your-kids-should-spend-time-with-their-grandparents/)
 - [oobleck recipe nz](https://parenting.allwomenstalk.com/gooey-science-experiments-to-do-with-your-kid/)
-- [how to deal with stubborn child](https://parenting.allwomenstalk.com/tips-for-dealing-with-a-stubborn-child/)
-- [how to start a babysitting service](https://money.allwomenstalk.com/simple-ways-to-start-your-own-babysitting-business/)
-- [characteristics of a little child](https://lifestyle.allwomenstalk.com/characteristics-of-a-controlling-parent/)
-- [teenage attitudes](https://parenting.allwomenstalk.com/creative-and-successful-ways-of-dealing-with-teenage-attitude/)
-- [what is food production?](https://food.allwomenstalk.com/ways-to-get-your-kids-interested-in-cooking/)
-- [parenting hacks](https://parenting.allwomenstalk.com/gentle-parenting-hacks-that-really-work/)
 - [plane carseat](https://travel.allwomenstalk.com/important-reasons-to-take-your-childs-car-seat-on-a-plane/)
+- [teenage attitudes](https://parenting.allwomenstalk.com/creative-and-successful-ways-of-dealing-with-teenage-attitude/)
+- [parenting hacks](https://parenting.allwomenstalk.com/gentle-parenting-hacks-that-really-work/)
+- [spend time with grandparents quotes](https://parenting.allwomenstalk.com/reasons-your-kids-should-spend-time-with-their-grandparents/)
+- [spanking at work](https://parenting.allwomenstalk.com/alternatives-to-spanking-that-work/)
+- [how to start a babysitting service](https://money.allwomenstalk.com/simple-ways-to-start-your-own-babysitting-business/)
+- [how to deal with stubborn child](https://parenting.allwomenstalk.com/tips-for-dealing-with-a-stubborn-child/)
+- [what is food production?](https://food.allwomenstalk.com/ways-to-get-your-kids-interested-in-cooking/)
+- [characteristics of a little child](https://lifestyle.allwomenstalk.com/characteristics-of-a-controlling-parent/)
 - [7 Ways to Teach Kids Responsibility ...](https://parenting.allwomenstalk.com/7-ways-to-teach-kids-responsibility/)
 - [8 Ways to Motivate Your Child ...](https://parenting.allwomenstalk.com/8-ways-to-motivate-your-child/)
 

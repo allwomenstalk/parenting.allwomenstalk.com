@@ -316,16 +316,16 @@ What's your most memorable Lego creation? My kids and I once spent an entire aft
 
 ## Related Posts
 
-- [cute diy decorations](https://diy.allwomenstalk.com/cute-diy-christmas-decorations-you-can-make-at-home/)
 - [making table runners](https://diy.allwomenstalk.com/table-runners-you-can-make-yourself/)
-- [how to decorate wooden snowflakes](https://diy.allwomenstalk.com/snowflake-crafts-to-make-this-winter-something-to-remember/)
-- [styrofoam christmas tree craft ideas](https://diy.allwomenstalk.com/diy-christmas-trees-of-all-sorts/)
-- [diy fabric crafts](https://diy.allwomenstalk.com/fabric-crafts-that-youll-love-sew-much/)
-- [trash to treasure crafts](https://diy.allwomenstalk.com/trash-to-treasure-projects-to-transform-junk-like-you-wont-believe/)
-- [folding paper napkin](https://food.allwomenstalk.com/tutorials-for-how-to-fold-napkins/)
 - [ideas for decorating pine cones](https://diy.allwomenstalk.com/pine-cone-crafts-to-add-a-seasonal-touch-to-your-home/)
+- [styrofoam christmas tree craft ideas](https://diy.allwomenstalk.com/diy-christmas-trees-of-all-sorts/)
+- [folding paper napkin](https://food.allwomenstalk.com/tutorials-for-how-to-fold-napkins/)
+- [trash to treasure crafts](https://diy.allwomenstalk.com/trash-to-treasure-projects-to-transform-junk-like-you-wont-believe/)
 - [itty bitty advent calendar](https://diy.allwomenstalk.com/ideas-for-your-advent-calendar-this-year/)
 - [soapstone coasters](https://diy.allwomenstalk.com/awesome-sets-of-coasters-you-can-make-at-home/)
+- [diy fabric crafts](https://diy.allwomenstalk.com/fabric-crafts-that-youll-love-sew-much/)
+- [cute diy decorations](https://diy.allwomenstalk.com/cute-diy-christmas-decorations-you-can-make-at-home/)
+- [how to decorate wooden snowflakes](https://diy.allwomenstalk.com/snowflake-crafts-to-make-this-winter-something-to-remember/)
 - [10 Educational Toys for Your 3 Year-Old ...](https://parenting.allwomenstalk.com/10-educational-toys-for-your-3-year-old/)
 - [8 Free Craft Items for Kids ...](https://parenting.allwomenstalk.com/8-free-craft-items-for-kids/)
 

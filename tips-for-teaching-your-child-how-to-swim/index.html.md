@@ -42,16 +42,16 @@ Have you ever had a really hard time teaching your child how to swim? Can you th
 
 ## Related Posts
 
-- [artificial consequences definition](https://parenting.allwomenstalk.com/techniques-to-teach-your-child-to-behave-acceptably/)
-- [apps to help kids talk](https://apps.allwomenstalk.com/best-apps-to-teach-your-child-to-read/)
-- [high energy games for kids](https://parenting.allwomenstalk.com/fun-activities-for-high-energy-kids-that-will-keep-them-healthy-and-calm/)
+- [i love being an only child](https://parenting.allwomenstalk.com/amazing-things-about-being-and-having-an-only-child/)
 - [moms favorite things](https://parenting.allwomenstalk.com/of-my-favorite-things-about-being-a-parent/)
-- [therapy metaphors](https://health.allwomenstalk.com/short-therapeutic-metaphors-for-the-child-within/)
+- [artificial consequences definition](https://parenting.allwomenstalk.com/techniques-to-teach-your-child-to-behave-acceptably/)
+- [high energy games for kids](https://parenting.allwomenstalk.com/fun-activities-for-high-energy-kids-that-will-keep-them-healthy-and-calm/)
 - [send a ball](https://parenting.allwomenstalk.com/things-to-mail-to-kids/)
 - [fraternal twins](https://parenting.allwomenstalk.com/tips-for-raising-fraternal-twins/)
 - [child wants to be vegetarian](https://parenting.allwomenstalk.com/ways-to-cope-with-a-vegetarian-child/)
 - [what to do when your child is bullying others](https://parenting.allwomenstalk.com/tips-for-when-your-child-is-bullying-other-kids-at-school/)
-- [i love being an only child](https://parenting.allwomenstalk.com/amazing-things-about-being-and-having-an-only-child/)
+- [therapy metaphors](https://health.allwomenstalk.com/short-therapeutic-metaphors-for-the-child-within/)
+- [apps to help kids talk](https://apps.allwomenstalk.com/best-apps-to-teach-your-child-to-read/)
 - [Top 7 Things to Teach Your Children ...](https://parenting.allwomenstalk.com/top-7-things-to-teach-your-children/)
 - [7 Easy Ways to Boost Your Child's Education ...](https://parenting.allwomenstalk.com/7-easy-ways-to-boost-your-childs-education/)
 

@@ -42,16 +42,16 @@ I wouldn't change my upbringing for anything. Sure, my parents were sometimes ov
 
 ## Related Posts
 
-- [give two reasons why yoga instructors should becom...](https://fitness.allwomenstalk.com/benefits-of-becoming-a-certified-yoga-teacher/)
-- [importance of notebook](https://lifestyle.allwomenstalk.com/smart-reasons-to-carry-a-notebook-always/)
-- [7 girlfriends](https://travel.allwomenstalk.com/reasons-to-go-on-holiday-with-your-girlfriends/)
-- [why is shrimp so good](https://food.allwomenstalk.com/awesome-reasons-why-you-should-buy-shrimp-today/)
-- [passion is more important than wealth](https://inspiration.allwomenstalk.com/reasons-why-following-your-passion-is-more-important-than-money/)
 - [what teas help sleep](https://health.allwomenstalk.com/reasons-you-should-have-a-tea-party-today/)
+- [importance of notebook](https://lifestyle.allwomenstalk.com/smart-reasons-to-carry-a-notebook-always/)
 - [what is the best thing about being a teenager](https://teen.allwomenstalk.com/best-things-about-being-a-teenager-in-the-world-today/)
-- [history of taking husband's last name](https://love.allwomenstalk.com/reasons-to-take-your-husbands-last-name/)
-- [indulge in food](https://diet.allwomenstalk.com/reasons-why-its-ok-to-indulge-now-and-then/)
 - [take up yoga](https://fitness.allwomenstalk.com/healthy-reasons-to-take-up-yoga/)
+- [why is shrimp so good](https://food.allwomenstalk.com/awesome-reasons-why-you-should-buy-shrimp-today/)
+- [give two reasons why yoga instructors should becom...](https://fitness.allwomenstalk.com/benefits-of-becoming-a-certified-yoga-teacher/)
+- [indulge in food](https://diet.allwomenstalk.com/reasons-why-its-ok-to-indulge-now-and-then/)
+- [history of taking husband's last name](https://love.allwomenstalk.com/reasons-to-take-your-husbands-last-name/)
+- [7 girlfriends](https://travel.allwomenstalk.com/reasons-to-go-on-holiday-with-your-girlfriends/)
+- [passion is more important than wealth](https://inspiration.allwomenstalk.com/reasons-why-following-your-passion-is-more-important-than-money/)
 - [8 Benefits of Holidaying Alone ...](https://travel.allwomenstalk.com/8-benefits-of-holidaying-alone/)
 - [7 Reasons to Love Single Life ...](https://lifestyle.allwomenstalk.com/reasons-to-love-single-life/)
 

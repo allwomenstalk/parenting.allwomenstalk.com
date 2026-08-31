@@ -90,16 +90,16 @@ The experience as a whole isn't meant to be a cakewalk. It's a journey of growth
 
 ## Related Posts
 
-- [things to cherish](https://parenting.allwomenstalk.com/things-to-cherish-before-baby-comes/)
-- [mommy meetup](https://parenting.allwomenstalk.com/the-benefits-of-mommy-meetup-groups/)
-- [chaos mother](https://parenting.allwomenstalk.com/tips-to-cope-as-a-new-mom/)
-- [surrogacy in the united states for everyone](https://parenting.allwomenstalk.com/us-surrogacy-open-to-everyone/)
 - [how to survive as a single mother](https://parenting.allwomenstalk.com/pro-tips-to-survive-as-a-single-mom/)
-- [downsides of breastfeeding](https://parenting.allwomenstalk.com/downsides-of-breastfeeding/)
-- [fit in pregnancy](https://fitness.allwomenstalk.com/ways-to-say-fit-during-pregnancy/)
-- [work from home freedom](https://parenting.allwomenstalk.com/biggest-freedoms-of-being-a-work-from-home-parent-you-never-realized/)
-- [freedom moms](https://parenting.allwomenstalk.com/how-to-keep-your-freedom-and-still-be-a-good-mother/)
+- [mommy meetup](https://parenting.allwomenstalk.com/the-benefits-of-mommy-meetup-groups/)
+- [surrogacy in the united states for everyone](https://parenting.allwomenstalk.com/us-surrogacy-open-to-everyone/)
 - [taotronics humidifier cleaning](https://parenting.allwomenstalk.com/taotronics-baby-humidifier-a-real-review-from-a-real-mom/)
+- [work from home freedom](https://parenting.allwomenstalk.com/biggest-freedoms-of-being-a-work-from-home-parent-you-never-realized/)
+- [fit in pregnancy](https://fitness.allwomenstalk.com/ways-to-say-fit-during-pregnancy/)
+- [downsides of breastfeeding](https://parenting.allwomenstalk.com/downsides-of-breastfeeding/)
+- [chaos mother](https://parenting.allwomenstalk.com/tips-to-cope-as-a-new-mom/)
+- [freedom moms](https://parenting.allwomenstalk.com/how-to-keep-your-freedom-and-still-be-a-good-mother/)
+- [things to cherish](https://parenting.allwomenstalk.com/things-to-cherish-before-baby-comes/)
 - [7 Secrets of Motherhood ...](https://parenting.allwomenstalk.com/7-secrets-of-motherhood/)
 - [7 Things New Moms May Not Know ...](https://parenting.allwomenstalk.com/7-things-new-moms-may-not-know/)
 

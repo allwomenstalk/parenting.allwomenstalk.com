@@ -179,16 +179,16 @@ What's your favorite playroom idea? Please feel free to share any other great ti
 
 ## Related Posts
 
-- [world teachers day gifts](https://inspiration.allwomenstalk.com/different-ways-to-celebrate-world-teachers-day/)
-- [childish date ideas](https://love.allwomenstalk.com/playful-date-ideas-to-bring-out-your-inner-child/)
 - [dinner buffet menus](https://food.allwomenstalk.com/fall-party-buffet-menu-ideas/)
+- [free parking hollywood walk of fame](https://travel.allwomenstalk.com/fun-free-things-to-do-in-los-angeles/)
+- [world teachers day gifts](https://inspiration.allwomenstalk.com/different-ways-to-celebrate-world-teachers-day/)
 - [cake made out of watermelon](https://food.allwomenstalk.com/fun-things-to-make-with-a-watermelon/)
-- [fun activities for singles](https://lifestyle.allwomenstalk.com/exciting-things-to-try-while-youre-still-single/)
+- [childish date ideas](https://love.allwomenstalk.com/playful-date-ideas-to-bring-out-your-inner-child/)
 - [pinktober activities](https://lifestyle.allwomenstalk.com/pink-activities-to-celebrate-breast-cancer-awareness-month/)
+- [fun activities for singles](https://lifestyle.allwomenstalk.com/exciting-things-to-try-while-youre-still-single/)
 - [what to do on a 16th birthday](https://teen.allwomenstalk.com/ways-to-celebrate-your-sweet-16-birthday/)
 - [activities that don't involve food](https://lifestyle.allwomenstalk.com/fun-fall-activities-that-dont-involve-food/)
 - [babysitting activity ideas](https://lifestyle.allwomenstalk.com/fall-activities-to-do-when-babysitting/)
-- [free parking hollywood walk of fame](https://travel.allwomenstalk.com/fun-free-things-to-do-in-los-angeles/)
 - [8 Tips on Decorating a Child's Room ...](https://allwomenstalk.com/8-tips-on-decorating-a-childs-room/)
 - [9 Best Accessories for a Kid's Room ...](https://allwomenstalk.com/9-best-accessories-for-a-kids-room/)
 

@@ -175,16 +175,16 @@ How did you announce your baby's birth? I admit that I didn't get announcements 
 
 ## Related Posts
 
-- [baby's first christmas jammies](https://parenting.allwomenstalk.com/tips-for-making-babys-first-christmas-special/)
+- [mom burnout signs](https://parenting.allwomenstalk.com/signs-of-mommy-burnout-and-how-to-cope/)
 - [he wants a baby i don't](https://parenting.allwomenstalk.com/things-to-do-when-he-wants-a-baby-and-you-dont/)
+- [how to tell your husband you want a baby when he d...](https://parenting.allwomenstalk.com/things-to-do-when-you-want-a-baby-and-he-doesnt/)
+- [harmful ingredients in baby products](https://parenting.allwomenstalk.com/common-baby-products-that-contain-harmful-ingredients/)
+- [things to think about before having kids](https://parenting.allwomenstalk.com/things-to-think-about-before-having-children/)
+- [baby's first christmas jammies](https://parenting.allwomenstalk.com/tips-for-making-babys-first-christmas-special/)
 - [bear pose in yoga](https://parenting.allwomenstalk.com/yoga-poses-that-are-beneficial-for-pregnancy/)
+- [energetic mom](https://parenting.allwomenstalk.com/ways-to-have-more-energy-as-a-mom/)
 - [lonely stay at home mom quotes](https://parenting.allwomenstalk.com/ways-to-beat-the-isolation-of-being-a-stay-at-home-mom/)
 - [emojinal](https://lifestyle.allwomenstalk.com/ways-to-get-so-emojinal-baby/)
-- [things to think about before having kids](https://parenting.allwomenstalk.com/things-to-think-about-before-having-children/)
-- [energetic mom](https://parenting.allwomenstalk.com/ways-to-have-more-energy-as-a-mom/)
-- [harmful ingredients in baby products](https://parenting.allwomenstalk.com/common-baby-products-that-contain-harmful-ingredients/)
-- [mom burnout signs](https://parenting.allwomenstalk.com/signs-of-mommy-burnout-and-how-to-cope/)
-- [how to tell your husband you want a baby when he d...](https://parenting.allwomenstalk.com/things-to-do-when-you-want-a-baby-and-he-doesnt/)
 - [8 Gorgeous Wedding Invitations ...](https://allwomenstalk.com/8-gorgeous-wedding-invitations/)
 - [7 Excellent Gender Reveal Party Ideas ...](https://lifestyle.allwomenstalk.com/excellent-gender-reveal-party-ideas/)
 

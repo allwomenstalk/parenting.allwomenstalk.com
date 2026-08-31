@@ -37,16 +37,16 @@ What's your favorite baby name?
 
 ## Related Posts
 
-- [kid cudio](https://lifestyle.allwomenstalk.com/how-to-throw-an-amazing-kids-party/)
-- [why first born are more intelligent](https://lifestyle.allwomenstalk.com/science-says-the-first-born-child-is-the-most-intelligent/)
 - [kids sharing room ideas](https://parenting.allwomenstalk.com/how-to-make-sharing-a-room-easier-for-kids/)
-- [the kid latoi](https://parenting.allwomenstalk.com/how-to-support-a-kid-with-an-iep/)
-- [still can't sleep on christmas eve](https://parenting.allwomenstalk.com/tips-to-get-your-kids-to-go-to-sleep-on-christmas-eve/)
-- [better communication with your child](https://parenting.allwomenstalk.com/ways-to-have-better-communication-with-your-child/)
-- [i kiss my mom](https://parenting.allwomenstalk.com/yes-i-kiss-my-kids-on-the-lips-whats-the-big-deal/)
 - [you make my heart happy quotes](https://parenting.allwomenstalk.com/positive-affirmations-to-encourage-your-children-and-build-them-up/)
-- [i can totally relate](https://parenting.allwomenstalk.com/things-parents-of-teens-can-totally-relate-to/)
 - [potty training guide for parents](https://parenting.allwomenstalk.com/tips-for-potty-training/)
+- [why first born are more intelligent](https://lifestyle.allwomenstalk.com/science-says-the-first-born-child-is-the-most-intelligent/)
+- [still can't sleep on christmas eve](https://parenting.allwomenstalk.com/tips-to-get-your-kids-to-go-to-sleep-on-christmas-eve/)
+- [i kiss my mom](https://parenting.allwomenstalk.com/yes-i-kiss-my-kids-on-the-lips-whats-the-big-deal/)
+- [i can totally relate](https://parenting.allwomenstalk.com/things-parents-of-teens-can-totally-relate-to/)
+- [the kid latoi](https://parenting.allwomenstalk.com/how-to-support-a-kid-with-an-iep/)
+- [better communication with your child](https://parenting.allwomenstalk.com/ways-to-have-better-communication-with-your-child/)
+- [kid cudio](https://lifestyle.allwomenstalk.com/how-to-throw-an-amazing-kids-party/)
 - [7 Ways to Make Your Little One Smile ...](https://parenting.allwomenstalk.com/7-ways-to-make-your-little-one-smile/)
 - [7 Ways to Raise a Confident Kid ...](https://parenting.allwomenstalk.com/7-ways-to-raise-a-confident-kid/)
 

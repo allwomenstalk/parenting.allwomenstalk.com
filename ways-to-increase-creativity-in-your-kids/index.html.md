@@ -50,16 +50,16 @@ How do you increase creativity in your children? Let me know in the comments!
 
 ## Related Posts
 
+- [is it okay to be wrong](https://parenting.allwomenstalk.com/reasons-why-its-okay-to-make-mistakes-as-a-parent/)
+- [how to fix mother daughter relationship](https://parenting.allwomenstalk.com/tips-to-improve-your-mother-daughter-relationship/)
+- [scary signs around the world](https://parenting.allwomenstalk.com/scary-signs-that-your-child-is-a-bully/)
+- [rules in the family](https://parenting.allwomenstalk.com/must-have-family-rules-for-a-happy-home/)
+- [what is breaking bad age rating](https://teen.allwomenstalk.com/tips-for-breaking-bad-news-to-your-parents/)
+- [websites like starfall](https://parenting.allwomenstalk.com/wonderful-learning-websites-for-kids/)
+- [is girl scouts good for my daughter](https://parenting.allwomenstalk.com/important-reasons-why-your-child-should-join-scouts/)
 - [teaching kids about the environment](https://parenting.allwomenstalk.com/ways-to-teach-your-kids-to-care-about-the-environment/)
 - [mom confronts teacher and son](https://parenting.allwomenstalk.com/tips-for-confronting-your-childs-teacher/)
-- [how to fix mother daughter relationship](https://parenting.allwomenstalk.com/tips-to-improve-your-mother-daughter-relationship/)
-- [what is breaking bad age rating](https://teen.allwomenstalk.com/tips-for-breaking-bad-news-to-your-parents/)
-- [is girl scouts good for my daughter](https://parenting.allwomenstalk.com/important-reasons-why-your-child-should-join-scouts/)
-- [rules in the family](https://parenting.allwomenstalk.com/must-have-family-rules-for-a-happy-home/)
-- [scary signs around the world](https://parenting.allwomenstalk.com/scary-signs-that-your-child-is-a-bully/)
-- [websites like starfall](https://parenting.allwomenstalk.com/wonderful-learning-websites-for-kids/)
 - [pet parenting tips](https://parenting.allwomenstalk.com/tips-for-introducing-your-pet-and-your-child/)
-- [is it okay to be wrong](https://parenting.allwomenstalk.com/reasons-why-its-okay-to-make-mistakes-as-a-parent/)
 - [7 Ways to Involve Your Kids with Everything ...](https://parenting.allwomenstalk.com/7-ways-to-involve-your-kids-with-everything/)
 - [7 Easy Ways to Boost Your Child's Education ...](https://parenting.allwomenstalk.com/7-easy-ways-to-boost-your-childs-education/)
 

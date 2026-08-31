@@ -90,16 +90,16 @@ Aren't these wonderful? Which of these affirmations do you and your littles like
 
 ## Related Posts
 
-- [i can totally relate](https://parenting.allwomenstalk.com/things-parents-of-teens-can-totally-relate-to/)
-- [potty training guide for parents](https://parenting.allwomenstalk.com/tips-for-potty-training/)
 - [kids sharing room ideas](https://parenting.allwomenstalk.com/how-to-make-sharing-a-room-easier-for-kids/)
+- [potty training guide for parents](https://parenting.allwomenstalk.com/tips-for-potty-training/)
 - [better communication with your child](https://parenting.allwomenstalk.com/ways-to-have-better-communication-with-your-child/)
-- [the kid latoi](https://parenting.allwomenstalk.com/how-to-support-a-kid-with-an-iep/)
-- [home training](https://parenting.allwomenstalk.com/the-importance-of-child-training/)
-- [children believe](https://parenting.allwomenstalk.com/should-children-believe-in-santa-claus/)
 - [kid cudio](https://lifestyle.allwomenstalk.com/how-to-throw-an-amazing-kids-party/)
-- [taurus babies](https://parenting.allwomenstalk.com/parenting-tips-for-your-childs-zodiac-sign/)
+- [children believe](https://parenting.allwomenstalk.com/should-children-believe-in-santa-claus/)
+- [i can totally relate](https://parenting.allwomenstalk.com/things-parents-of-teens-can-totally-relate-to/)
+- [the kid latoi](https://parenting.allwomenstalk.com/how-to-support-a-kid-with-an-iep/)
 - [still can't sleep on christmas eve](https://parenting.allwomenstalk.com/tips-to-get-your-kids-to-go-to-sleep-on-christmas-eve/)
+- [taurus babies](https://parenting.allwomenstalk.com/parenting-tips-for-your-childs-zodiac-sign/)
+- [home training](https://parenting.allwomenstalk.com/the-importance-of-child-training/)
 - [Parenting: Active Listening Builds Self-Esteem](https://allwomenstalk.com/parenting-active-listening-builds-self-esteem/)
 - [27 Positive Self-Affirmations for 11 Aspects of Li...](https://allwomenstalk.com/27-positive-self-affirmations-for-11-aspects-of-life/)
 

@@ -163,16 +163,16 @@ Mother and daughter projects are meant to be fun, bonding activities. While many
 
 ## Related Posts
 
-- [upcycled christmas gifts](https://diy.allwomenstalk.com/fun-ways-to-upcycle-christmas-cards/)
-- [crafts with paper bags](https://diy.allwomenstalk.com/fun-and-creative-paper-bag-crafts-for-kids/)
-- [lampshade ideas](https://diy.allwomenstalk.com/extremely-simple-diy-lampshade-ideas-to-try-today/)
-- [what can glitter be used for](https://diy.allwomenstalk.com/fantastic-ways-to-use-leftover-glitter/)
-- [how to make a care package](https://diy.allwomenstalk.com/diy-steps-to-creating-a-care-package-for-someone-you-know/)
-- [tye dye crafts](https://parenting.allwomenstalk.com/fun-tie-dye-crafts-your-kids-will-love/)
 - [new year's eve crafts for adults](https://parenting.allwomenstalk.com/fun-new-years-eve-crafts-kids-will-enjoy/)
-- [couples christmas crafts](https://parenting.allwomenstalk.com/creative-christmas-crafts-for-kids-to-try/)
+- [what can glitter be used for](https://diy.allwomenstalk.com/fantastic-ways-to-use-leftover-glitter/)
 - [different ways to express creativity](https://inspiration.allwomenstalk.com/awesome-ways-to-express-your-artistic-side/)
+- [crafts with paper bags](https://diy.allwomenstalk.com/fun-and-creative-paper-bag-crafts-for-kids/)
 - [recycled wood pallets](https://diy.allwomenstalk.com/amazing-ways-to-recycle-wood-pallets/)
+- [tye dye crafts](https://parenting.allwomenstalk.com/fun-tie-dye-crafts-your-kids-will-love/)
+- [couples christmas crafts](https://parenting.allwomenstalk.com/creative-christmas-crafts-for-kids-to-try/)
+- [how to make a care package](https://diy.allwomenstalk.com/diy-steps-to-creating-a-care-package-for-someone-you-know/)
+- [upcycled christmas gifts](https://diy.allwomenstalk.com/fun-ways-to-upcycle-christmas-cards/)
+- [lampshade ideas](https://diy.allwomenstalk.com/extremely-simple-diy-lampshade-ideas-to-try-today/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Easy DIY Projects for Teens ...](https://allwomenstalk.com/7-easy-diy-projects-for-teens/)
 

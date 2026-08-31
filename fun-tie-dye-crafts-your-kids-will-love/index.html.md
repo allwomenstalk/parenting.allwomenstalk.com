@@ -57,15 +57,15 @@ What are some creative tie-dye crafts you’ve put together with your kids?
 ## Related Posts
 
 - [what can glitter be used for](https://diy.allwomenstalk.com/fantastic-ways-to-use-leftover-glitter/)
-- [what to do with scraps of yarn](https://diy.allwomenstalk.com/ace-projects-to-use-up-scraps-of-wool/)
-- [rock crafts for kids](https://parenting.allwomenstalk.com/cool-and-creative-rock-crafts-for-kids/)
-- [popsicle stick crafts preschool](https://diy.allwomenstalk.com/great-popsicle-crafts-kids-can-make/)
-- [embroidered bracelet diy](https://diy.allwomenstalk.com/absolutely-darling-diy-embroidered-jewelry-to-make/)
-- [upcycled christmas gifts](https://diy.allwomenstalk.com/fun-ways-to-upcycle-christmas-cards/)
 - [crafts with twigs](https://diy.allwomenstalk.com/fun-and-incredibly-crafty-things-that-you-can-make-using-twigs/)
-- [different ways to express creativity](https://inspiration.allwomenstalk.com/awesome-ways-to-express-your-artistic-side/)
-- [crafts with paper bags](https://diy.allwomenstalk.com/fun-and-creative-paper-bag-crafts-for-kids/)
+- [what to do with scraps of yarn](https://diy.allwomenstalk.com/ace-projects-to-use-up-scraps-of-wool/)
+- [embroidered bracelet diy](https://diy.allwomenstalk.com/absolutely-darling-diy-embroidered-jewelry-to-make/)
+- [rock crafts for kids](https://parenting.allwomenstalk.com/cool-and-creative-rock-crafts-for-kids/)
 - [duct tape creations](https://diy.allwomenstalk.com/awesome-duct-tape-crafts-to-try-today/)
+- [crafts with paper bags](https://diy.allwomenstalk.com/fun-and-creative-paper-bag-crafts-for-kids/)
+- [upcycled christmas gifts](https://diy.allwomenstalk.com/fun-ways-to-upcycle-christmas-cards/)
+- [popsicle stick crafts preschool](https://diy.allwomenstalk.com/great-popsicle-crafts-kids-can-make/)
+- [different ways to express creativity](https://inspiration.allwomenstalk.com/awesome-ways-to-express-your-artistic-side/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 - [7 Great Halloween Crafts for Kids ...](https://allwomenstalk.com/7-great-halloween-crafts-for-kids/)
 

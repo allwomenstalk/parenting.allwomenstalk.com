@@ -42,13 +42,13 @@ National Pi Day is meant to be a fun way to learn and celebrate this important m
 
 ## Related Posts
 
-- [how to celebrate st patrick's day](https://lifestyle.allwomenstalk.com/ways-to-celebrate-saint-patricks-day/)
-- [to help the community](https://inspiration.allwomenstalk.com/websites-to-help-you-get-involved-in-your-community/)
-- [how to pass by time](https://lifestyle.allwomenstalk.com/ways-to-pass-time-when-youre-bored/)
 - [day out activities](https://lifestyle.allwomenstalk.com/perfect-things-to-do-for-a-girls-day-out/)
-- [how to celebrate st patrick's day](https://lifestyle.allwomenstalk.com/ways-to-celebrate-st-patricks-day-if-youre-under-21/)
-- [i'm not a sporty person](https://fitness.allwomenstalk.com/sports-to-try-even-if-youre-not-sporty/)
 - [how to have fun at a party without drinking](https://lifestyle.allwomenstalk.com/ways-to-party-without-alcohol/)
+- [how to celebrate st patrick's day](https://lifestyle.allwomenstalk.com/ways-to-celebrate-saint-patricks-day/)
+- [how to celebrate st patrick's day](https://lifestyle.allwomenstalk.com/ways-to-celebrate-st-patricks-day-if-youre-under-21/)
+- [how to pass by time](https://lifestyle.allwomenstalk.com/ways-to-pass-time-when-youre-bored/)
+- [i'm not a sporty person](https://fitness.allwomenstalk.com/sports-to-try-even-if-youre-not-sporty/)
+- [to help the community](https://inspiration.allwomenstalk.com/websites-to-help-you-get-involved-in-your-community/)
 - [scored it free stuff](https://money.allwomenstalk.com/awesome-ways-to-score-free-stuff/)
 - [engagement party fun ideas](https://wedding.allwomenstalk.com/super-fun-engagement-party-ideas/)
 - [year in new zealand](https://travel.allwomenstalk.com/ways-to-spend-a-year-in-new-zealand/)

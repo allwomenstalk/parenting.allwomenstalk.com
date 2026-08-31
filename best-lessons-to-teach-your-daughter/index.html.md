@@ -48,16 +48,16 @@ Parenting is definitely the hardest job you will ever do. Many think that raisin
 
 ## Related Posts
 
-- [how to act like a lady](https://lifestyle.allwomenstalk.com/rules-of-being-a-lady-that-just-dont-make-sense/)
-- [how to be like a queen](https://lifestyle.allwomenstalk.com/regal-ways-to-think-like-a-queen/)
 - [teen girl's survival guide](https://inspiration.allwomenstalk.com/pieces-of-advice-i-would-give-any-teenage-girl-out-there/)
-- [7 types of friends](https://lifestyle.allwomenstalk.com/types-of-friends-every-girl-needs-in-her-life/)
-- [starter wife phenomenon](https://inspiration.allwomenstalk.com/lessons-from-oprah-every-woman-can-learn-from/)
-- [her bucket list](https://inspiration.allwomenstalk.com/things-every-woman-should-put-on-her-bucket-list-for/)
 - [watch girl code](https://lifestyle.allwomenstalk.com/common-female-problems-that-girl-code-discusses/)
+- [starter wife phenomenon](https://inspiration.allwomenstalk.com/lessons-from-oprah-every-woman-can-learn-from/)
 - [girls night out meaning](https://lifestyle.allwomenstalk.com/tips-for-planning-a-great-girls-night-out/)
-- [basic diy skills](https://diy.allwomenstalk.com/essential-diy-skills-every-woman-should-know/)
 - [what to wear when going to a club](https://lifestyle.allwomenstalk.com/tips-for-going-to-the-club-with-your-gals/)
+- [how to act like a lady](https://lifestyle.allwomenstalk.com/rules-of-being-a-lady-that-just-dont-make-sense/)
+- [her bucket list](https://inspiration.allwomenstalk.com/things-every-woman-should-put-on-her-bucket-list-for/)
+- [7 types of friends](https://lifestyle.allwomenstalk.com/types-of-friends-every-girl-needs-in-her-life/)
+- [basic diy skills](https://diy.allwomenstalk.com/essential-diy-skills-every-woman-should-know/)
+- [how to be like a queen](https://lifestyle.allwomenstalk.com/regal-ways-to-think-like-a-queen/)
 - [9 Topics to Discuss with Your Daughter ...](https://parenting.allwomenstalk.com/topics-to-discuss-with-your-daughter/)
 - [8 Life Lessons They Should Teach in School ...](https://lifestyle.allwomenstalk.com/life-lessons-they-should-teach-in-school/)
 

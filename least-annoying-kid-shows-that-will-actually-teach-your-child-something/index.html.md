@@ -64,15 +64,15 @@ Well ladies, these are the kid shows that don't drive me crazy while my son lear
 ## Related Posts
 
 - [losing a parent you weren't close to quotes](https://inspiration.allwomenstalk.com/ways-to-cope-after-losing-a-parent-at-a-very-young-age/)
-- [babysitting tips and tricks](https://money.allwomenstalk.com/fun-and-simple-babysitting-tips-that-will-make-you-a-pro/)
-- [sonic food ideas for birthday party](https://parenting.allwomenstalk.com/ways-to-throw-a-sonic-party-for-your-child/)
 - [how can i help my community as a kid](https://parenting.allwomenstalk.com/ways-children-can-volunteer-in-their-community/)
-- [why do children bite?](https://parenting.allwomenstalk.com/important-reasons-why-children-bite-and-how-to-deal-with-it/)
-- [babysitter cancelled last minute](https://parenting.allwomenstalk.com/interesting-things-your-babysitter-will-never-tell-you/)
-- [most searched parenting topics](https://parenting.allwomenstalk.com/crunchy-parenting-topics-that-are-highly-debated/)
-- [things to teach](https://parenting.allwomenstalk.com/important-things-to-teach-your-teenage-son/)
+- [sonic food ideas for birthday party](https://parenting.allwomenstalk.com/ways-to-throw-a-sonic-party-for-your-child/)
+- [babysitting tips and tricks](https://money.allwomenstalk.com/fun-and-simple-babysitting-tips-that-will-make-you-a-pro/)
 - [mom contact](https://parenting.allwomenstalk.com/clever-and-thoughtful-ways-to-connect-with-your-mom/)
 - [2 year old chores](https://parenting.allwomenstalk.com/chores-your-2-year-old-can-help-with/)
+- [babysitter cancelled last minute](https://parenting.allwomenstalk.com/interesting-things-your-babysitter-will-never-tell-you/)
+- [most searched parenting topics](https://parenting.allwomenstalk.com/crunchy-parenting-topics-that-are-highly-debated/)
+- [why do children bite?](https://parenting.allwomenstalk.com/important-reasons-why-children-bite-and-how-to-deal-with-it/)
+- [things to teach](https://parenting.allwomenstalk.com/important-things-to-teach-your-teenage-son/)
 - [7 Clean Cartoons That Your 5 Year Old Can Watch .....](https://parenting.allwomenstalk.com/7-clean-cartoons-that-your-5-year-old-can-watch/)
 - [8 Shows That Will Hypnotize Your Kids ...](https://movies.allwomenstalk.com/8-shows-that-will-hypnotize-your-kids/)
 

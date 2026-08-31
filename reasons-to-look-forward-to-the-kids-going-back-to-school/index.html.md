@@ -42,16 +42,16 @@ Going back to school is bitter-sweet. These are certainly some of the sweet part
 
 ## Related Posts
 
-- [why is fighting good](https://fitness.allwomenstalk.com/reasons-why-you-should-learn-how-to-fight-and-handle-yourself/)
 - [reason for travelling abroad](https://travel.allwomenstalk.com/reasons-to-travel-abroad-and-experience-different-cultures/)
-- [staycation とは](https://travel.allwomenstalk.com/reasons-why-staycations-rock-and-why-you-should-try-it/)
-- [book a skiing holiday](https://travel.allwomenstalk.com/reasons-to-book-a-ski-holiday/)
-- [what are some of the advantages of living in a cit...](https://lifestyle.allwomenstalk.com/amazing-advantages-of-city-living/)
 - [reason for going abroad for employment](https://travel.allwomenstalk.com/wonderful-reasons-to-work-abroad-and-get-out-of-your-comfort-zone/)
 - [knight high school](https://lifestyle.allwomenstalk.com/reasons-why-senior-year-is-the-most-exciting-year-of-high-school/)
-- [reading is wonderful](https://books.allwomenstalk.com/wonderful-reasons-why-reading-is-so-important-to-your-development/)
-- [organizations that give back to the community](https://lifestyle.allwomenstalk.com/great-charities-to-donate-to-and-give-back-to-society/)
 - [dubai royal membership card](https://lifestyle.allwomenstalk.com/amazing-benefits-of-joining-a-club/)
+- [organizations that give back to the community](https://lifestyle.allwomenstalk.com/great-charities-to-donate-to-and-give-back-to-society/)
+- [why is fighting good](https://fitness.allwomenstalk.com/reasons-why-you-should-learn-how-to-fight-and-handle-yourself/)
+- [reading is wonderful](https://books.allwomenstalk.com/wonderful-reasons-why-reading-is-so-important-to-your-development/)
+- [staycation とは](https://travel.allwomenstalk.com/reasons-why-staycations-rock-and-why-you-should-try-it/)
+- [what are some of the advantages of living in a cit...](https://lifestyle.allwomenstalk.com/amazing-advantages-of-city-living/)
+- [book a skiing holiday](https://travel.allwomenstalk.com/reasons-to-book-a-ski-holiday/)
 - [7 Reasons Kids Need Chores ...](https://parenting.allwomenstalk.com/7-reasons-kids-need-chores/)
 - [8 Reasons to Take the Kids Camping ...](https://parenting.allwomenstalk.com/8-reasons-to-take-the-kids-camping/)
 

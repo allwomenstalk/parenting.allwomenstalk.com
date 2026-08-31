@@ -74,16 +74,16 @@ I’m not saying don’t dress your little girls in pink and let them play with 
 
 ## Related Posts
 
-- [send a ball](https://parenting.allwomenstalk.com/things-to-mail-to-kids/)
-- [how involved](https://parenting.allwomenstalk.com/ways-to-be-involved-in-your-childs-life/)
-- [child wants to be vegetarian](https://parenting.allwomenstalk.com/ways-to-cope-with-a-vegetarian-child/)
-- [how to teach your child to swim yourself](https://parenting.allwomenstalk.com/tips-for-teaching-your-child-how-to-swim/)
+- [high energy games for kids](https://parenting.allwomenstalk.com/fun-activities-for-high-energy-kids-that-will-keep-them-healthy-and-calm/)
+- [what to do when your child is bullying others](https://parenting.allwomenstalk.com/tips-for-when-your-child-is-bullying-other-kids-at-school/)
 - [i love being an only child](https://parenting.allwomenstalk.com/amazing-things-about-being-and-having-an-only-child/)
 - [artificial consequences definition](https://parenting.allwomenstalk.com/techniques-to-teach-your-child-to-behave-acceptably/)
+- [send a ball](https://parenting.allwomenstalk.com/things-to-mail-to-kids/)
 - [moms favorite things](https://parenting.allwomenstalk.com/of-my-favorite-things-about-being-a-parent/)
-- [what to do when your child is bullying others](https://parenting.allwomenstalk.com/tips-for-when-your-child-is-bullying-other-kids-at-school/)
+- [how to teach your child to swim yourself](https://parenting.allwomenstalk.com/tips-for-teaching-your-child-how-to-swim/)
+- [child wants to be vegetarian](https://parenting.allwomenstalk.com/ways-to-cope-with-a-vegetarian-child/)
+- [how involved](https://parenting.allwomenstalk.com/ways-to-be-involved-in-your-childs-life/)
 - [therapy metaphors](https://health.allwomenstalk.com/short-therapeutic-metaphors-for-the-child-within/)
-- [high energy games for kids](https://parenting.allwomenstalk.com/fun-activities-for-high-energy-kids-that-will-keep-them-healthy-and-calm/)
 - [Top 10 Things Children May Not like ...](https://parenting.allwomenstalk.com/top-10-things-children-may-not-like/)
 - [7 Things Parents Should Know ...](https://parenting.allwomenstalk.com/7-things-parents-should-know/)
 

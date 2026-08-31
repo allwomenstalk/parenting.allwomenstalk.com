@@ -42,16 +42,16 @@ Now it’s your turn. Share your secrets with me. How do you deal with teenage a
 
 ## Related Posts
 
-- [how to deal with stubborn child](https://parenting.allwomenstalk.com/tips-for-dealing-with-a-stubborn-child/)
-- [spend time with grandparents quotes](https://parenting.allwomenstalk.com/reasons-your-kids-should-spend-time-with-their-grandparents/)
+- [how to start a babysitting service](https://money.allwomenstalk.com/simple-ways-to-start-your-own-babysitting-business/)
 - [spanking at work](https://parenting.allwomenstalk.com/alternatives-to-spanking-that-work/)
-- [myths about parenting](https://parenting.allwomenstalk.com/popular-myths-about-parenting-that-arent-true/)
+- [parenting hacks](https://parenting.allwomenstalk.com/gentle-parenting-hacks-that-really-work/)
+- [spend time with grandparents quotes](https://parenting.allwomenstalk.com/reasons-your-kids-should-spend-time-with-their-grandparents/)
 - [characteristics of a little child](https://lifestyle.allwomenstalk.com/characteristics-of-a-controlling-parent/)
 - [what is food production?](https://food.allwomenstalk.com/ways-to-get-your-kids-interested-in-cooking/)
-- [oobleck recipe nz](https://parenting.allwomenstalk.com/gooey-science-experiments-to-do-with-your-kid/)
-- [how to start a babysitting service](https://money.allwomenstalk.com/simple-ways-to-start-your-own-babysitting-business/)
+- [myths about parenting](https://parenting.allwomenstalk.com/popular-myths-about-parenting-that-arent-true/)
 - [why am i jealous of my stepchildren](https://parenting.allwomenstalk.com/tips-for-when-your-partner-is-jealous-of-your-child/)
-- [parenting hacks](https://parenting.allwomenstalk.com/gentle-parenting-hacks-that-really-work/)
+- [oobleck recipe nz](https://parenting.allwomenstalk.com/gooey-science-experiments-to-do-with-your-kid/)
+- [how to deal with stubborn child](https://parenting.allwomenstalk.com/tips-for-dealing-with-a-stubborn-child/)
 - [7 Ways to Be a Friendly Teenager ...](https://allwomenstalk.com/7-ways-to-be-a-friendly-teenager/)
 - [7 Tips on Controlling Your Attitude ...](https://allwomenstalk.com/7-tips-on-controlling-your-attitude/)
 

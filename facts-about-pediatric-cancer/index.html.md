@@ -44,16 +44,16 @@ Whether you know a child with cancer or not, these facts are pretty eye-opening 
 
 ## Related Posts
 
-- [7 Important Facts about Alcohol ...](https://health.allwomenstalk.com/important-facts-about-alcohol/)
-- [7 Amazing Things You Didn't Know about Orchids ...](https://gardening.allwomenstalk.com/amazing-things-you-didnt-know-about-orchids/)
+- [7 Myths and Facts about HIV and AIDS ...](https://health.allwomenstalk.com/myths-and-facts-about-hiv-and-aids/)
 - [20 Bizarre and Interesting Facts ...](https://lifestyle.allwomenstalk.com/bizarre-and-interesting-facts/)
-- [8 Fun Facts about Chocolate ...](https://eatial.com/fun-facts-about-chocolate/)
 - [aluminum foil in toilet tank myth](https://travel.allwomenstalk.com/urban-myths-about-flying-debunked-the-truth/)
+- [8 Fun Facts about Chocolate ...](https://eatial.com/fun-facts-about-chocolate/)
 - [which of the following is not one of the "four pil...](https://travel.allwomenstalk.com/facts-about-the-moon/)
-- [9 Interesting Things to Know about Your Hands ...](https://health.allwomenstalk.com/interesting-things-to-know-about-your-hands/)
 - [7 Things You Never Knew about Where Your Groceries...](https://food.allwomenstalk.com/things-you-never-knew-about-where-your-groceries-come-from/)
 - [black shadow in room](https://paranormal.allwomenstalk.com/things-you-need-to-know-about-shadow-people/)
-- [7 Myths and Facts about HIV and AIDS ...](https://health.allwomenstalk.com/myths-and-facts-about-hiv-and-aids/)
+- [7 Important Facts about Alcohol ...](https://health.allwomenstalk.com/important-facts-about-alcohol/)
+- [7 Amazing Things You Didn't Know about Orchids ...](https://gardening.allwomenstalk.com/amazing-things-you-didnt-know-about-orchids/)
+- [9 Interesting Things to Know about Your Hands ...](https://health.allwomenstalk.com/interesting-things-to-know-about-your-hands/)
 - [5 Ghost Facts ...](https://twilight.allwomenstalk.com/5-ghost-facts/)
 - [5 Facts on DNA ...](https://twilight.allwomenstalk.com/5-facts-on-dna/)
 

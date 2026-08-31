@@ -60,16 +60,16 @@ This article was written in collaboration with editor Lisa Washington
 
 ## Related Posts
 
+- [how to spot a sociopath](https://health.allwomenstalk.com/ways-to-spot-a-sociopath/)
+- [staying friends with ex's family](https://love.allwomenstalk.com/ways-to-stay-friends-with-your-exs-family/)
+- [when a guy listens to your problems](https://love.allwomenstalk.com/ways-to-get-him-to-listen-instead-of-trying-to-fix-your-problems/)
 - [rebuilding my family](https://lifestyle.allwomenstalk.com/amazing-ways-to-rebuild-a-relationship-with-your-family/)
 - [treated like a doormat meme](https://lifestyle.allwomenstalk.com/tips-on-how-to-stop-being-a-doormat/)
 - [when you walked in the room](https://inspiration.allwomenstalk.com/ways-to-get-attention-when-you-walk-into-a-room/)
-- [how to tell someone you're not comfortable doing s...](https://lifestyle.allwomenstalk.com/easy-ways-to-feel-comfortable-saying-no/)
-- [how to spot a sociopath](https://health.allwomenstalk.com/ways-to-spot-a-sociopath/)
-- [girlfriend doesnt listen](https://love.allwomenstalk.com/tips-for-getting-through-to-a-partner-who-doesnt-listen/)
 - [how to deal with grandparents](https://parenting.allwomenstalk.com/ways-to-deal-with-pressure-from-would-be-grandparents/)
-- [staying friends with ex's family](https://love.allwomenstalk.com/ways-to-stay-friends-with-your-exs-family/)
+- [girlfriend doesnt listen](https://love.allwomenstalk.com/tips-for-getting-through-to-a-partner-who-doesnt-listen/)
+- [how to tell someone you're not comfortable doing s...](https://lifestyle.allwomenstalk.com/easy-ways-to-feel-comfortable-saying-no/)
 - [questions about yourself to ask your friends](https://lifestyle.allwomenstalk.com/useful-questions-to-ask-yourself-when-evaluating-a-friendship/)
-- [when a guy listens to your problems](https://love.allwomenstalk.com/ways-to-get-him-to-listen-instead-of-trying-to-fix-your-problems/)
 - [How to Build a Stronger Relationship with Parents ...](https://allwomenstalk.com/how-to-build-a-stronger-relationship-with-parents-2/)
 - [How to Have a Better Relationship ...](https://allwomenstalk.com/how-to-have-a-better-relationship/)
 

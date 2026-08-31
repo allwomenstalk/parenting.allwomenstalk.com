@@ -43,15 +43,15 @@ Well ladies, these are the best and worst things that I think come with having a
 ## Related Posts
 
 - [what to bring for babysitting](https://parenting.allwomenstalk.com/must-have-items-to-bring-when-you-babysit/)
-- [5 qualities of mother](https://parenting.allwomenstalk.com/lovable-qualities-of-a-great-mother/)
-- [baby chiropractor benefits](https://parenting.allwomenstalk.com/amazing-benefits-of-chiropractic-care-for-newborns/)
-- [pros and cons of parenthood](https://parenting.allwomenstalk.com/pros-and-cons-of-postponing-parenthood/)
-- [how becoming a parent changes you](https://parenting.allwomenstalk.com/positive-and-negative-ways-life-changes-when-you-become-a-parent/)
-- [mommy needs a break](https://parenting.allwomenstalk.com/ways-for-moms-to-get-a-break-without-a-sitter/)
-- [motherhood easy](https://parenting.allwomenstalk.com/ways-to-make-motherhood-easier-in-the-early-years/)
 - [what is the weirdest pregnancy craving](https://parenting.allwomenstalk.com/strange-pregnancy-cravings-and-what-they-mean/)
-- [how to make life easier with a newborn](https://parenting.allwomenstalk.com/ways-to-make-life-easier-after-bringing-your-newborn-home/)
+- [baby chiropractor benefits](https://parenting.allwomenstalk.com/amazing-benefits-of-chiropractic-care-for-newborns/)
 - [hospital labor and delivery bag](https://parenting.allwomenstalk.com/things-to-pack-for-childbirth-in-your-hospital-bag/)
+- [mommy needs a break](https://parenting.allwomenstalk.com/ways-for-moms-to-get-a-break-without-a-sitter/)
+- [5 qualities of mother](https://parenting.allwomenstalk.com/lovable-qualities-of-a-great-mother/)
+- [how becoming a parent changes you](https://parenting.allwomenstalk.com/positive-and-negative-ways-life-changes-when-you-become-a-parent/)
+- [pros and cons of parenthood](https://parenting.allwomenstalk.com/pros-and-cons-of-postponing-parenthood/)
+- [motherhood easy](https://parenting.allwomenstalk.com/ways-to-make-motherhood-easier-in-the-early-years/)
+- [how to make life easier with a newborn](https://parenting.allwomenstalk.com/ways-to-make-life-easier-after-bringing-your-newborn-home/)
 - [7 Things Parents Should Know ...](https://parenting.allwomenstalk.com/7-things-parents-should-know/)
 - [7 Things to Consider before Adopting a Child ...](https://parenting.allwomenstalk.com/7-things-to-consider-before-adopting-a-child/)
 

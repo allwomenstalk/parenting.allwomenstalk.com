@@ -42,16 +42,16 @@ If your kids complain that you're charging too much, simply check the prices of 
 
 ## Related Posts
 
-- [plane carseat](https://travel.allwomenstalk.com/important-reasons-to-take-your-childs-car-seat-on-a-plane/)
 - [open house survey questions](https://parenting.allwomenstalk.com/questions-to-ask-your-childs-teacher-at-open-house/)
 - [weird name spellings](https://parenting.allwomenstalk.com/reasons-to-be-cautious-about-giving-your-child-an-unusual-name/)
-- [my kids are lazy](https://parenting.allwomenstalk.com/ways-to-deal-when-your-child-is-lazy/)
 - [woman with multiple baby fathers](https://parenting.allwomenstalk.com/reasons-not-to-be-ashamed-if-your-children-have-different-fathers/)
-- [why do i hate studying so much](https://parenting.allwomenstalk.com/ways-to-encourage-a-child-who-hates-studying/)
-- [teenage attitudes](https://parenting.allwomenstalk.com/creative-and-successful-ways-of-dealing-with-teenage-attitude/)
 - [spend time with grandparents quotes](https://parenting.allwomenstalk.com/reasons-your-kids-should-spend-time-with-their-grandparents/)
-- [spanking at work](https://parenting.allwomenstalk.com/alternatives-to-spanking-that-work/)
+- [plane carseat](https://travel.allwomenstalk.com/important-reasons-to-take-your-childs-car-seat-on-a-plane/)
+- [why do i hate studying so much](https://parenting.allwomenstalk.com/ways-to-encourage-a-child-who-hates-studying/)
 - [7 identical twins](https://parenting.allwomenstalk.com/tips-for-encouraging-individuality-in-twins/)
+- [my kids are lazy](https://parenting.allwomenstalk.com/ways-to-deal-when-your-child-is-lazy/)
+- [teenage attitudes](https://parenting.allwomenstalk.com/creative-and-successful-ways-of-dealing-with-teenage-attitude/)
+- [spanking at work](https://parenting.allwomenstalk.com/alternatives-to-spanking-that-work/)
 - [7 Ways to Teach Kids Responsibility ...](https://parenting.allwomenstalk.com/7-ways-to-teach-kids-responsibility/)
 - [7 Ways to Encourage Your Kids to Be Independent .....](https://parenting.allwomenstalk.com/7-ways-to-encourage-your-kids-to-be-independent/)
 

@@ -42,15 +42,15 @@ Well ladies, these are the things I think really define being a stay at home mom
 
 ## Related Posts
 
+- [how to make life easier with a newborn](https://parenting.allwomenstalk.com/ways-to-make-life-easier-after-bringing-your-newborn-home/)
+- [mommy needs a break](https://parenting.allwomenstalk.com/ways-for-moms-to-get-a-break-without-a-sitter/)
 - [dr seuss baby gifts](https://parenting.allwomenstalk.com/whimsical-ways-to-create-a-dr-seuss-baby-shower/)
 - [moms going back to college](https://lifestyle.allwomenstalk.com/tips-for-moms-going-back-to-school-after-a-break/)
-- [hospital labor and delivery bag](https://parenting.allwomenstalk.com/things-to-pack-for-childbirth-in-your-hospital-bag/)
-- [how becoming a parent changes you](https://parenting.allwomenstalk.com/positive-and-negative-ways-life-changes-when-you-become-a-parent/)
 - [best things about a baby boy](https://parenting.allwomenstalk.com/good-and-bad-things-about-having-a-baby-boy/)
-- [mommy needs a break](https://parenting.allwomenstalk.com/ways-for-moms-to-get-a-break-without-a-sitter/)
-- [how to make life easier with a newborn](https://parenting.allwomenstalk.com/ways-to-make-life-easier-after-bringing-your-newborn-home/)
+- [hospital labor and delivery bag](https://parenting.allwomenstalk.com/things-to-pack-for-childbirth-in-your-hospital-bag/)
 - [funny pregnancy facts](https://parenting.allwomenstalk.com/funny-and-infuriating-facts-about-being-pregnant-that-no-one-tells-you-about/)
 - [what is the weirdest pregnancy craving](https://parenting.allwomenstalk.com/strange-pregnancy-cravings-and-what-they-mean/)
+- [how becoming a parent changes you](https://parenting.allwomenstalk.com/positive-and-negative-ways-life-changes-when-you-become-a-parent/)
 - [like to play](https://parenting.allwomenstalk.com/things-that-all-babies-love-to-play-with-that-arent-toys/)
 - [8 Great Tips for Stay-at-Home Moms ...](https://parenting.allwomenstalk.com/8-great-tips-for-stay-at-home-moms/)
 - [7 Health Benefits of Motherhood ...](https://parenting.allwomenstalk.com/health-benefits-of-motherhood/)

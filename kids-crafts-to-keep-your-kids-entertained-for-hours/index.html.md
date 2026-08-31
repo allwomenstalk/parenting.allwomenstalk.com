@@ -326,16 +326,16 @@ Do you enjoy crafting with your kids? It's one of my absolute favorite things to
 
 ## Related Posts
 
-- [27 Wonderful Washi Tape Crafts That You Won't Be A...](https://diy.allwomenstalk.com/wonderful-washi-tape-crafts-that-you-wont-be-able-to-get-enough-of/)
-- [39 Stylish Examples of DIY Wall Art ...](https://interior.allwomenstalk.com/stylish-examples-of-diy-wall-art/)
-- [Inventive Things to do with Your Christmas Tree af...](https://diy.allwomenstalk.com/things-to-do-with-your-christmas-tree-after-the-holidays/)
-- [9 Silly Ornaments to Decorate Your Tree with ...](https://funny.allwomenstalk.com/silly-ornaments-to-decorate-your-tree-with/)
-- [An Insight into Basic Techniques: 33 "How to" Tuto...](https://diy.allwomenstalk.com/an-insight-into-basic-techniques-how-to-tutorials-for-sewing/)
-- [45 "How to Make" Tutorials for All Kinds of Stuff ...](https://diy.allwomenstalk.com/how-to-make-tutorials-for-all-kinds-of-stuff/)
 - [25 Decorative DIY Coasters You'll Be Proud to Show...](https://diy.allwomenstalk.com/decorative-diy-coasters-youll-be-proud-to-show-off/)
+- [9 Silly Ornaments to Decorate Your Tree with ...](https://funny.allwomenstalk.com/silly-ornaments-to-decorate-your-tree-with/)
 - [28 Glitzy Gold-dipped Craft Projects for Your Home...](https://diy.allwomenstalk.com/glitzy-gold-dipped-craft-projects-for-your-home/)
+- [Inventive Things to do with Your Christmas Tree af...](https://diy.allwomenstalk.com/things-to-do-with-your-christmas-tree-after-the-holidays/)
 - [7 Simple DIY Projects for Dog Owners ...](https://diy.allwomenstalk.com/simple-diy-projects-for-dog-owners/)
+- [27 Wonderful Washi Tape Crafts That You Won't Be A...](https://diy.allwomenstalk.com/wonderful-washi-tape-crafts-that-you-wont-be-able-to-get-enough-of/)
 - [finger knitting bracelets](https://jewelry.allwomenstalk.com/easy-diy-jewelry-tutorials-for-accessories-unique-to-you/)
+- [45 "How to Make" Tutorials for All Kinds of Stuff ...](https://diy.allwomenstalk.com/how-to-make-tutorials-for-all-kinds-of-stuff/)
+- [An Insight into Basic Techniques: 33 "How to" Tuto...](https://diy.allwomenstalk.com/an-insight-into-basic-techniques-how-to-tutorials-for-sewing/)
+- [39 Stylish Examples of DIY Wall Art ...](https://interior.allwomenstalk.com/stylish-examples-of-diy-wall-art/)
 - [8 Free Craft Items for Kids ...](https://parenting.allwomenstalk.com/8-free-craft-items-for-kids/)
 - [10 Things for Your Kid's Craft Bin ...](https://allwomenstalk.com/10-things-for-your-kids-craft-bin/)
 

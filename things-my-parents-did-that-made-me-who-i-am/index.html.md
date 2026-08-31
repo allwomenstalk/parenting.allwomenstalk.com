@@ -44,16 +44,16 @@ My parents have taught me a lot through the years and helped me grow into the pe
 
 ## Related Posts
 
-- [victorian etiquette for gentlemen](https://lifestyle.allwomenstalk.com/rules-of-victorian-etiquette-we-should-still-observe/)
-- [never take for granted quotes](https://inspiration.allwomenstalk.com/things-you-should-never-take-for-granted/)
-- [someone who is always right](https://parenting.allwomenstalk.com/things-my-dad-is-always-right-about/)
-- [geeky glasses meaning](https://lifestyle.allwomenstalk.com/perks-of-being-a-nerd/)
-- [movies like clueless](https://movies.allwomenstalk.com/lessons-clueless-taught-me/)
-- [question about decision making](https://inspiration.allwomenstalk.com/questions-to-ask-yourself-before-making-a-major-decision/)
-- [how to restore your faith in humanity](https://inspiration.allwomenstalk.com/things-that-will-restore-your-faith-in-humanity/)
-- [how to appreciate the small things in life](https://inspiration.allwomenstalk.com/little-things-in-life-to-appreciate/)
-- [secrets of happy people](https://lifestyle.allwomenstalk.com/new-secrets-of-happy-people/)
 - [famous person failed then succeeded](https://lifestyle.allwomenstalk.com/successful-people-who-failed-at-first/)
+- [someone who is always right](https://parenting.allwomenstalk.com/things-my-dad-is-always-right-about/)
+- [movies like clueless](https://movies.allwomenstalk.com/lessons-clueless-taught-me/)
+- [never take for granted quotes](https://inspiration.allwomenstalk.com/things-you-should-never-take-for-granted/)
+- [how to appreciate the small things in life](https://inspiration.allwomenstalk.com/little-things-in-life-to-appreciate/)
+- [victorian etiquette for gentlemen](https://lifestyle.allwomenstalk.com/rules-of-victorian-etiquette-we-should-still-observe/)
+- [question about decision making](https://inspiration.allwomenstalk.com/questions-to-ask-yourself-before-making-a-major-decision/)
+- [geeky glasses meaning](https://lifestyle.allwomenstalk.com/perks-of-being-a-nerd/)
+- [how to restore your faith in humanity](https://inspiration.allwomenstalk.com/things-that-will-restore-your-faith-in-humanity/)
+- [secrets of happy people](https://lifestyle.allwomenstalk.com/new-secrets-of-happy-people/)
 - [7 Things Being a Parent Has Taught Me ...](https://allwomenstalk.com/7-things-being-a-parent-has-taught-me/)
 - [10 Things That Make Me Happy ...](https://allwomenstalk.com/10-things-that-make-me-happy/)
 

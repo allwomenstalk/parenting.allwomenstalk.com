@@ -42,16 +42,16 @@ What new life opportunities are you looking forward to after your kids are grown
 
 ## Related Posts
 
-- [high school moms cast](https://teen.allwomenstalk.com/cons-of-being-a-mother-in-high-school/)
 - [benefits mum](https://parenting.allwomenstalk.com/benefits-of-being-a-working-mom/)
-- [new fashion tips](https://fashion.allwomenstalk.com/fashion-tips-for-new-moms-that-work-great-for-that-transition-period/)
-- [things to do while pregnant](https://parenting.allwomenstalk.com/fun-things-to-do-when-you-are-pregnant-to-celebrate-the-pregnancy/)
-- [telling friends you are pregnant](https://parenting.allwomenstalk.com/totally-fun-ways-to-announce-your-pregnancy/)
 - [newborn party](https://parenting.allwomenstalk.com/ideas-to-celebrate-the-arrival-of-a-new-baby/)
-- [essential nutrients for pregnancy](https://health.allwomenstalk.com/essential-nutrients-to-take-while-pregnant-interesting-facts-about-them/)
 - [johnson baby items](https://parenting.allwomenstalk.com/must-have-baby-products-from-johnson-johnson/)
-- [traps names](https://parenting.allwomenstalk.com/traps-to-watch-for-when-choosing-a-baby-name/)
+- [essential nutrients for pregnancy](https://health.allwomenstalk.com/essential-nutrients-to-take-while-pregnant-interesting-facts-about-them/)
 - [pros and cons of being a stay at home mom](https://parenting.allwomenstalk.com/misconceptions-about-being-a-stay-at-home-mom/)
+- [new fashion tips](https://fashion.allwomenstalk.com/fashion-tips-for-new-moms-that-work-great-for-that-transition-period/)
+- [high school moms cast](https://teen.allwomenstalk.com/cons-of-being-a-mother-in-high-school/)
+- [traps names](https://parenting.allwomenstalk.com/traps-to-watch-for-when-choosing-a-baby-name/)
+- [telling friends you are pregnant](https://parenting.allwomenstalk.com/totally-fun-ways-to-announce-your-pregnancy/)
+- [things to do while pregnant](https://parenting.allwomenstalk.com/fun-things-to-do-when-you-are-pregnant-to-celebrate-the-pregnancy/)
 - [7 Hobbies for Retired Parents ...](https://parenting.allwomenstalk.com/hobbies-for-retired-parents/)
 - [7 Free Days out with the Kids ...](https://parenting.allwomenstalk.com/free-days-out-with-the-kids/)
 

@@ -56,16 +56,16 @@ Those are a few of the things I know we'll be excited to get in a few weeks! Do 
 
 ## Related Posts
 
-- [crafts for christmas in july](https://inspiration.allwomenstalk.com/christmas-in-july-ornaments-to-get-you-ready-for-the-season/)
-- [how to wrap flowers in paper](https://diy.allwomenstalk.com/fancy-and-unique-gift-wrapping-ideas/)
-- [baby jewelry for christening](https://parenting.allwomenstalk.com/ideas-of-all-sorts-for-christening-gifts/)
-- [things to put in a food gift basket](https://food.allwomenstalk.com/ideas-for-food-gifts-for-all-occasions/)
-- [nice gifts for new moms](https://parenting.allwomenstalk.com/great-gift-ideas-for-new-moms/)
-- [baby shower diaper cake ideas](https://parenting.allwomenstalk.com/diaper-cakes-any-mother-will-adore-to-receive/)
-- [nail polish favors](https://parenting.allwomenstalk.com/baby-shower-favors-sure-to-be-a-hit/)
-- [swimming party favours](https://diy.allwomenstalk.com/outstanding-party-favors-you-can-customize-for-your-next-party/)
 - [sorority big little basket ideas](https://teen.allwomenstalk.com/things-to-great-presents-to-include-during-big-little-gift-week/)
+- [nice gifts for new moms](https://parenting.allwomenstalk.com/great-gift-ideas-for-new-moms/)
 - [what do tween girls want for christmas](https://lifestyle.allwomenstalk.com/amazing-gifts-for-tween-girls/)
+- [things to put in a food gift basket](https://food.allwomenstalk.com/ideas-for-food-gifts-for-all-occasions/)
+- [swimming party favours](https://diy.allwomenstalk.com/outstanding-party-favors-you-can-customize-for-your-next-party/)
+- [nail polish favors](https://parenting.allwomenstalk.com/baby-shower-favors-sure-to-be-a-hit/)
+- [how to wrap flowers in paper](https://diy.allwomenstalk.com/fancy-and-unique-gift-wrapping-ideas/)
+- [crafts for christmas in july](https://inspiration.allwomenstalk.com/christmas-in-july-ornaments-to-get-you-ready-for-the-season/)
+- [baby shower diaper cake ideas](https://parenting.allwomenstalk.com/diaper-cakes-any-mother-will-adore-to-receive/)
+- [baby jewelry for christening](https://parenting.allwomenstalk.com/ideas-of-all-sorts-for-christening-gifts/)
 - [7 Best Gifts for a Baby Shower ...](https://allwomenstalk.com/7-best-gifts-for-a-baby-shower/)
 - [7 Perfect Gifts for Your Parents ...](https://allwomenstalk.com/7-perfect-gifts-for-your-parents/)
 

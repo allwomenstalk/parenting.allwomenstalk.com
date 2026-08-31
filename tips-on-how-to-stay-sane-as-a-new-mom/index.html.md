@@ -51,15 +51,15 @@ Being a mom is a wonderful gift, and something to cherish! However, it’s easy 
 ## Related Posts
 
 - [new fashion tips](https://fashion.allwomenstalk.com/fashion-tips-for-new-moms-that-work-great-for-that-transition-period/)
-- [high school moms cast](https://teen.allwomenstalk.com/cons-of-being-a-mother-in-high-school/)
-- [newborn party](https://parenting.allwomenstalk.com/ideas-to-celebrate-the-arrival-of-a-new-baby/)
-- [benefits mum](https://parenting.allwomenstalk.com/benefits-of-being-a-working-mom/)
 - [opportunities in life](https://parenting.allwomenstalk.com/new-life-opportunities-to-enjoy-after-the-kids-are-grown/)
-- [telling friends you are pregnant](https://parenting.allwomenstalk.com/totally-fun-ways-to-announce-your-pregnancy/)
 - [traps names](https://parenting.allwomenstalk.com/traps-to-watch-for-when-choosing-a-baby-name/)
-- [pros and cons of being a stay at home mom](https://parenting.allwomenstalk.com/misconceptions-about-being-a-stay-at-home-mom/)
+- [high school moms cast](https://teen.allwomenstalk.com/cons-of-being-a-mother-in-high-school/)
+- [benefits mum](https://parenting.allwomenstalk.com/benefits-of-being-a-working-mom/)
 - [johnson baby items](https://parenting.allwomenstalk.com/must-have-baby-products-from-johnson-johnson/)
+- [newborn party](https://parenting.allwomenstalk.com/ideas-to-celebrate-the-arrival-of-a-new-baby/)
+- [pros and cons of being a stay at home mom](https://parenting.allwomenstalk.com/misconceptions-about-being-a-stay-at-home-mom/)
 - [things to do while pregnant](https://parenting.allwomenstalk.com/fun-things-to-do-when-you-are-pregnant-to-celebrate-the-pregnancy/)
+- [telling friends you are pregnant](https://parenting.allwomenstalk.com/totally-fun-ways-to-announce-your-pregnancy/)
 - [9 Tips for Real Teen Moms ...](https://parenting.allwomenstalk.com/9-tips-for-real-teen-moms/)
 - [7 Secrets of Motherhood ...](https://parenting.allwomenstalk.com/7-secrets-of-motherhood/)
 

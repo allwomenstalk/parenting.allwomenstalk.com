@@ -30,16 +30,16 @@ The National Center for Health Statistics shows there are more than 16 million m
 
 ## Related Posts
 
-- [why traveling is good for your health](https://travel.allwomenstalk.com/reasons-travel-is-good-for-your-health/)
-- [iridiologist](https://health.allwomenstalk.com/reasons-to-visit-an-iridologist/)
+- [cooking vacation in italy](https://travel.allwomenstalk.com/reasons-to-take-a-culinary-holiday-to-italy/)
+- [reasons for becoming a parent](https://parenting.allwomenstalk.com/reasons-being-a-parent-is-awesome/)
 - [why regifting is good](https://lifestyle.allwomenstalk.com/benefits-of-regifting/)
+- [why traveling is good for your health](https://travel.allwomenstalk.com/reasons-travel-is-good-for-your-health/)
+- [reasons why you are amazing](https://inspiration.allwomenstalk.com/reasons-you-should-keep-a-journal/)
+- [iridiologist](https://health.allwomenstalk.com/reasons-to-visit-an-iridologist/)
 - [is roller derby a women's sport](https://lifestyle.allwomenstalk.com/reasons-to-do-roller-derby/)
 - [italian lifestyle](https://travel.allwomenstalk.com/reasons-to-love-the-italian-lifestyle/)
-- [entrepreneur 5 reasons](https://lifestyle.allwomenstalk.com/reasons-to-become-a-social-entrepreneur/)
 - [all women's talk](https://apps.allwomenstalk.com/reasons-to-join-allwomenstalks-write-and-earn-program/)
-- [reasons for becoming a parent](https://parenting.allwomenstalk.com/reasons-being-a-parent-is-awesome/)
-- [cooking vacation in italy](https://travel.allwomenstalk.com/reasons-to-take-a-culinary-holiday-to-italy/)
-- [reasons why you are amazing](https://inspiration.allwomenstalk.com/reasons-you-should-keep-a-journal/)
+- [entrepreneur 5 reasons](https://lifestyle.allwomenstalk.com/reasons-to-become-a-social-entrepreneur/)
 - [8 Reasons Why I Love Being a Mom ...](https://parenting.allwomenstalk.com/8-reasons-why-i-love-being-a-mom/)
 - [7 Reasons I Love Being a Mommy ...](https://allwomenstalk.com/7-reasons-i-love-being-a-mommy/)
 

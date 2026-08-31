@@ -66,16 +66,16 @@ Have I missed any great ways children can volunteer in their community? The more
 
 ## Related Posts
 
-- [babysitting tips and tricks](https://money.allwomenstalk.com/fun-and-simple-babysitting-tips-that-will-make-you-a-pro/)
-- [mom contact](https://parenting.allwomenstalk.com/clever-and-thoughtful-ways-to-connect-with-your-mom/)
-- [2 year old chores](https://parenting.allwomenstalk.com/chores-your-2-year-old-can-help-with/)
 - [babysitter cancelled last minute](https://parenting.allwomenstalk.com/interesting-things-your-babysitter-will-never-tell-you/)
-- [why do parents embarrass you in public](https://parenting.allwomenstalk.com/too-cute-ways-your-kids-will-embarrass-you-in-public/)
-- [most searched parenting topics](https://parenting.allwomenstalk.com/crunchy-parenting-topics-that-are-highly-debated/)
 - [sonic food ideas for birthday party](https://parenting.allwomenstalk.com/ways-to-throw-a-sonic-party-for-your-child/)
-- [why do children bite?](https://parenting.allwomenstalk.com/important-reasons-why-children-bite-and-how-to-deal-with-it/)
-- [things to teach](https://parenting.allwomenstalk.com/important-things-to-teach-your-teenage-son/)
 - [disciplining a 6 year old](https://parenting.allwomenstalk.com/guidelines-for-disciplining-your-child-fairly/)
+- [things to teach](https://parenting.allwomenstalk.com/important-things-to-teach-your-teenage-son/)
+- [2 year old chores](https://parenting.allwomenstalk.com/chores-your-2-year-old-can-help-with/)
+- [mom contact](https://parenting.allwomenstalk.com/clever-and-thoughtful-ways-to-connect-with-your-mom/)
+- [why do parents embarrass you in public](https://parenting.allwomenstalk.com/too-cute-ways-your-kids-will-embarrass-you-in-public/)
+- [why do children bite?](https://parenting.allwomenstalk.com/important-reasons-why-children-bite-and-how-to-deal-with-it/)
+- [babysitting tips and tricks](https://money.allwomenstalk.com/fun-and-simple-babysitting-tips-that-will-make-you-a-pro/)
+- [most searched parenting topics](https://parenting.allwomenstalk.com/crunchy-parenting-topics-that-are-highly-debated/)
 - [9 Great Ideas for Voluntourism ...](https://travel.allwomenstalk.com/9-great-ideas-for-voluntourism/)
 - [7 Ways to Involve Your Kids with Everything ...](https://parenting.allwomenstalk.com/7-ways-to-involve-your-kids-with-everything/)
 

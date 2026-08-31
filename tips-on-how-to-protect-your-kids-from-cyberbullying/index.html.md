@@ -42,16 +42,16 @@ The Internet is a beautiful place of information and resources but it is also ve
 
 ## Related Posts
 
-- [mom confronts teacher and son](https://parenting.allwomenstalk.com/tips-for-confronting-your-childs-teacher/)
-- [is it okay to be wrong](https://parenting.allwomenstalk.com/reasons-why-its-okay-to-make-mistakes-as-a-parent/)
+- [what is breaking bad age rating](https://teen.allwomenstalk.com/tips-for-breaking-bad-news-to-your-parents/)
+- [websites like starfall](https://parenting.allwomenstalk.com/wonderful-learning-websites-for-kids/)
+- [how to build a child's self esteem](https://parenting.allwomenstalk.com/tips-on-how-to-help-build-your-childs-self-esteem/)
+- [is girl scouts good for my daughter](https://parenting.allwomenstalk.com/important-reasons-why-your-child-should-join-scouts/)
 - [teaching kids about the environment](https://parenting.allwomenstalk.com/ways-to-teach-your-kids-to-care-about-the-environment/)
 - [rules in the family](https://parenting.allwomenstalk.com/must-have-family-rules-for-a-happy-home/)
-- [websites like starfall](https://parenting.allwomenstalk.com/wonderful-learning-websites-for-kids/)
+- [mom confronts teacher and son](https://parenting.allwomenstalk.com/tips-for-confronting-your-childs-teacher/)
 - [scary signs around the world](https://parenting.allwomenstalk.com/scary-signs-that-your-child-is-a-bully/)
 - [how to improve creativity in kids](https://parenting.allwomenstalk.com/ways-to-increase-creativity-in-your-kids/)
-- [is girl scouts good for my daughter](https://parenting.allwomenstalk.com/important-reasons-why-your-child-should-join-scouts/)
-- [what is breaking bad age rating](https://teen.allwomenstalk.com/tips-for-breaking-bad-news-to-your-parents/)
-- [how to build a child's self esteem](https://parenting.allwomenstalk.com/tips-on-how-to-help-build-your-childs-self-esteem/)
+- [is it okay to be wrong](https://parenting.allwomenstalk.com/reasons-why-its-okay-to-make-mistakes-as-a-parent/)
 - [7 Tips on Protecting Your Family ...](https://parenting.allwomenstalk.com/7-tips-on-protecting-your-family/)
 - [8 Ways to Help Your Child Deal with Bullies ...](https://parenting.allwomenstalk.com/ways-to-help-your-child-deal-with-bullies/)
 

@@ -60,16 +60,16 @@ So what are some of the reasons your teens suck? There are a ton of them so tell
 
 ## Related Posts
 
-- [potty training guide for parents](https://parenting.allwomenstalk.com/tips-for-potty-training/)
-- [home training](https://parenting.allwomenstalk.com/the-importance-of-child-training/)
-- [overprotective parents in your 20s](https://teen.allwomenstalk.com/how-to-gain-your-freedom-from-overprotective-parents/)
-- [taurus babies](https://parenting.allwomenstalk.com/parenting-tips-for-your-childs-zodiac-sign/)
-- [spanking alternatives](https://parenting.allwomenstalk.com/alternatives-to-spanking-to-discipline-your-child/)
-- [what to do with your mom at home](https://lifestyle.allwomenstalk.com/things-you-should-do-with-your-mom/)
 - [children believe](https://parenting.allwomenstalk.com/should-children-believe-in-santa-claus/)
 - [still can't sleep on christmas eve](https://parenting.allwomenstalk.com/tips-to-get-your-kids-to-go-to-sleep-on-christmas-eve/)
-- [potty training japan](https://parenting.allwomenstalk.com/tips-for-potty-training-2/)
+- [what to do with your mom at home](https://lifestyle.allwomenstalk.com/things-you-should-do-with-your-mom/)
+- [taurus babies](https://parenting.allwomenstalk.com/parenting-tips-for-your-childs-zodiac-sign/)
+- [spanking alternatives](https://parenting.allwomenstalk.com/alternatives-to-spanking-to-discipline-your-child/)
+- [home training](https://parenting.allwomenstalk.com/the-importance-of-child-training/)
 - [instill in](https://parenting.allwomenstalk.com/life-lessons-to-instill-in-your-children/)
+- [potty training guide for parents](https://parenting.allwomenstalk.com/tips-for-potty-training/)
+- [potty training japan](https://parenting.allwomenstalk.com/tips-for-potty-training-2/)
+- [overprotective parents in your 20s](https://teen.allwomenstalk.com/how-to-gain-your-freedom-from-overprotective-parents/)
 - [7 Problems Teen Moms Face ...](https://love.allwomenstalk.com/7-problems-teen-moms-face/)
 - [10 Things Every New Parent Should Know ...](https://allwomenstalk.com/10-things-every-new-parent-should-know/)
 

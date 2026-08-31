@@ -46,16 +46,16 @@ Being a parent is the toughest job anyone could do, and many parents have doubts
 
 ## Related Posts
 
-- [kids help at home](https://parenting.allwomenstalk.com/things-kids-can-do-to-help-around-the-house/)
-- [things to teach your son](https://parenting.allwomenstalk.com/ways-to-teach-your-son-to-be-a-gentleman/)
 - [good values for kids](https://parenting.allwomenstalk.com/moral-values-to-teach-your-children/)
-- [quiet kid stereotype](https://parenting.allwomenstalk.com/gender-based-stereotypes-imposed-on-kids/)
-- [tolerance kids](https://parenting.allwomenstalk.com/ways-to-teach-kids-tolerance/)
 - [only child facts](https://parenting.allwomenstalk.com/facts-about-only-children-parents-should-know/)
+- [tolerance kids](https://parenting.allwomenstalk.com/ways-to-teach-kids-tolerance/)
 - [how to be part of a community](https://lifestyle.allwomenstalk.com/ways-teens-can-help-the-community/)
+- [kids help at home](https://parenting.allwomenstalk.com/things-kids-can-do-to-help-around-the-house/)
 - [toddler cartoons list](https://parenting.allwomenstalk.com/cartoons-that-are-good-for-kids-to-watch/)
 - [things to do with kids when babysitting](https://lifestyle.allwomenstalk.com/things-to-do-with-kids-when-babysitting/)
 - [reasons why chores are bad](https://parenting.allwomenstalk.com/reasons-to-get-your-kids-to-do-chores/)
+- [things to teach your son](https://parenting.allwomenstalk.com/ways-to-teach-your-son-to-be-a-gentleman/)
+- [quiet kid stereotype](https://parenting.allwomenstalk.com/gender-based-stereotypes-imposed-on-kids/)
 - [Top 7 Things to Teach Your Children ...](https://parenting.allwomenstalk.com/top-7-things-to-teach-your-children/)
 - [8 Ways to Motivate Your Child ...](https://parenting.allwomenstalk.com/8-ways-to-motivate-your-child/)
 

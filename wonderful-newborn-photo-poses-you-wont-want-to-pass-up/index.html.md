@@ -209,16 +209,16 @@ What's your most treasured newborn photo? I love the candids that remind me what
 
 ## Related Posts
 
-- [halloween maternity pictures](https://parenting.allwomenstalk.com/pregnant-women-should-try-taking-these-types-of-maternity-photos/)
-- [an amazing mother](https://parenting.allwomenstalk.com/signs-youre-going-to-be-an-amazing-mom/)
-- [doctor fit and fabulous](https://parenting.allwomenstalk.com/how-to-have-a-healthy-fit-fabulous-pregnancy/)
-- [mom style man](https://fashion.allwomenstalk.com/its-time-to-embrace-these-embarrassing-mom-trends/)
-- [foods you cant eat when pregnant](https://parenting.allwomenstalk.com/foods-pregnant-women-should-avoid-at-all-costs/)
-- [disney baby announcement](https://parenting.allwomenstalk.com/cutest-pregnancy-and-birth-announcements-to-copy/)
-- [things moms do](https://parenting.allwomenstalk.com/daily-things-moms-should-do-for-themselves/)
-- [being pregnant is a blessing](https://parenting.allwomenstalk.com/all-of-the-benefits-and-blessings-of-being-pregnant/)
 - [gift of motherhood](https://parenting.allwomenstalk.com/the-most-rewarding-things-about-being-a-mother/)
 - [talk about your shopping habit](https://money.allwomenstalk.com/ways-to-adjust-your-single-lady-shopping-habits-when-starting-a-family/)
+- [things moms do](https://parenting.allwomenstalk.com/daily-things-moms-should-do-for-themselves/)
+- [halloween maternity pictures](https://parenting.allwomenstalk.com/pregnant-women-should-try-taking-these-types-of-maternity-photos/)
+- [disney baby announcement](https://parenting.allwomenstalk.com/cutest-pregnancy-and-birth-announcements-to-copy/)
+- [being pregnant is a blessing](https://parenting.allwomenstalk.com/all-of-the-benefits-and-blessings-of-being-pregnant/)
+- [doctor fit and fabulous](https://parenting.allwomenstalk.com/how-to-have-a-healthy-fit-fabulous-pregnancy/)
+- [foods you cant eat when pregnant](https://parenting.allwomenstalk.com/foods-pregnant-women-should-avoid-at-all-costs/)
+- [mom style man](https://fashion.allwomenstalk.com/its-time-to-embrace-these-embarrassing-mom-trends/)
+- [an amazing mother](https://parenting.allwomenstalk.com/signs-youre-going-to-be-an-amazing-mom/)
 - [30 Pictures of the Cutest Dogs Ever ...](https://allwomenstalk.com/30-pictures-of-the-cutest-dogs-ever/)
 - [17 Pictures of the Cutest Little Baby Bear ... wit...](https://allwomenstalk.com/pictures-cute-little-bear/)
 

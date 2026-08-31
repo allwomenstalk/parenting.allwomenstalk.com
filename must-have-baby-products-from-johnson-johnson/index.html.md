@@ -57,14 +57,14 @@ These are my personal favorite products by Johnson & Johnson. Although they may 
 ## Related Posts
 
 - [traps names](https://parenting.allwomenstalk.com/traps-to-watch-for-when-choosing-a-baby-name/)
+- [get tasks done with a baby](https://parenting.allwomenstalk.com/tips-for-getting-housework-done-with-a-baby/)
+- [what to wear to wedding when pregnant](https://wedding.allwomenstalk.com/tips-for-choosing-a-wedding-dress-when-youre-pregnant/)
 - [pros and cons of being a stay at home mom](https://parenting.allwomenstalk.com/misconceptions-about-being-a-stay-at-home-mom/)
 - [mom friends](https://parenting.allwomenstalk.com/kinds-of-fellow-mom-friends-you-desperately-need-when-you-become-a-mom/)
-- [what to wear to wedding when pregnant](https://wedding.allwomenstalk.com/tips-for-choosing-a-wedding-dress-when-youre-pregnant/)
-- [get tasks done with a baby](https://parenting.allwomenstalk.com/tips-for-getting-housework-done-with-a-baby/)
-- [essential nutrients for pregnancy](https://health.allwomenstalk.com/essential-nutrients-to-take-while-pregnant-interesting-facts-about-them/)
+- [going to be an aunt](https://parenting.allwomenstalk.com/wonderful-aspects-of-being-an-aunt/)
 - [are babies smarter than we think](https://parenting.allwomenstalk.com/awesome-reasons-why-babies-are-smarter-than-you-think/)
 - [preparing toddler for new baby](https://parenting.allwomenstalk.com/ways-to-prepare-your-toddler-for-a-new-baby/)
-- [going to be an aunt](https://parenting.allwomenstalk.com/wonderful-aspects-of-being-an-aunt/)
+- [essential nutrients for pregnancy](https://health.allwomenstalk.com/essential-nutrients-to-take-while-pregnant-interesting-facts-about-them/)
 - [when does extrusion reflex go away](https://parenting.allwomenstalk.com/sure-fire-signs-your-baby-is-ready-for-solid-foods/)
 - [10 Newborn Essentials ...](https://parenting.allwomenstalk.com/newborn-essentials/)
 - [7 Awesome Products for Your Dog ...](https://lifestyle.allwomenstalk.com/awesome-products-for-your-dog/)

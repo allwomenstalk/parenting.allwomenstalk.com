@@ -42,16 +42,16 @@ Families are about individuals, and everyone expressing themselves as such. Ther
 
 ## Related Posts
 
-- [misconceptions about me](https://teen.allwomenstalk.com/common-misconceptions-about-teenagers-today/)
-- [shadow questions to ask yourself](https://inspiration.allwomenstalk.com/profound-questions-to-ask-yourself-in-life/)
-- [punctual people](https://lifestyle.allwomenstalk.com/most-common-habits-of-punctual-people/)
-- [mom was right](https://parenting.allwomenstalk.com/times-your-mother-was-right/)
 - [the youngest of the family](https://parenting.allwomenstalk.com/best-things-about-being-the-youngest/)
 - [people in your life](https://inspiration.allwomenstalk.com/types-of-people-you-need-in-your-life-to-make-you-happy/)
-- [don't let what you're good at define who you are](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-emotional-baggage-so-it-doesnt-define-you/)
-- [knitting life](https://inspiration.allwomenstalk.com/timeless-lessons-about-life-that-knitting-taught-me/)
+- [misconceptions about me](https://teen.allwomenstalk.com/common-misconceptions-about-teenagers-today/)
+- [shadow questions to ask yourself](https://inspiration.allwomenstalk.com/profound-questions-to-ask-yourself-in-life/)
 - [body language mistakes](https://lifestyle.allwomenstalk.com/body-language-mistakes-you-may-be-making/)
+- [punctual people](https://lifestyle.allwomenstalk.com/most-common-habits-of-punctual-people/)
+- [knitting life](https://inspiration.allwomenstalk.com/timeless-lessons-about-life-that-knitting-taught-me/)
 - [teenage worries](https://teen.allwomenstalk.com/top-things-teens-worry-about/)
+- [don't let what you're good at define who you are](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-emotional-baggage-so-it-doesnt-define-you/)
+- [mom was right](https://parenting.allwomenstalk.com/times-your-mother-was-right/)
 - [7 Best Things about Facebook ...](https://allwomenstalk.com/7-best-things-about-facebook/)
 - [7 Health Benefits of Motherhood ...](https://parenting.allwomenstalk.com/health-benefits-of-motherhood/)
 

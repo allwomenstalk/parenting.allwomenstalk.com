@@ -34,16 +34,16 @@ Following the ARD meeting, our team—my ex-husband, our pediatrician, and mysel
 
 ## Related Posts
 
-- [spanking alternatives](https://parenting.allwomenstalk.com/alternatives-to-spanking-to-discipline-your-child/)
-- [potty training japan](https://parenting.allwomenstalk.com/tips-for-potty-training-2/)
-- [i can totally relate](https://parenting.allwomenstalk.com/things-parents-of-teens-can-totally-relate-to/)
-- [taurus babies](https://parenting.allwomenstalk.com/parenting-tips-for-your-childs-zodiac-sign/)
-- [potty training guide for parents](https://parenting.allwomenstalk.com/tips-for-potty-training/)
 - [still can't sleep on christmas eve](https://parenting.allwomenstalk.com/tips-to-get-your-kids-to-go-to-sleep-on-christmas-eve/)
+- [what to do with your mom at home](https://lifestyle.allwomenstalk.com/things-you-should-do-with-your-mom/)
+- [i can totally relate](https://parenting.allwomenstalk.com/things-parents-of-teens-can-totally-relate-to/)
+- [spanking alternatives](https://parenting.allwomenstalk.com/alternatives-to-spanking-to-discipline-your-child/)
+- [overprotective parents in your 20s](https://teen.allwomenstalk.com/how-to-gain-your-freedom-from-overprotective-parents/)
+- [potty training guide for parents](https://parenting.allwomenstalk.com/tips-for-potty-training/)
 - [home training](https://parenting.allwomenstalk.com/the-importance-of-child-training/)
 - [children believe](https://parenting.allwomenstalk.com/should-children-believe-in-santa-claus/)
-- [what to do with your mom at home](https://lifestyle.allwomenstalk.com/things-you-should-do-with-your-mom/)
-- [overprotective parents in your 20s](https://teen.allwomenstalk.com/how-to-gain-your-freedom-from-overprotective-parents/)
+- [taurus babies](https://parenting.allwomenstalk.com/parenting-tips-for-your-childs-zodiac-sign/)
+- [potty training japan](https://parenting.allwomenstalk.com/tips-for-potty-training-2/)
 - [7 Tips for Parents of Kids with Special Needs ...](https://parenting.allwomenstalk.com/7-tips-for-parents-of-kids-with-special-needs/)
 - [7 Ways to Raise a Confident Kid ...](https://parenting.allwomenstalk.com/7-ways-to-raise-a-confident-kid/)
 

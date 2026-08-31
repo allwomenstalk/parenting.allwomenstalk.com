@@ -42,16 +42,16 @@ Hopefully this list has inspired ideas that can help you celebrate the arrival o
 
 ## Related Posts
 
-- [new fashion tips](https://fashion.allwomenstalk.com/fashion-tips-for-new-moms-that-work-great-for-that-transition-period/)
+- [when does extrusion reflex go away](https://parenting.allwomenstalk.com/sure-fire-signs-your-baby-is-ready-for-solid-foods/)
 - [high school moms cast](https://teen.allwomenstalk.com/cons-of-being-a-mother-in-high-school/)
-- [essential nutrients for pregnancy](https://health.allwomenstalk.com/essential-nutrients-to-take-while-pregnant-interesting-facts-about-them/)
-- [benefits mum](https://parenting.allwomenstalk.com/benefits-of-being-a-working-mom/)
+- [telling friends you are pregnant](https://parenting.allwomenstalk.com/totally-fun-ways-to-announce-your-pregnancy/)
+- [johnson baby items](https://parenting.allwomenstalk.com/must-have-baby-products-from-johnson-johnson/)
 - [things to do while pregnant](https://parenting.allwomenstalk.com/fun-things-to-do-when-you-are-pregnant-to-celebrate-the-pregnancy/)
 - [pros and cons of being a stay at home mom](https://parenting.allwomenstalk.com/misconceptions-about-being-a-stay-at-home-mom/)
-- [when does extrusion reflex go away](https://parenting.allwomenstalk.com/sure-fire-signs-your-baby-is-ready-for-solid-foods/)
-- [telling friends you are pregnant](https://parenting.allwomenstalk.com/totally-fun-ways-to-announce-your-pregnancy/)
 - [traps names](https://parenting.allwomenstalk.com/traps-to-watch-for-when-choosing-a-baby-name/)
-- [johnson baby items](https://parenting.allwomenstalk.com/must-have-baby-products-from-johnson-johnson/)
+- [essential nutrients for pregnancy](https://health.allwomenstalk.com/essential-nutrients-to-take-while-pregnant-interesting-facts-about-them/)
+- [new fashion tips](https://fashion.allwomenstalk.com/fashion-tips-for-new-moms-that-work-great-for-that-transition-period/)
+- [benefits mum](https://parenting.allwomenstalk.com/benefits-of-being-a-working-mom/)
 - [7 Ways to Make Your Little One Smile ...](https://parenting.allwomenstalk.com/7-ways-to-make-your-little-one-smile/)
 - [7 Ways to Celebrate a Teen's Birthday ...](https://parenting.allwomenstalk.com/7-ways-to-celebrate-a-teens-birthday/)
 

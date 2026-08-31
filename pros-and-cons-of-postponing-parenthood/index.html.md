@@ -43,15 +43,15 @@ Whatever time you choose to have children, remember that it's yours to make and 
 ## Related Posts
 
 - [stepmom vs mom](https://parenting.allwomenstalk.com/important-things-every-stepmom-must-know-and-remember/)
-- [things to do while pregnant](https://parenting.allwomenstalk.com/fun-things-to-do-when-you-are-pregnant-to-celebrate-the-pregnancy/)
-- [new fashion tips](https://fashion.allwomenstalk.com/fashion-tips-for-new-moms-that-work-great-for-that-transition-period/)
 - [johnson baby items](https://parenting.allwomenstalk.com/must-have-baby-products-from-johnson-johnson/)
 - [how to stay sane as a stay at home mom](https://parenting.allwomenstalk.com/tips-on-how-to-stay-sane-as-a-new-mom/)
 - [opportunities in life](https://parenting.allwomenstalk.com/new-life-opportunities-to-enjoy-after-the-kids-are-grown/)
-- [telling friends you are pregnant](https://parenting.allwomenstalk.com/totally-fun-ways-to-announce-your-pregnancy/)
 - [benefits mum](https://parenting.allwomenstalk.com/benefits-of-being-a-working-mom/)
-- [newborn party](https://parenting.allwomenstalk.com/ideas-to-celebrate-the-arrival-of-a-new-baby/)
+- [telling friends you are pregnant](https://parenting.allwomenstalk.com/totally-fun-ways-to-announce-your-pregnancy/)
 - [high school moms cast](https://teen.allwomenstalk.com/cons-of-being-a-mother-in-high-school/)
+- [new fashion tips](https://fashion.allwomenstalk.com/fashion-tips-for-new-moms-that-work-great-for-that-transition-period/)
+- [newborn party](https://parenting.allwomenstalk.com/ideas-to-celebrate-the-arrival-of-a-new-baby/)
+- [things to do while pregnant](https://parenting.allwomenstalk.com/fun-things-to-do-when-you-are-pregnant-to-celebrate-the-pregnancy/)
 - [8 Reasons to Have Your Family Later ...](https://parenting.allwomenstalk.com/8-reasons-to-have-your-family-later/)
 - [7 Pros and Cons of Midwives Vs Doctors ...](https://parenting.allwomenstalk.com/pros-and-cons-of-midwives-vs-doctors/)
 

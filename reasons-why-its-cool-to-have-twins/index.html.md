@@ -42,16 +42,16 @@ Life is not a bed of roses and that holds true in having twins. In fact, I shoul
 
 ## Related Posts
 
+- [independent thought](https://inspiration.allwomenstalk.com/reasons-to-be-an-independent-thinker/)
+- [why should i write a book](https://books.allwomenstalk.com/reasons-why-you-should-start-writing-a-book/)
+- [pros and cons of dating an athlete](https://fitness.allwomenstalk.com/awesome-reasons-to-date-an-athlete/)
+- [good things about netflix](https://movies.allwomenstalk.com/reasons-you-should-sign-up-for-netflix-today/)
+- [why i wear black](https://fashion.allwomenstalk.com/worthwhile-reasons-to-wear-black/)
+- [benefits of playing the drums](https://music.allwomenstalk.com/reasons-you-should-take-up-the-drums/)
+- [perks of night shift](https://lifestyle.allwomenstalk.com/pros-of-working-night-shifts/)
 - [benefits of doing what you love](https://money.allwomenstalk.com/reasons-to-do-what-you-love-for-a-living/)
 - [learning an instrument benefits](https://lifestyle.allwomenstalk.com/wonderful-benefits-of-playing-a-musical-instrument/)
 - [reasons to call a girl](https://love.allwomenstalk.com/great-reasons-to-call-him-first/)
-- [pros and cons of dating an athlete](https://fitness.allwomenstalk.com/awesome-reasons-to-date-an-athlete/)
-- [independent thought](https://inspiration.allwomenstalk.com/reasons-to-be-an-independent-thinker/)
-- [benefits of playing the drums](https://music.allwomenstalk.com/reasons-you-should-take-up-the-drums/)
-- [perks of night shift](https://lifestyle.allwomenstalk.com/pros-of-working-night-shifts/)
-- [why should i write a book](https://books.allwomenstalk.com/reasons-why-you-should-start-writing-a-book/)
-- [good things about netflix](https://movies.allwomenstalk.com/reasons-you-should-sign-up-for-netflix-today/)
-- [why i wear black](https://fashion.allwomenstalk.com/worthwhile-reasons-to-wear-black/)
 - [8 Reasons Why I Love Being a Mom ...](https://parenting.allwomenstalk.com/8-reasons-why-i-love-being-a-mom/)
 - [7 Advantages of Having Twins ...](https://parenting.allwomenstalk.com/7-advantages-of-having-twins/)
 
