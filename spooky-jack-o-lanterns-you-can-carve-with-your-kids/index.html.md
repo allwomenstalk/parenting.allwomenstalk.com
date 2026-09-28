@@ -3,7 +3,7 @@ title: "35 Spooky Jack-O-Lanterns You Can Carve with Your Kids ..."
 description: "White Pumpkins; Wine Bottle Jack-o-Lanterns; Mantel Decor; Favorite Character; Tiny Jack-o-lanterns; More ..."
 url: "https://parenting.allwomenstalk.com/spooky-jack-o-lanterns-you-can-carve-with-your-kids/"
 category: "parenting"
-last_updated: "2026-09-02"
+last_updated: "2026-09-28"
 ---
 
 # 35 Spooky Jack\-O\-Lanterns You Can Carve with Your Kids ...
@@ -248,16 +248,16 @@ Do you carve pumpkins for Halloween? It's one of my favorite traditions with my 
 
 ## Related Posts
 
-- [ttyuio](https://movies.allwomenstalk.com/spooky-movies-that-will-get-you-in-the-halloween-spirit/)
-- [cookie monster harry potter](https://funny.allwomenstalk.com/sesame-street-meets-harry-potter-in-new-halloween-parody-clip/)
-- [couples costume with cat](https://funny.allwomenstalk.com/hilarious-cats-in-halloween-costumes/)
-- [cookie monster no carve pumpkin](https://diy.allwomenstalk.com/no-carve-pumpkins-for-halloween/)
-- [80s cartoon character costumes](https://fashion.allwomenstalk.com/fun-70s-and-80s-inspired-halloween-costumes/)
 - [cute sugar skull makeup](https://makeup.allwomenstalk.com/hauntingly-beautiful-sugar-skull-makeup-found-on-pinterest/)
+- [cookie monster no carve pumpkin](https://diy.allwomenstalk.com/no-carve-pumpkins-for-halloween/)
+- [couples costume with cat](https://funny.allwomenstalk.com/hilarious-cats-in-halloween-costumes/)
 - [scarecrow activities](https://diy.allwomenstalk.com/cute-homemade-scarecrows-for-fall-this-year/)
-- [halloween meals](https://food.allwomenstalk.com/delicious-halloween-food-ideas-for-your-celebration/)
-- [creative halloween snacks](https://food.allwomenstalk.com/creative-halloween-party-snacks-to-create-this-week/)
 - [halloween cooking quotes](https://inspiration.allwomenstalk.com/halloween-inspired-quotes-about-magic/)
+- [halloween meals](https://food.allwomenstalk.com/delicious-halloween-food-ideas-for-your-celebration/)
+- [cookie monster harry potter](https://funny.allwomenstalk.com/sesame-street-meets-harry-potter-in-new-halloween-parody-clip/)
+- [creative halloween snacks](https://food.allwomenstalk.com/creative-halloween-party-snacks-to-create-this-week/)
+- [ttyuio](https://movies.allwomenstalk.com/spooky-movies-that-will-get-you-in-the-halloween-spirit/)
+- [80s cartoon character costumes](https://fashion.allwomenstalk.com/fun-70s-and-80s-inspired-halloween-costumes/)
 - [5 Spooky Pumpkin Designs ...](https://twilight.allwomenstalk.com/5-spooky-pumpkin-designs/)
 - [7 Halloween Crafts to do with Your Child ...](https://allwomenstalk.com/7-halloween-crafts-to-do-with-your-child/)
 
