@@ -3,7 +3,7 @@ title: "8 Myths about ADHD ..."
 description: "Kids Outgrow It; Only Hyper Kids Have It; It’s a Discipline Issue, That’s All; It’s Caused by a Poor Diet; Ritalin (or Another Pill) Can Cure It; More ..."
 url: "https://parenting.allwomenstalk.com/8-myths-about-adhd/"
 category: "parenting"
-last_updated: "2026-09-28"
+last_updated: "2026-10-09"
 ---
 
 # 8 Myths about ADHD ...
@@ -44,20 +44,18 @@ While the numbers of boys and girls with the condition don’t differ by much, i
 
 These are just a few of the common misconceptions about ADHD, and I’m so glad I could help disprove them! Of course if you have any questions or concerns, it’s always a good idea to talk to your child’s pediatrician and teacher… but in the meantime, if your child has ADHD, can you help dispel any myths? What other ADHD misconceptions can you clear up?
 
-Top Photo Credit: [Christopher Futcher](https://www.flickr.com/photos/chrisfutcher/4474763235)
-
 ## Related Posts
 
-- [7 Prescription Drugs with Strange Side Effects ...](https://health.allwomenstalk.com/prescription-drugs-with-strange-side-effects/)
-- [7 Horrible Diseases ...](https://health.allwomenstalk.com/7-horrible-diseases/)
-- [7 Pertinent Laser Eye Surgery Points to Consider ....](https://health.allwomenstalk.com/pertinent-laser-eye-surgery-points-to-consider/)
-- [7 Tips for Coping with Long-Term Health Conditions...](https://health.allwomenstalk.com/7-tips-for-coping-with-long-term-health-conditions/)
-- [10 Reasons to Get Regular Checkups ...](https://health.allwomenstalk.com/10-reasons-to-get-regular-checkups/)
 - [most important women's vitamins](https://health.allwomenstalk.com/highly-important-vitamins-for-women/)
+- [7 Horrible Diseases ...](https://health.allwomenstalk.com/7-horrible-diseases/)
 - [8 Things to Know about Antioxidants ...](https://health.allwomenstalk.com/8-things-to-know-about-antioxidants/)
+- [7 Tips for Coping with Long-Term Health Conditions...](https://health.allwomenstalk.com/7-tips-for-coping-with-long-term-health-conditions/)
 - [7 Scariest Invasive Surgeries ...](https://health.allwomenstalk.com/7-scariest-invasive-surgeries/)
+- [7 Prescription Drugs with Strange Side Effects ...](https://health.allwomenstalk.com/prescription-drugs-with-strange-side-effects/)
 - [6 Incredibly Important Health Issues You Must Know...](https://health.allwomenstalk.com/incredibly-important-health-issues-you-must-know-about/)
+- [10 Reasons to Get Regular Checkups ...](https://health.allwomenstalk.com/10-reasons-to-get-regular-checkups/)
 - [5 Herbs to Take Caution with ...](https://gardening.allwomenstalk.com/5-herbs-to-take-caution-with/)
+- [7 Pertinent Laser Eye Surgery Points to Consider ....](https://health.allwomenstalk.com/pertinent-laser-eye-surgery-points-to-consider/)
 - [8 Harmful Heart Habits ...](https://health.allwomenstalk.com/8-harmful-heart-habits/)
 - [10 Text Habits That Drive People Mad ...](https://allwomenstalk.com/10-text-habits-that-drive-people-mad/)
 
