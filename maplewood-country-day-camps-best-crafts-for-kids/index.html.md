@@ -3,7 +3,7 @@ title: "Maplewood Country Day Camp's 11 Best Crafts for Kids ..."
 description: "Birdhouse Painting; Sponge Sailboats; Painting with Ice Cubes; Seashell Creations; Summer Canvas; More ..."
 url: "https://parenting.allwomenstalk.com/maplewood-country-day-camps-best-crafts-for-kids/"
 category: "parenting"
-last_updated: "2026-10-09"
+last_updated: "2026-10-22"
 ---
 
 # Maplewood Country Day Camp's 11 Best Crafts for Kids ...
@@ -148,16 +148,16 @@ To learn more about Maplewood Country Day Camp & Enrichment Center and the creat
 
 ## Related Posts
 
-- [Putting It Together - Florals for Amy ...](https://allwomenstalk.com/putting-it-together-florals-for-amy/)
-- [christmas projects for adults](https://diy.allwomenstalk.com/christmas-crafts-for-adults/)
-- [8 Christmas Craft Creations: Delightful DIY Gifts ...](https://gifts.allwomenstalk.com/kid-crafts-for-christmas-gifts/)
-- [diy woodworking christmas gifts](https://diy.allwomenstalk.com/diy-wooden-christmas-gifts/)
-- [DIY Invitations...](https://allwomenstalk.com/diy-invitations/)
 - [Catchy Christmas Crafts: Delightful DIY Gifts & De...](https://gifts.allwomenstalk.com/arts-and-crafts-christmas-gifts/)
-- [DIY Weekend- Mike & Chris Hoodie ...](https://allwomenstalk.com/diy-weekend-mike-chris-hoodie/)
-- [5 Great DIY Projects to Bring Spring to Your Home ...](https://allwomenstalk.com/5-great-diy-projects-to-bring-spring-to-your-home/)
 - [Frugal Scrapbooking](https://allwomenstalk.com/frugal-scrapbooking-the-mad-cropper/)
 - [7 Adorable Etsy Finds ...](https://allwomenstalk.com/7-adorable-etsy-finds/)
+- [diy woodworking christmas gifts](https://diy.allwomenstalk.com/diy-wooden-christmas-gifts/)
+- [5 Great DIY Projects to Bring Spring to Your Home ...](https://allwomenstalk.com/5-great-diy-projects-to-bring-spring-to-your-home/)
+- [DIY Weekend- Mike & Chris Hoodie ...](https://allwomenstalk.com/diy-weekend-mike-chris-hoodie/)
+- [christmas projects for adults](https://diy.allwomenstalk.com/christmas-crafts-for-adults/)
+- [DIY Invitations...](https://allwomenstalk.com/diy-invitations/)
+- [Putting It Together - Florals for Amy ...](https://allwomenstalk.com/putting-it-together-florals-for-amy/)
+- [8 Christmas Craft Creations: Delightful DIY Gifts ...](https://gifts.allwomenstalk.com/kid-crafts-for-christmas-gifts/)
 - [8 Free Craft Items for Kids ...](https://parenting.allwomenstalk.com/8-free-craft-items-for-kids/)
 - [10 Things for Your Kid's Craft Bin ...](https://allwomenstalk.com/10-things-for-your-kids-craft-bin/)
 
